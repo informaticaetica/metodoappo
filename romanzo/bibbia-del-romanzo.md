@@ -34,7 +34,7 @@ Documento di lavoro: personaggi, luoghi e linea temporale usati per scrivere i c
 - **Raffaele**, cognato: il contabile («Dopo tutto quello che ho fatto per te»).
 - **Lorenzo Avallone**, consulente per le piccole imprese ad Agropoli, ex cliente di Stefano: gli apre la strada della consulenza.
 - **Daniele**, 36 anni, figlio di Pietro, pediatra a Napoli: il primo a cui Elio ha insegnato il quaderno.
-- **Ada**, la formatrice che portò Elio nelle aule, morta quindici anni prima: a lei è dedicato il taccuino di Elio.
+- **Ada**, la formatrice che portò Elio nelle aule; ha 81 anni, vive a Ischia e gli telefona il primo del mese. A lei è dedicato il taccuino di Elio.
 - **Lidia**, sorella di Rosa, seguita da un'équipe per un disturbo da alimentazione incontrollata (capitolo 30).
 - **Dottor Marcello Ferri**, ex direttore d'area di Stefano.
 - **Totonno**, meccanico di Policastro, amico di Vincenzo.
@@ -45,4 +45,4 @@ Documento di lavoro: personaggi, luoghi e linea temporale usati per scrivere i c
 - **Prologo (maggio):** la chiusura della filiale. Stefano torna da suo padre, a Policastro.
 - **Parte prima (fine maggio – ottobre):** l'incontro con Elio al porto di Scario e l'apprendimento del metodo, un gesto alla volta. A luglio Stefano smette per undici giorni e poi riprende. A fine agosto fa il primo momento mensile, al fiume Bussento, e cambia Aspirazione. Il primo giovedì di ottobre nasce la comunità pensante.
 - **Parte seconda (ottobre – giugno):** i perché del metodo, messi alla prova nella vita. A dicembre la mail a Ferri scritta d'impulso; a gennaio il ricovero di Vincenzo, la settimana peggiore; ad aprile la telefonata di Pina Galdi e l'incarico per la rete di produttori; a maggio il saggio di Matteo e il litigio sul liceo musicale; a giugno il Centro Antifumo. Il 22 giugno Elio ha un infarto.
-- **Chiusura (luglio – agosto):** Stefano scrive il metodo in tre minuti e conduce la comunità di luglio. Il 21 luglio Elio muore nel sonno. Il primo sabato di agosto, all'alba, sul *Lucilio*, Matteo scrive la sua prima riga.
+- **Chiusura (luglio – agosto):** Stefano scrive il metodo in tre minuti e conduce la comunità di luglio. Elio si riprende lentamente dall'infarto e lascia a Stefano la guida della comunità e il *Lucilio* «ai giovedì». Il primo sabato di agosto, all'alba, sul *Lucilio*, con Elio a bordo, Matteo scrive la sua prima riga.

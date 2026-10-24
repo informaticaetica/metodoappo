@@ -5684,9 +5684,15 @@ Poi chiuse il taccuino, e lo riaprì all'ultima pagina scritta, e scrisse la rig
 
 ---
 
-Per tredici mattine, Stefano portò il caffè a Elio alle sei.
+Per tutto luglio, Stefano portò il caffè a Elio alle sei.
 
-Lo preparava a Policastro, con la moka, dopo aver scritto la sua riga. Lo versava in un thermos, guidava fino a Scario con i finestrini abbassati, entrava dal cancello che Elio lasciava aperto. Lo trovava quasi sempre già sveglio, sulla sdraio in terrazza, con la coperta sulle gambe e lo sguardo sul golfo che si accendeva. Bevevano il caffè in due bicchierini di plastica, come la prima mattina sul *Lucilio*. Parlavano poco. A volte niente.
+Lo preparava a Policastro, con la moka, dopo aver scritto la sua riga. Lo versava in un thermos, guidava fino a Scario con i finestrini abbassati, entrava dal cancello che Elio lasciava aperto. Le prime mattine lo trovava a letto, con i tre cuscini dietro la schiena. Poi, dalla seconda settimana, sulla sdraio in terrazza, con la coperta sulle gambe e lo sguardo sul golfo che si accendeva. Bevevano il caffè in due bicchierini di plastica, come la prima mattina sul *Lucilio*. Parlavano poco. A volte niente.
+
+Il cardiologo, alla visita di controllo, aveva detto che il cuore stava rispondendo meglio del previsto. Che il danno c'era, e sarebbe rimasto, ma che con le medicine, la dieta e un po' di giudizio un uomo testardo poteva campare ancora parecchio. «Un po' di giudizio» aveva ripetuto Rosa in macchina, guardando Elio dallo specchietto. «Hai sentito? Giudizio.»
+
+«Ne ho sempre avuto» aveva detto Elio. «Lo usavo per gli altri.»
+
+---
 
 Una mattina Elio gli chiese di leggergli le sue righe dell'ultima settimana. Stefano lo fece, ad alta voce, e Elio ascoltò a occhi chiusi.
 
@@ -5694,87 +5700,83 @@ Una mattina Elio gli chiese di leggergli le sue righe dell'ultima settimana. Ste
 
 Un'altra mattina gli chiese di sedersi più vicino, e gli diede il suo taccuino nero. Quello consumato agli angoli, con *OSA REALIZZARTI OGGI* sulla prima pagina.
 
-«Lo tenga lei» disse. «Lo legga dopo.»
+«Lo tenga lei.»
 
-«Dopo cosa?»
+«Non posso. È suo.»
 
-Elio sorrise e non rispose.
-
-La quattordicesima mattina, il ventuno luglio, Stefano arrivò alle sei meno cinque con il thermos e trovò il cancello aperto, come sempre, e la sdraio vuota.
-
-Elio era morto nel sonno, verso le quattro, disse poi il medico. Rosa era passata alle undici della sera prima, e lui le aveva detto che stava bene, e che l'indomani voleva provare ad arrivare fino al porto, a piedi, per vedere il *Lucilio*.
+«Lo legga adesso. Davanti a me.» Elio sorrise. «Per un mese ho pensato che le avrei detto di leggerlo dopo. Poi mi sono accorto che *dopo* è la parola preferita della ruggine.»
 
 ---
 
-Il funerale fu nella chiesa di Scario, due giorni dopo, alle undici del mattino. Era piena. Stefano non avrebbe mai immaginato che Elio conoscesse tante persone. C'erano pescatori, vecchi colleghi informatici arrivati da Napoli e da Roma, una decina di ex studenti ormai adulti, il barista dell'Approdo. C'era Pina Galdi, in prima fila, con il cappello. C'erano la parrucchiera di Maratea e la sua socia. C'era Vincenzo, che non voleva saperne di restare a casa, con il bastone e la giacca buona, quella dei matrimoni. C'erano Giulia e Matteo, scesi da Salerno la sera prima.
+Stefano lo lesse lì, sulla terrazza, con il sole che saliva.
 
-E c'era la comunità. Rosa, Mela, Gino, Ivo. Salvatore, il ragazzo di Totonno, in piedi in fondo, con le mani in tasca.
-
-Alla fine della messa, un uomo di trentasei anni con la barba corta e gli occhi di Elio, anche se non era suo figlio, salì all'ambone. Si chiamava Daniele. Era il figlio di Pietro.
-
-«Elio non era mio padre» disse. «Mio padre è morto quando avevo sei anni, mentre si faceva la barba. Elio era il suo migliore amico. E da quel giorno, per trent'anni, mi ha chiamato tutte le domeniche.»
-
-Si fermò. Nella chiesa non volava una mosca.
-
-«Quando avevo sedici anni volevo lasciare la scuola. Ero arrabbiato con tutto il mondo, e soprattutto con mio padre, che se n'era andato. Elio mi ha portato in barca, alle cinque del mattino, e mi ha dato un quaderno. Mi ha detto: *scrivi una riga la mattina e una la sera. Per un mese. Poi decidi.* Io l'ho scritta per un mese per fargli un dispetto. Poi non ho più smesso.» Daniele tirò fuori dalla giacca un quaderno vecchio, con la copertina sbiadita. «Ho trentasei anni, faccio il pediatra a Napoli, e ho due figlie. Questo è il ventitreesimo quaderno.»
-
----
-
-Dopo, sul sagrato, nel sole di luglio, Daniele cercò Stefano fra la gente.
-
-«Lei è Stefano Russo. Il bancario.»
-
-«Ex.»
-
-«Elio mi parlava di lei ogni domenica, da un anno.» Daniele sorrise. «Diceva che era la persona più testarda che avesse mai incontrato, dopo se stesso. Le ha lasciato il taccuino?»
-
-«Me l'ha dato la settimana scorsa. Mi ha detto di leggerlo dopo.»
-
-«Lo legga. L'ultima pagina, soprattutto.»
-
----
-
-Stefano lo lesse quella sera, sul balcone di Policastro, con Giulia accanto che non diceva niente e gli teneva la mano.
-
-Il taccuino nero era pieno. Non di righe del mattino e della sera: quelle, Elio le teneva altrove. Era pieno di cose raccolte in quarant'anni. Le cento righe del mattino di persone vere, quelle che aveva copiato per lui a luglio. Le citazioni di Seneca in latino, con la traduzione accanto. I nomi degli studi, con gli autori e gli anni, e accanto, in rosso, le correzioni, quando uno studio veniva ridimensionato. *Danziger 2011 — ma vedi Weinshall-Margel. Esaurimento dell'io — non regge. 21 giorni — Maltz, chirurgia plastica, NON abitudini.* Un uomo che aveva passato la vita a controllare le proprie fonti.
+Il taccuino nero era pieno. Non di righe del mattino e della sera: quelle, Elio le teneva altrove. Era pieno di cose raccolte in quarant'anni. Le cento righe del mattino di persone vere, quelle che aveva copiato per lui l'anno prima. Le citazioni di Seneca in latino, con la traduzione accanto. I nomi degli studi, con gli autori e gli anni, e accanto, in rosso, le correzioni, quando uno studio veniva ridimensionato. *Danziger 2011 — ma vedi Weinshall-Margel. Esaurimento dell'io — non regge. 21 giorni — Maltz, chirurgia plastica, NON abitudini.* Un uomo che aveva passato la vita a controllare le proprie fonti.
 
 E poi c'erano i nomi. Decine di nomi, uno per pagina, a volte con una data. *Daniele, 2004.* *La parrucchiera di Maratea, 2011.* *Il caposquadra degli impianti, 2015.* E l'ultimo: *Stefano Russo, figlio di Vincenzo. Molo di Scario, maggio. Fumava.*
 
-Sull'ultima pagina c'era una dedica. Scritta a mano, con una grafia più tremolante delle altre, recente.
+Sull'ultima pagina c'era una dedica. Scritta a mano, con una grafia più tremolante delle altre, recente. Era datata ventisei giugno: l'aveva scritta in ospedale.
 
-*Ad Ada, che mi ha portato nelle aule dove ho imparato quello che da solo non avrei trovato. Se n'è andata troppo presto, e da quel vuoto è nato tutto questo.*
+*Ad Ada, che mi ha portato nelle aule dove ho imparato quello che da solo non avrei trovato.*
 
 *A Pietro, che rideva con la testa all'indietro.*
 
 *E a chi verrà dopo. Una riga sola: non fermatevi.*
 
-Giulia lesse sopra la sua spalla. Non disse niente. Gli strinse la mano più forte.
+Stefano rimase con il taccuino aperto sulle ginocchia.
+
+«Chi è Ada?»
+
+«La mia maestra. Una donna di Napoli che negli anni Ottanta portava nelle aule d'Italia cose che allora non insegnava nessuno. Come si parla in pubblico, come si guida un gruppo, come si sta con le persone. Io ero un informatico che sapeva parlare solo con i computer. Mi ha preso come allievo, poi come collaboratore, poi come amico.» Elio guardò il mare. «Ha ottantun anni, vive a Ischia, e mi telefona il primo del mese per sapere se faccio ancora i compiti.»
+
+Rise, e la risata non diventò tosse. Stefano se ne accorse, e non disse niente.
+
+«Quella dedica l'ho scritta la seconda notte in coronarica» disse Elio. «Pensavo che sarebbe stata l'ultima cosa che scrivevo. Volevo lasciare una riga sola alle persone a cui voglio bene. Gliel'avevo detto in barca, a ottobre, ricorda? *Non fermatevi.*»
+
+«E adesso?»
+
+«Adesso la riga resta. Ma la scrivo da vivo, che è meglio.»
 
 ---
 
-Stefano non sapeva chi fosse Ada. Lo scoprì il giorno dopo da Daniele, al telefono. Era stata una donna di Napoli, una pioniera della formazione, una che negli anni Ottanta portava nelle aule d'Italia cose che allora nessuno insegnava: come si parla in pubblico, come si guida un gruppo, come si sta con le persone. Elio era stato suo allievo, poi suo collaboratore, poi suo amico. Ada era morta quindici anni prima. Elio non ne parlava mai.
+Fu quella mattina che Elio gli disse la cosa per cui, Stefano lo capì dopo, aveva aspettato di stare abbastanza bene.
 
-«Diceva che l'unico modo per onorare una persona che non c'è più» disse Daniele, «è usare i giorni che a lei sono stati tolti. E a te no.»
+«Le devo dire un'ultima cosa. Non è una tecnica, e non deve farci niente. È un congedo.»
 
-Stefano rimase in silenzio, con il telefono all'orecchio.
+Stefano sentì una stretta al petto.
 
-«Non era una frase da lapide» disse Daniele. «Era una cosa da fare la mattina dopo. In trenta secondi. Con una riga scritta prima di guardare il telefono.»
+«Non quel congedo» disse Elio, vedendogli la faccia. «Non ho fretta. Il cardiologo dice che con un po' di giudizio ne ho ancora per un pezzo, e intendo smentire chi dice che non ne ho.» Si sistemò la coperta. «Mi congedo da un'altra cosa. Dal fare il maestro.»
+
+«Perché?»
+
+«Perché a giugno, nel corridoio dell'ospedale, Rosa si ripeteva le quattro domande mentre veniva da me con l'aspirina. Perché lei, il primo giovedì di luglio, ha condotto la comunità meglio di come l'avrei condotta io, e ha sforato di quattro secondi per un ragazzo di diciannove anni. Perché Ivo ha detto al suo capo come funziona. Perché Mela insegna a cucire il martedì e Gino ha un apprendista.» Elio sorrise. «Un allenatore che resta in campo quando la squadra sa giocare non è un allenatore. È uno che non sa andarsene.»
+
+«Ma la comunità…»
+
+«La comunità va avanti. Con lei a capotavola. Io vengo il primo giovedì, mi siedo nel mio angolo con la camomilla, e ascolto. Come ho sempre fatto.» Elio indicò il porto, giù in fondo. «E la barca è dei giovedì. L'ho scritto su un foglio e l'ho fatto firmare a Rosa come testimone, perché lei è l'unica di cui mi fido con le carte. Chi la usa, la cura.»
 
 ---
+
+Ci ripensò per tutto il giorno, Stefano. Ci ripensò la sera, sul balcone di Policastro, con Giulia accanto che gli teneva la mano.
+
+Elio gli aveva detto una cosa, sulla terrazza, prima che se ne andasse. L'aveva detta guardando il golfo, come se parlasse a qualcun altro.
+
+«Per trent'anni ho pensato che l'unico modo per onorare una persona che non c'è più fosse usare i giorni che a lei sono stati tolti, e a me no. Pietro. È da lì che è nato tutto.» Si era fermato. «A giugno, per una notte, ho pensato che i miei fossero finiti. E invece me ne hanno restituiti altri. Non so quanti. Nessuno lo sa, di nessuno. Ma questi non li spreco. Neanche uno.»
 
 Fu così che Stefano capì perché il metodo esisteva.
 
-Non per farlo produrre di più. Non per farlo diventare un consulente di successo, o un padre migliore, o un uomo che fuma di meno, anche se un po' di tutte queste cose, in un anno, gli erano successe. Il metodo esisteva perché un uomo aveva perso il suo migliore amico a quarantun anni, e la sua maestra troppo presto, e aveva cercato un modo per non lasciare che quei vuoti restassero soltanto vuoti. E aveva trovato questo: un minuto al giorno. Perché, quando arrivasse il turno di ciascuno di guardarsi indietro, ci fosse qualcosa da leggere.
+Non per farlo produrre di più. Non per farlo diventare un consulente di successo, o un padre migliore, o un uomo che fuma di meno, anche se un po' di tutte queste cose, in un anno, gli erano successe. Il metodo esisteva perché un uomo aveva perso il suo migliore amico a quarantun anni e aveva cercato un modo per non lasciare che quel vuoto restasse soltanto un vuoto. E aveva trovato questo: un minuto al giorno. Perché, quando arrivasse il turno di ciascuno di guardarsi indietro, ci fosse qualcosa da leggere. E perché, finché il turno non arriva, ogni giorno fosse usato.
 
-Mi piace pensare, aveva detto Elio una volta, sul molo, che le persone che ci hanno voluto bene non se ne vadano davvero, finché qualcosa che ci hanno insegnato continua a passare di mano. Ada aveva insegnato a Elio. Elio aveva insegnato a Daniele, alla parrucchiera di Maratea, al caposquadra degli impianti, a Stefano. E Stefano, il giovedì di luglio, aveva fatto scivolare un taccuino nero da quattro euro e cinquanta verso un ragazzo di diciannove anni che si chiamava Salvatore.
+---
 
-La catena reggeva ancora.
+Mi piace pensare, aveva detto Elio una volta, sul molo, che le cose che impariamo da qualcuno non si fermano a noi. Continuano a passare di mano.
+
+Ada aveva insegnato a Elio. Elio aveva insegnato a Daniele, alla parrucchiera di Maratea, al caposquadra degli impianti, a Stefano. E Stefano, il primo giovedì di luglio, aveva fatto scivolare un taccuino nero da quattro euro e cinquanta verso un ragazzo di diciannove anni che si chiamava Salvatore.
+
+La catena reggeva.
 
 Non serviva passare il quaderno, pensò. Bastava una domanda APPO fatta al momento giusto. Una riga del mattino suggerita a chi non sa da dove cominciare. Il rito della settimana raccontato a un amico al bar. Erano piccole cose. Ma era così che nascevano le comunità pensanti: una persona alla volta.
 
 ---
-
-Elio aveva lasciato il *Lucilio* alla comunità. C'era scritto in una busta che Daniele aveva trovato sul comodino, insieme alle chiavi di casa e a una fattura del cantiere navale di Sapri per il rifacimento della vernice. *La barca è dei giovedì. Chi la usa, la cura.*
 
 Il primo sabato di agosto, all'alba, Stefano andò al porto di Scario. Con lui c'era Matteo.
 
@@ -5782,31 +5784,45 @@ Matteo era a Policastro da una settimana, per l'estate, a preparare l'esame di a
 
 Il giorno prima Matteo gli aveva chiesto se poteva venire con lui, all'alba, al porto. Non aveva detto perché.
 
-Tolsero insieme il telo azzurro dal *Lucilio*. La vernice nuova brillava, bianca e azzurra. Il nome sulla fiancata, a lettere nere, l'avevano ridipinto anche quello.
+Sul molo, seduto sulla bitta con il thermos fra le ginocchia, c'era Elio.
 
-«Mi dai una mano?» disse Stefano. «Io spingo, tu…»
+«Non dica niente» disse Elio, prima che Stefano aprisse bocca. «Il cardiologo ha detto camminare. Ho camminato. Trecento metri, con due soste. Rosa lo sa e mi ha dato il permesso, a condizione che non spinga niente.»
 
-Si fermò. Gli era venuta in mente la frase di un anno prima, quella di Elio. *Lei fuma, io spingo. Facciamo a cambio.* Non fumava più da trentasette giorni. Il Centro Antifumo di Vallo, le compresse, le righe sul minuto prima, il pacchetto lasciato in macchina, tre ricadute, trentasette giorni. Non sapeva se sarebbe durata. Forse.
+«Allora spingiamo noi.»
+
+Tolsero insieme il telo azzurro dal *Lucilio*. Gino, a luglio, l'aveva portato al cantiere di Sapri a ridipingere, e la vernice nuova brillava, bianca e azzurra. Il nome sulla fiancata, a lettere nere, l'avevano rifatto anche quello.
+
+«Mi dai una mano?» disse Stefano a Matteo. «Io spingo, tu…»
+
+Si fermò. Gli era venuta in mente la frase di un anno prima. *Lei fuma, io spingo. Facciamo a cambio.* Non fumava da trentasette giorni. Il Centro Antifumo di Vallo, le compresse, le righe sul minuto prima, il pacchetto lasciato in macchina, tre ricadute, trentasette giorni. Non sapeva se sarebbe durata. Forse.
 
 «Tu spingi, io spingo» disse. «Insieme.»
 
-Spinsero. Lo scafo prese il mare con un risucchio.
+Spinsero. Lo scafo prese il mare con un risucchio. Elio, dalla bitta, applaudì piano.
 
 ---
 
-Non uscirono. Rimasero seduti sul *Lucilio* ormeggiato, con le gambe sul bordo, a guardare il sole che saliva dietro le montagne della Basilicata. Il golfo era liscio come un tavolo. Stefano aveva portato il thermos, e versò il caffè in due bicchierini di plastica.
+Lo aiutarono a salire, piano, uno da una parte e uno dall'altra. Stefano prese il timone, per la prima volta. Il motore partì al secondo colpo, con lo stesso rumore regolare di un anno prima. Uscirono dalla darsena a passo d'uomo e si fermarono poco fuori, dove il golfo era liscio come un tavolo, con il sole che saliva dietro le montagne della Basilicata.
 
-Matteo lo prese, e per un po' non disse niente.
+Elio versò il caffè in tre bicchierini di plastica. A Matteo ne diede metà.
 
-«Pa'» disse poi. «Me lo dai un quaderno?»
+«Sei quello della chitarra» disse. «Com'è finito il pezzo?»
+
+«Con tre accordi che tornano all'inizio e poi si aprono» disse Matteo. «Glielo suono, una volta.»
+
+«Il primo giovedì di settembre. Al bar. C'è un angolo dove nessuno ti guarda.»
+
+Matteo rise. Poi rimase in silenzio per un po', con il bicchierino in mano, guardando l'acqua.
+
+«Pa'» disse alla fine. «Me lo dai un quaderno?»
 
 Stefano lo guardò.
 
 «Uno dei tuoi. Di quelli neri.» Matteo guardava l'acqua. «Non per il metodo. Cioè, sì. Ma non perché me lo dici tu.» Si strinse nelle spalle. «È che ti ho visto. Tutto l'anno.»
 
-Stefano aveva un taccuino nuovo nella tasca della giacca. Ne portava sempre uno di riserva, da quando aveva cominciato a regalarli. Glielo diede, con una penna.
+Stefano aveva un taccuino nuovo nella tasca della giacca. Ne portava sempre uno di riserva, da quando aveva cominciato a regalarli. Glielo diede, con una penna. Elio, a poppa, finse di guardare il faro.
 
-Matteo lo aprì alla prima pagina. Scrisse la data. Poi rimase con la penna sospesa sopra la carta, come suo padre, un anno prima, nella stanza col poster della moto.
+Matteo lo aprì alla prima pagina. Scrisse la data. Poi rimase con la penna sospesa sopra la carta, come suo padre un anno prima, nella stanza con il poster della moto.
 
 «Che cosa scrivo?»
 
@@ -5820,23 +5836,27 @@ Matteo chiuse il taccuino e se lo mise in tasca.
 
 ---
 
-Stefano guardò il golfo. Pensò a Seneca, alla prima delle sue lettere a Lucilio, quella che Elio gli aveva letto una mattina di luglio, dalla sdraio, con la voce già stanca. *Rivendica te stesso a te stesso. E il tempo che finora ti veniva portato via, o sottratto, o ti sfuggiva, raccoglilo e custodiscilo.*
+Stefano guardò il golfo. Pensò a Seneca, alla prima delle sue lettere a Lucilio, quella che Elio gli aveva letto una mattina di luglio, dalla sdraio, con la voce ancora stanca. *Rivendica te stesso a te stesso. E il tempo che finora ti veniva portato via, o sottratto, o ti sfuggiva, raccoglilo e custodiscilo.*
 
 Pensò che un anno prima, su quel molo, era un uomo a cui il tempo veniva portato via. Da una banca, da un telefono, da un gruppo di quarantadue persone che si mandavano il buongiorno. Da se stesso, soprattutto. E che adesso non era diventato un altro uomo. Era lo stesso, solo che finalmente si abitava. Non sprecava più i giorni. Non perché ogni giorno fosse memorabile: la maggior parte non lo era, e andava bene così. Ma perché ogni giorno era suo, e nessuno gliene avrebbe restituito uno.
+
+O forse sì, pensò guardando Elio a poppa, con il berretto calato sugli occhi e il bicchierino vuoto in mano. Qualche volta qualcuno te ne restituisce. E allora non li sprechi.
 
 Pensò al bracciale d'oro che teneva nel cassetto del comodino, a Policastro, e alle tre proprietà dell'oro. Non arrugginisce. Non perde valore quando circola. Si lascia lavorare.
 
 Oro da spendere. Oggi.
 
-Tirò fuori il suo taccuino. Rilesse la riga della sera prima. Poi scrisse la riga del mattino, in piedi sulla barca di un uomo che non c'era più e che non se n'era andato davvero.
+Tirò fuori il suo taccuino. Rilesse la riga della sera prima. Poi scrisse la riga del mattino, in piedi al timone di una barca che non era più di nessuno e quindi era di tutti.
 
 *insegnare a Matteo il nodo del nonno. quello per la cima.*
 
-Lo insegnò. Matteo lo sbagliò quattro volte. Alla quinta gli riuscì.
+Lo insegnò, quando rientrarono, sotto gli occhi di Elio che dalla bitta correggeva a voce la posizione delle dita. Matteo lo sbagliò quattro volte. Alla quinta gli riuscì.
+
+«Bravo» disse Elio. «Adesso insegnalo a qualcun altro. Così non te lo scordi più.»
 
 ---
 
-Questa è la storia dell'anno in cui Stefano Russo imparò a leggere la propria vita. Non è finita, perché le vite non finiscono quando finiscono i libri. Domattina Stefano scriverà un'altra riga, e domani sera un'altra ancora, e la settimana prossima rileggerà le quattordici righe cercando la parola che torna. Qualche volta salterà dei giorni, e ricomincerà senza recuperare niente. Il primo giovedì di settembre condurrà di nuovo la comunità pensante nel retro del Bar Approdo, e ci sarà qualcuno di nuovo, perché c'è sempre qualcuno di nuovo.
+Questa è la storia dell'anno in cui Stefano Russo imparò a leggere la propria vita. Non è finita, perché le vite non finiscono quando finiscono i libri. Domattina Stefano scriverà un'altra riga, e domani sera un'altra ancora, e la settimana prossima rileggerà le quattordici righe cercando la parola che torna. Qualche volta salterà dei giorni, e ricomincerà senza recuperare niente. Il primo giovedì di settembre condurrà di nuovo la comunità pensante nel retro del Bar Approdo. Nell'angolo ci sarà Elio, con la camomilla, che ascolta. Matteo suonerà il suo pezzo. E ci sarà qualcuno di nuovo, perché c'è sempre qualcuno di nuovo.
 
 E tu che hai letto fin qui, adesso, puoi fare una cosa sola.
 
