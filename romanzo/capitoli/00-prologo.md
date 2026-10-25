@@ -1,119 +1,21 @@
-## Prologo — Un grimaldello per le porte chiuse
+## Prologo — Lettera al lettore
 
-«Per quanto numerosi siano i casi di cigni bianchi che possiamo aver osservato, ciò non giustifica la conclusione che tutti i cigni sono bianchi.»
+Caro lettore,
 
-— Karl Popper, *Logica della scoperta scientifica* (*Logik der Forschung*, 1934), sezione 1
+prima che cominci a leggere, voglio chiederti una cosa sola. Te la chiedo adesso perché tutto il resto dipende da questa: **sii onesto**. Non con me, con te stesso.
 
----
+Se una persona va dal medico con un’ulcera e gli dice di avere un po’ di mal di stomaco, riceverà una cura per il mal di stomaco. E l’ulcera continuerà a scavare. Questo libro funziona allo stesso modo: ti darà risposte precise quanto saranno precise le domande che gli farai. Ci torneremo nel capitolo 4 ma volevo che fosse anche la prima cosa che ci diciamo affinché tu non investa male il tuo tempo.
 
-Il martedì in cui finì tutto, Stefano Arcuri si svegliò alle sei e quaranta, come ogni martedì da ventidue anni.
+Ho scritto queste pagine perché credo nella logica kaizen del miglioramento continuo, fatto di piccoli passi costanti. Per questo, molti anni fa, ho avviato il progetto [miglioramento.com](http://miglioramento.com) e oggi dedico parte del mio tempo a descrivere, perfezionale e divulgare metodi per risolvere problemi e per allenare il pensiero critico con il metodo scientifico: sono le strategie che trovi nei libri della collana APPO. Ogni volta che mi è possibile faccio formazione dal vivo, e questo libro è la prosecuzione di quella stessa scelta quando non posso raggiungere le persone in presenza.
 
-Fece la doccia, si annodò la cravatta blu, quella che Giulia diceva che lo faceva sembrare più giovane, e scese a prendere il caffè al bar sotto casa, a Pastena. Il barista gli chiese della Salernitana, lui rispose qualcosa sulla difesa, e mentre aspettava lo scontrino accese la prima sigaretta della giornata. Era la stessa sigaretta da trent'anni: quella che aveva giurato di lasciare già tre volte.
+Spero di incontrarti un giorno in una delle comunità pensanti APPO, i piccoli gruppi di persone che praticano il metodo insieme e di cui ti parlerò nel capitolo 15\. Mi auguro che ne nasca presto una anche nella tua zona, se non esiste già, e che un giorno tu possa raccontarmi i tuoi progressi.
 
-In filiale arrivò alle otto e dieci. Il cassiere stava alzando le serrande, la signora delle pulizie aveva lasciato le finestre aperte e nell'aria c'era odore di detersivo e di carta. Sulla scrivania lo aspettava una mail del dottor Ferri, il direttore d'area. Due righe: *Ti aspetto alle 9.30 in sede. Porta con te il prospetto del trimestre.*
+Credo che la vita sia troppo breve per non viverla pienamente e che ogni strumento che ci avvicina a questo scopo merita di essere prima esplorato e poi usato, se lo si ritiene valido ed etico. Ti chiedo di trattare così anche questo libro: mettilo alla prova, e tieni nella tua vita solo ciò che funziona meglio per te.
 
-Il prospetto del trimestre era buono. Stefano lo stampò lo stesso, lo infilò in una cartellina e pensò che forse, finalmente, si parlava della filiale di Battipaglia, quella che gli avevano promesso da due anni.
+Ci saranno sere in cui il metodo APPO ti sembrerà inutile, o troppo semplice per ciò che stai attraversando. In quelle sere torna a questa pagina, rileggi la metafora dell’ulcera, e scrivi soltanto la riga di testo della sera che descrive il tuo stato emotivo. Il resto può aspettare domani.
 
-Alle nove e quarantadue, nell'ufficio al sesto piano, il dottor Ferri non aprì nemmeno la cartellina.
+Grazie per il tempo che dedicherai a scoprire questo modo nuovo di vivere la relazione con te stesso e con gli altri. Se impari a risolvere problemi con una strategia semplice ed efficace puoi aiutare anche persone deboli intorno a te meglio di quanto tu abbia potuto mai immaginare.
 
-Gli parlò di un'aggregazione, di un grande gruppo che aveva rilevato la banca, di sinergie e di una rete territoriale da razionalizzare. Usò la parola «efficientamento» tre volte. Gli spiegò che la filiale di Pastena avrebbe chiuso a fine giugno, che i clienti sarebbero stati trasferiti su una filiale digitale, e che per le figure come la sua c'era un accordo sindacale, un incentivo all'uscita, un percorso di accompagnamento. Disse proprio così: figure come la sua.
+Con gratitudine e fiducia,
 
-«Stefano, credimi, è una decisione che viene da molto in alto.»
-
-Stefano annuì. Non disse niente di intelligente, e nemmeno niente di stupido. Annuì e basta, come si annuisce dal medico quando si sta ascoltando una parola che non si conosce. Poi uscì, prese l'ascensore, attraversò l'atrio di marmo, e soltanto in strada, con la cartellina ancora sotto il braccio, si accorse che stava tremando.
-
----
-
-Per ventidue anni aveva visto soltanto cigni bianchi.
-
-Questa frase gliela avrebbe detta qualcuno molti mesi dopo, ma il fenomeno lo conosceva già, senza il nome. Per ventidue anni la sua vita aveva funzionato. Mai una giornata da fuoriclasse, d'accordo, ma tutte uguali e tutte sue: la sveglia, il caffè, la filiale, le pratiche, la cena con Giulia e Matteo, la partita la domenica. Ogni giorno che passava gli dava un'altra conferma, e mille conferme gli erano sembrate una prova. Il mondo era fatto così, e sarebbe rimasto fatto così.
-
-Poi era bastato un ufficio al sesto piano, e quella certezza si era sgretolata come succede alle cose che sembrano eterne e non lo sono.
-
-Tornò a casa a piedi, cosa che non faceva mai. Passò davanti alla filiale e non entrò. Fumò quattro sigarette in quaranta minuti. A casa non c'era nessuno: Giulia era a scuola, Matteo anche. Stefano si sedette sul divano con la giacca addosso e rimase lì.
-
-I mobili erano al loro posto. Le tazze erano nella credenza, la foto delle vacanze in Calabria era sulla mensola, il telecomando sul bracciolo. Eppure Stefano si guardava intorno come un ospite. Quella casa la conosceva così bene che ci avrebbe camminato al buio senza urtare niente, e adesso non la riconosceva. Non era cambiata la casa. Era cambiato lui, dentro la casa.
-
-Alle due tornò Matteo, gli disse «ciao» senza togliersi le cuffie e si chiuse in camera. Alle quattro tornò Giulia. Gli bastò guardarlo.
-
-«Che è successo?»
-
-Stefano provò a raccontarlo con le parole di Ferri, e gli uscirono male. Giulia si sedette accanto a lui, gli prese la mano e non disse frasi di circostanza, che era la cosa che Stefano amava di più di lei. Dopo un po' disse soltanto: «Ce la faremo». E poi, più piano: «Però tu adesso devi dormire».
-
-Non dormì.
-
----
-
-Nei giorni seguenti scoprì una cosa che nessuno gli aveva mai detto: il dolore non era il problema più grande. Il problema più grande era che non sapeva che cosa fare.
-
-Aveva quarantotto anni e sapeva fare molte cose. Sapeva leggere un bilancio in dieci minuti, capire da come un cliente stringeva la mano se avrebbe pagato le rate, calmare un pensionato furioso per una commissione. Ma nessuno gli aveva mai insegnato come si decide quando si ha paura. Come si ricomincia quando tutto è fermo. Come si distingue l'ostacolo vero da quello che ci si racconta per comodità. A scuola aveva imparato le equazioni e il latino; all'università la matematica finanziaria; in banca le procedure antiriciclaggio. Su questo, niente.
-
-E allora improvvisava.
-
-Il mercoledì scrisse un messaggio lunghissimo al gruppo degli ex colleghi, poi lo cancellò. Il giovedì aggiornò il curriculum e lo mandò a sei società senza nemmeno guardare che cosa cercassero. Il venerdì litigò con Matteo per il volume della chitarra, e gli disse una frase che non gli apparteneva e che gli rimase in gola per tutta la sera. Il sabato rispose male a sua suocera al telefono. La domenica fumò più di un pacchetto.
-
-Non era cattivo, Stefano. Era un uomo che si era trovato in mare aperto senza aver mai imparato a nuotare, e che si agitava. E chi si agita in mare aperto, lo sanno tutti, fa del male prima di tutto a sé e poi a chi gli sta vicino.
-
-Il lunedì sera, a cena, Giulia posò la forchetta.
-
-«Perché non vai qualche settimana da tuo padre?»
-
-Stefano alzò gli occhi dal piatto.
-
-«Non sto scappando» disse, prima ancora che lei avesse finito.
-
-«Nessuno ha detto che scappi. Tuo padre è solo da quattro anni, lo senti una volta al mese. Tu qui giri per casa come un leone in gabbia. Fino a fine giugno sei ancora in ferie forzate, no? Vai giù. Respira. Pensa. Matteo finisce la scuola e a luglio vi raggiungiamo.»
-
-Matteo, dall'altro capo del tavolo, non disse niente. Ma per un istante guardò suo padre senza le cuffie, ed era la prima volta in una settimana.
-
----
-
-Partì il giovedì mattina, con la Golf grigia e due borse.
-
-L'autostrada fino a Battipaglia la conosceva a memoria; poi la statale per il Cilento, i tornanti, il mare che compariva e spariva fra gli ulivi. A Sapri, il Golfo di Policastro si aprì tutto insieme, azzurro e immobile, con le montagne della Basilicata e della Calabria che lo chiudevano come le mani di qualcuno che tiene un po' d'acqua. Poi la strada lasciò il mare e salì per tornanti fra gli ulivi, e a ogni curva il golfo tornava a comparire, più in basso e più grande. Stefano abbassò il finestrino. L'aria sapeva di sale e di fieno. Si accorse che non accendeva una sigaretta da un'ora, e la accese.
-
-Torraca gli venne incontro all'ultima curva come l'aveva lasciata trent'anni prima: un grumo di case di pietra aggrappate al costone, i tetti di coppi scuriti dal tempo, il campanile che spuntava sopra i comignoli. Il paese guardava il golfo dall'alto, come un vecchio seduto sul balcone. I vicoli erano stretti e in salita, lastricati di pietra consumata, con le scale che si infilavano fra un muro e l'altro e i gerani rossi nei barattoli di latta sui davanzali. Da ogni slargo, all'improvviso, si apriva il mare: Sapri giù in fondo, le barche come briciole bianche nel porto, e dall'altra parte del golfo, sulla montagna di Maratea, la statua del Cristo con le braccia aperte, piccola come un'idea. Odorava di legna, di basilico e di ragù della domenica, anche se era giovedì.
-
-A Torraca, in cima alla salita, suo padre lo aspettava sul portone, in canottiera, appoggiato al bastone che si rifiutava di chiamare bastone. Antonio Arcuri aveva settantanove anni, mani da falegname e la stessa faccia di quando Stefano era bambino, solo più asciutta. Lo abbracciò senza dire niente, poi gli diede una pacca sulla spalla, una sola.
-
-«Hai fatto bene a venire.»
-
-Non chiese niente della banca. Stefano non sapeva se Giulia gli avesse già raccontato tutto o se suo padre, semplicemente, sapeva aspettare.
-
-La porta della cantina, quella dove Antonio teneva gli attrezzi e il vino, non si apriva. La chiave girava a vuoto dentro la serratura arrugginita. Stefano ci provò tre volte, poi spinse con la spalla, poi diede un calcio. Niente.
-
-«Lascia» disse suo padre.
-
-Tornò dalla cucina con un ferretto sottile, piegato in punta, con un manico di legno consumato. Lo infilò nella serratura, lo mosse appena, con la delicatezza con cui si tocca un animale che dorme. La serratura scattò.
-
-«Che cos'è?»
-
-«Un grimaldello. L'ho fatto io, quarant'anni fa.» Antonio se lo rigirò fra le dita. «Non è la chiave giusta per questa porta. Non è la chiave giusta per nessuna porta. Però funziona su quasi tutte.»
-
-Stefano rimase a guardarlo. Davanti a una porta chiusa, chi non ha niente in mano può solo spingere, o sedersi ad aspettare che qualcuno gliela apra. Lui, nell'ultima settimana, aveva spinto con la spalla e dato calci. E la porta era rimasta chiusa.
-
-Quella notte, nella sua vecchia stanza di ragazzo, con il letto troppo corto e il poster sbiadito di una moto sulla parete, Stefano pensò a una cosa che non si era mai chiesto in quarantotto anni. Non che cosa gli fosse successo: quello lo sapeva fin troppo bene. Ma che cosa aveva in mano, adesso, per affrontarlo.
-
-Gli venne una risposta precisa, e lo spaventò più del licenziamento.
-
-Niente. Non aveva niente in mano.
-
-Non gli mancava la forza di volontà, che in fondo per ventidue anni non gli era mai mancata. Non gli mancava il carattere. Gli mancavano le competenze, quelle per orientarsi in un mondo che era cambiato mentre lui guardava i prospetti trimestrali. E le competenze, a differenza del carattere, si possono imparare. Ma lui non sapeva da chi.
-
----
-
-Questo è il racconto dell'anno in cui Stefano Arcuri imparò a leggere la propria vita.
-
-Non è la storia di un uomo che diventa ricco, e nemmeno di uno che cambia tutto in trenta giorni. Nessuno, in queste pagine, si carica a comando o scopre di poter fare qualunque cosa. Ci saranno giornate storte, settimane da tre su dieci, periodi in cui Stefano mollerà. Ci saranno medici e professionisti, quando serviranno, perché certe porte non si aprono con nessun grimaldello.
-
-È la storia di un minuto al giorno. Trenta secondi la mattina, trenta la sera. Una riga scritta prima di guardare il telefono e una prima di dormire, su un quaderno qualunque. E di quattro parole che Stefano, quella notte, non conosceva ancora, e che fra poche settimane gli sarebbero sembrate di conoscerle da sempre: **Aspirazione, Problema, Progetto, Opportunità**. APPO.
-
-È la storia di un uomo che, quando arrivò il suo cigno nero, scoprì che la vita che aveva non l'aveva mai guardata davvero. Le cose che teniamo in mano tutti i giorni diventano invisibili proprio perché le maneggiamo sempre, e torniamo a vederle soltanto nell'istante in cui stanno per sfuggirci. C'è una crudeltà gentile in questo.
-
-E se tu che leggi non stai attraversando nessun cigno nero, se hai in mano questo libro in un periodo tranquillo, tanto meglio. È il momento migliore per imparare a nuotare: prima di trovarti in mare aperto.
-
-Tieni accanto un quaderno, mentre leggi. Non serve che sia bello: serve che sia tuo. Ogni tanto Stefano si fermerà a rispondere a una domanda, e potrai rispondere anche tu. È in quei momenti che la storia smette di essere la sua e comincia a essere un po' tua.
-
-Prima di spegnere la luce, quella notte, Stefano trovò nel cassetto del comodino un vecchio quaderno a quadretti di quando faceva il liceo, con soltanto le prime tre pagine scritte: esercizi di trigonometria. Lo aprì alla quarta. Non sapeva che cosa scriverci, e lo richiuse.
-
-Fuori, il golfo era nero e il faro sul promontorio girava piano, sempre nello stesso punto.
+Marco Costanzo

@@ -1,4 +1,4 @@
-### Prefazione — Un grimaldello per le porte chiuse
+### Capitolo 1 — Un grimaldello per le porte chiuse
 
 **I concetti chiave**
 
@@ -18,7 +18,7 @@ Questo libro è un grimaldello: non la chiave perfetta per una sola serratura, m
 
 Prendi il quaderno che userai per tutto il percorso. Sulla prima pagina scrivi la data di oggi e completa questa frase: «Ho deciso di imparare a leggere la mia vita perché…». Non cercare parole belle: cerca parole vere. Stasera, prima di dormire, scrivi sotto una sola riga per rispondere a questa domanda: «Che cosa mi ha rallentato, oggi?». È la prima riga del tuo metodo.
 
-### Capitolo 1 — Il giorno in cui arriva il cigno nero
+### Capitolo 2 — Il giorno in cui arriva il cigno nero
 
 **I concetti chiave**
 
@@ -39,7 +39,7 @@ I cigni neri sono eventi rari, difficili da prevedere, che scombinano ogni piano
 
 Per sette giorni scrivi due righe sul quaderno: la sera, *che cosa mi ha ostacolato, oggi?*; la mattina, prima di guardare il telefono, la cosa più importante che vuoi vedere realizzata entro sera. Poi rileggi le quattordici righe tutte insieme e sottolinea la parola o il tema che torna più spesso. Scrivilo in cima a una pagina nuova: è il tuo primo punto di lavoro.
 
-### Capitolo 2 — Un libro per leggere la tua vita
+### Capitolo 3 — Un libro per leggere la tua vita
 
 **I concetti chiave**
 
@@ -59,7 +59,7 @@ La frase che lo riassume, imparare a leggere la propria vita a partire da oggi c
 
 Sul quaderno, apri una pagina con il titolo «Il mio programma di studi». Scrivi tre competenze che avresti voluto imparare da ragazzo e che nessuno ti ha insegnato, per esempio dire di no senza sentirti in colpa. Accanto a ciascuna, annota una situazione della prossima settimana in cui potresti allenarla. Non serve riuscirci al primo tentativo: serve accorgerti del momento in cui quella situazione arriva.
 
-### Capitolo 3 — Il porto lo scegli tu
+### Capitolo 4 — Il porto lo scegli tu
 
 **I concetti chiave**
 
@@ -80,7 +80,7 @@ Il patto ha due condizioni. La prima è l’onestà, intesa come strumento tecni
 
 Sul quaderno, scrivi in alto la frase con cui di solito descrivi il problema che ti pesa di più in questo periodo, esattamente come la diresti a un amico. Sotto, riscrivila tre volte, togliendo ogni volta un elemento di comodo: prima ciò che non dipende da te, poi ciò che ti fa fare bella figura, infine ciò che ti protegge dalla paura. Confronta la prima frase con l’ultima. La differenza fra le due è la misura dell’ulcera che stavi chiamando mal di stomaco.
 
-### Capitolo 4 — La bugia del «non ho tempo»
+### Capitolo 5 — La bugia del «non ho tempo»
 
 **I concetti chiave**
 
@@ -101,7 +101,7 @@ Il cronotipo è in buona parte biologico (Jones e colleghi, 2019), e forzarlo pr
 
 Per tre sere annota sul quaderno i minuti passati sul telefono senza uno scopo; molti telefoni li contano da soli. Il quarto giorno scegli un momento che si ripete ogni giorno, il caffè, il parcheggio, la luce che si spegne, e scrivi la tua intenzione nella forma «Dopo il…, scrivo la mia riga». Poi apri il calendario della prossima settimana e segna, prima di qualsiasi altro impegno, trenta minuti per te. Difendili come un appuntamento dal medico.
 
-### Capitolo 5 — Il metodo APPO 2.0, spiegato da zero
+### Capitolo 6 — Il metodo APPO 2.0, spiegato da zero
 
 **I concetti chiave**
 
@@ -122,7 +122,7 @@ La domanda del mattino originale era più complessa; quella della sera chiedeva 
 
 Domani mattina, prima di qualsiasi altra cosa, percorri sul quaderno i quattro passaggi del capitolo, una riga per ciascuno: Aspirazione, Problema, Progetto, Opportunità. Rileggi la riga del Problema: se il soggetto è un’altra persona, riscrivila. La sera, accanto alle quattro righe, scrivi soltanto se la mossa del Progetto l’hai fatta, e che cosa si è aperto, se si è aperto qualcosa. Non giudicare il risultato: osservalo.
 
-### Capitolo 6 — La collana dei giorni e il QuDiVi
+### Capitolo 7 — La collana dei giorni e il QuDiVi
 
 **I concetti chiave**
 
@@ -142,7 +142,7 @@ Il QuDiVi misura la qualità della giornata, non la quantità di cose fatte: una
 
 Per sette sere, prima della riga della sera, scrivi sul quaderno il QuDiVi della giornata. Accanto, tra parentesi, annota quante ore hai lavorato o quante cose hai spuntato dalla lista. Alla fine della settimana confronta le due colonne e chiediti: i giorni più pieni sono stati anche quelli con il voto più alto? Scrivi in due righe che cosa hai scoperto.
 
-### Capitolo 7 — Il giorno in cui smetterai
+### Capitolo 8 — Il giorno in cui smetterai
 
 **I concetti chiave**
 
@@ -163,7 +163,7 @@ Il protocollo di rientro ha tre regole: non recuperare niente, ripartire oggi e 
 
 Oggi stesso scegli il tuo appiglio esterno e preparalo: imposta un promemoria alla stessa ora, oppure attacca un foglietto dove prepari il caffè. Poi scrivi un messaggio alla persona che hai scelto: «Per due settimane scriverò due righe al giorno. Ogni tanto chiedimi se lo sto facendo». Annota sul quaderno la data in cui l’hai mandato. Fra due settimane rileggi questa pagina e scrivi accanto quante righe hai saltato e se il messaggio ti ha aiutato a ritornare sui tuoi passi.
 
-### Capitolo 8 — La riga APPO del mattino
+### Capitolo 9 — La riga APPO del mattino
 
 **I concetti chiave**
 
@@ -184,7 +184,7 @@ Il metodo non giudica la grandezza dell’aspirazione, ma quanto ti sta a cuore.
 
 Per cinque mattine, prima di guardare il telefono, rileggi la riga della sera precedente e poi scrivi la riga del mattino. La sera, accanto a ciascuna, metti un segno: pieno se la tua aspirazione è stata realizzata, vuoto se non lo è stata, e una lettera E se non lo è stata per una causa esterna. Al quinto giorno conta i segni. Guarda quante volte la giornata è stata decisa dall'esterno e quante volte ne hai preso tu il controllo.
 
-### Capitolo 9 — La riga della sera
+### Capitolo 10 — La riga della sera
 
 **I concetti chiave**
 
@@ -205,7 +205,7 @@ Scrivere ogni sera un piccolo impegno con sé stessi sfrutta il principio di coe
 
 Per due settimane usa le due versioni della domanda della sera, una settimana ciascuna, sempre alla stessa ora. Alla fine della seconda settimana rileggi le quattordici righe, dividile in due colonne e chiediti a quale domanda hai risposto con meno fatica e con più precisione. Scrivi la tua scelta sulla prima pagina del quaderno, con la data. Da quel giorno, tieni quella.
 
-### Capitolo 10 — Il QuDiVi: un contatore meraviglioso delle tue giornate
+### Capitolo 11 — Il QuDiVi: un contatore meraviglioso delle tue giornate
 
 **I concetti chiave**
 
@@ -226,7 +226,7 @@ Lo studio di Kahneman e colleghi (2004) su 909 lavoratrici del Texas mostrò che
 
 Per quattro settimane assegna ogni sera il QuDiVi prima della riga della sera, senza mai correggerlo. Ogni domenica calcola la media dei sette voti e scrivila accanto alla data. Alla fine del mese, guarda i giorni con i voti più alti e quelli con i voti più bassi, e annota accanto a ciascun gruppo che cosa avevano in comune: giorni della settimana, attività, persone. È la tua prima classifica personale.
 
-### Capitolo 11 — Due righe bastano?
+### Capitolo 12 — Due righe bastano?
 
 **I concetti chiave**
 
@@ -247,7 +247,7 @@ Nei giorni senza tempo basta una parola, per non interrompere la sequenza. La ri
 
 Prepara oggi la tua scheda definitiva. Se usi la carta, scegli un taccuino tascabile e traccia sulla prima pagina la struttura: una riga in alto, una in basso, uno spazio per il numero. Se usi il telefono, crea una nota protetta con lo stesso schema e mettila fra le prime schermate. Poi rifai l’esercizio della settimana a memoria e conserva il foglio: fra sette giorni confrontalo con le righe che avrai scritto nel frattempo.
 
-### Capitolo 12 — Il rito di amarsi
+### Capitolo 13 — Il rito di amarsi
 
 **I concetti chiave**
 
@@ -268,7 +268,7 @@ Se la media resta ferma per settimane, la causa è quasi sempre un problema di c
 
 Questa settimana fai il tuo primo rito di amarsi, completo. Rileggi, sottolinea a matita, calcola la media e scrivila accanto alla data. Poi scrivi l’esperimento nella forma «Questa settimana, quando…, farò…». Infine scrivi la riga di grazie, con un nome e un fatto, e trova un momento, entro tre giorni, per ringraziare direttamente quella persona . Annota sul quaderno come ha reagito.
 
-### Capitolo 13 — Guardare la marea, non l’onda
+### Capitolo 14 — Guardare la marea, non l’onda
 
 **I concetti chiave**
 
@@ -289,7 +289,7 @@ Un obiettivo specifico funziona molto meglio se accompagnato da un riscontro reg
 
 Scegli oggi la data del tuo primo momento mensile e segnala in calendario. Quel giorno, rileggi gli appunti dei riti settimanali e rispondi sul quaderno alle tre domande, una riga ciascuna, poi alle due annotazioni sugli imprevisti. Chiudi scrivendo una sola frase: «Il mese prossimo cambio…», scegliendo se cambiare l’Aspirazione, il Problema o il Progetto. Se non serve cambiare niente, scrivilo: anche questo è un dato.
 
-### Capitolo 14 — Un bracciale d’oro in bigiotteria
+### Capitolo 15 — Un bracciale d’oro in bigiotteria
 
 **I concetti chiave**
 
@@ -310,7 +310,7 @@ Le reazioni a una buona notizia sono quattro, e soltanto quella che si illumina 
 
 Sul quaderno, apri una pagina con due colonne. A sinistra scrivi le persone con cui hai passato più tempo nell’ultima settimana, di persona o al telefono; a destra, accanto a ciascuna, la reazione che ha avuto l’ultima volta che le hai raccontato una cosa bella, usando le quattro risposte del capitolo. Non tagliare nessuno. Scegli soltanto la persona che si è illuminata e raccontale, entro sette giorni, il primo piccolo risultato che ti darà il metodo.
 
-### Capitolo 15 — La domanda che non se ne va
+### Capitolo 16 — La domanda che non se ne va
 
 **I concetti chiave**
 
@@ -330,7 +330,7 @@ Il senso non è un premio in fondo al percorso, ma sta nel modo in cui si attrav
 
 Sul quaderno, scrivi in cima a una pagina la domanda di questo capitolo: «Come faccio a non sprecare nemmeno un giorno del tempo che mi resta?». Sotto, rispondi soltanto per domani, con una riga per ciascuna delle quattro parole del metodo. Domani sera rileggi la pagina e annota se, almeno per un’ora, la giornata è andata nella direzione che avevi scritto.
 
-### Capitolo 16 — Una dichiarazione d’amore
+### Capitolo 17 — Una dichiarazione d’amore
 
 **I concetti chiave**
 
@@ -350,7 +350,7 @@ L’efficacia è fare le cose giuste, l’efficienza è farle nel modo giusto (D
 
 Sul quaderno, dividi una pagina in due colonne con i titoli «Dipende da me» e «Non dipende da me». Scrivi nelle colonne le cinque preoccupazioni che ti occupano di più la mente in questo periodo. Poi, per ogni voce della prima colonna, scrivi accanto la mossa più piccola che potresti fare entro tre giorni, e scegline una per la riga del mattino di domani.
 
-### Capitolo 17 — La consapevolezza evapora alle nove e mezza
+### Capitolo 18 — La consapevolezza evapora alle nove e mezza
 
 **I concetti chiave**
 
@@ -371,7 +371,7 @@ Sapere non basta: senza uno strumento che sopravviva alla giornata reale, la con
 
 Scegli una relazione importante che stai trascurando, una persona che conta per te e che senti troppo poco. Per i prossimi sette giorni, almeno tre mattine, scrivi come riga del mattino un gesto concreto verso di lei: una telefonata, un messaggio vero, un caffè insieme. La sera, nel QuDiVi, osserva se le giornate in cui hai fatto quel gesto hanno avuto un voto diverso dalle altre.
 
-### Capitolo 18 — Una testa antica in un mondo nuovo
+### Capitolo 19 — Una testa antica in un mondo nuovo
 
 **I concetti chiave**
 
@@ -392,7 +392,7 @@ Il quadrato di Cipolla (*Allegro ma non troppo*, 1988\) incrocia il vantaggio o 
 
 Per una settimana, ogni sera, aggiungi alla riga della sera una lettera: I, B, S oppure St, a seconda della casella del quadrato di Cipolla in cui è finita l’azione più significativa della giornata. Non giudicarti: annota soltanto. Alla fine della settimana conta le lettere e cerca, accanto alle azioni finite nella casella stupida, il momento in cui hai reagito d’impulso. Scrivi quale segnale del corpo lo ha preceduto.
 
-### Capitolo 19 — L’uomo che aspettò qualche minuto
+### Capitolo 20 — L’uomo che aspettò qualche minuto
 
 **I concetti chiave**
 
@@ -413,7 +413,7 @@ Il 26 settembre 1983 Stanislav Petrov mise qualche minuto fra un falso allarme n
 
 Pensa a una situazione che ti aspetta questa settimana e che temi possa farti reagire d’impulso: una riunione, una telefonata, una conversazione in famiglia. Oggi, a freddo, quando non ti costa niente, scrivi sul quaderno le tue risposte alle quattro domande per quella situazione. Il giorno in cui accadrà, rileggile prima di entrare. La sera, nella riga della sera, annota se e quando ti sono servite.
 
-### Capitolo 20 — La batteria della volontà
+### Capitolo 21 — La batteria della volontà
 
 **I concetti chiave**
 
@@ -434,7 +434,7 @@ Per questo il metodo è tarato sul giorno peggiore e chiede di avere bisogno di 
 
 Guarda la prossima settimana e scegli la più difficile delle prossime quattro. Segnala sul calendario con la scritta «settimana di prova». Per quei sette giorni non aggiungere niente al metodo: soltanto le due righe e il QuDiVi, agganciati sempre agli stessi due momenti. Alla fine della settimana rileggi tutto e scrivi in tre righe che cosa ha funzionato anche a batteria scarica, e che cosa no.
 
-### Capitolo 21 — L’unico mestiere che non puoi delegare
+### Capitolo 22 — L’unico mestiere che non puoi delegare
 
 **I concetti chiave**
 
@@ -454,7 +454,7 @@ Le situazioni in cui serve sono molte, dal lavoro in proprio alla pensione, dai 
 
 Sul quaderno, scrivi la situazione dell’elenco in cui ti riconosci di più e, sotto, le quattro parole del metodo applicate a quella situazione: dove vuoi arrivare, qual è l’ostacolo vero, qual è la mossa più piccola, che cosa si potrebbe aprire. Poi scegli una sola riparazione della tua officina, piccola e concreta, e scrivila come riga del mattino di domani.
 
-### Capitolo 22 — Un armadio pieno di chiavi
+### Capitolo 23 — Un armadio pieno di chiavi
 
 **I concetti chiave**
 
@@ -474,7 +474,7 @@ APPO è costruito come un grimaldello: lavora sul meccanismo comune a tutte le p
 
 Sul quaderno, elenca i metodi, le applicazioni o i corsi che hai provato negli ultimi anni. Accanto a ciascuno scrivi tre cose: quanto tempo al giorno ti chiedeva, quale porta apriva (lavoro, abitudini, relazioni, mentalità) e dopo quanto tempo l’hai lasciato. Guarda la colonna del tempo: è quasi sempre lì, più che nella tua costanza, la ragione dell’abbandono.
 
-### Capitolo 23 — Non si cambia strumento: si affila
+### Capitolo 24 — Non si cambia strumento: si affila
 
 **I concetti chiave**
 
@@ -494,7 +494,7 @@ Il Kaizen (Imai, 1986), nato nelle fabbriche giapponesi del dopoguerra anche gra
 
 Rileggi le righe delle ultime due settimane e cerca il punto in cui il metodo si inceppa più spesso: una riga che salti, un momento che non regge, un giorno della settimana che va sempre storto. Scrivi sul quaderno un solo aggiustamento, nella forma «Da domani, invece di…, faccio…». Provalo per sette giorni senza cambiare nient’altro, e annota alla fine se ha funzionato.
 
-### Capitolo 24 — Le regole che nessuno ti dice
+### Capitolo 25 — Le regole che nessuno ti dice
 
 **I concetti chiave**
 
@@ -514,7 +514,7 @@ Il mercato usa scarsità, riprova sociale, autorità, simpatia e coerenza (Ciald
 
 Per una settimana, ogni volta che una proposta ti tenta, che sia un acquisto, un corso o un’applicazione, annota sul quaderno quale leva del capitolo l’ha resa attraente e rispondi alle tre domande prima di comprare. Alla fine della settimana conta quante proposte hanno superato le tre domande. Fai la stessa prova con il metodo di questo libro: scrivi quale parte riduce il tuo attrito e quale no.
 
-### Capitolo 25 — La macchina che risponde, ma non chiede
+### Capitolo 26 — La macchina che risponde, ma non chiede
 
 **I concetti chiave**
 
@@ -535,7 +535,7 @@ Gli errori più frequenti sono due: delegare il pensiero invece della fatica mec
 
 Scegli la riga della sera che si è ripetuta più spesso nelle ultime settimane e descrivila sul quaderno con parole tue, come la racconteresti a un amico, senza nomi né dettagli riconoscibili. Poi elenca cinque primi passi possibili, ciascuno da meno di quindici minuti: scrivili tu oppure, se usi uno strumento di intelligenza artificiale, chiedigli soltanto le alternative, non la soluzione. Scegline uno, uno solo, e fanne la riga del mattino di domani. Infine scrivi il nome di una persona con cui potresti parlare di ciò che hai scoperto.
 
-### Capitolo 26 — Le porte socchiuse
+### Capitolo 27 — Le porte socchiuse
 
 **I concetti chiave**
 
@@ -556,7 +556,7 @@ L’opzionalità (Taleb, 2012\) consiste nel moltiplicare piccole azioni a basso
 
 Al prossimo momento mensile, scrivi sul quaderno l’inventario delle tue porte socchiuse: due o tre voci, ciascuna con una riga che dica che cosa è e quanto ti costa tenerla aperta. Poi rileggi le righe dell’ultimo mese e cerca un’Opportunità, anche minima. Accanto, rispondi alla domanda «perché adesso?»: quale piccola azione ripetuta l’ha resa possibile? Se la trovi, scrivi come potresti ripeterla il mese prossimo.
 
-### Capitolo 27 — Il nemico che ti porti in casa
+### Capitolo 28 — Il nemico che ti porti in casa
 
 **I concetti chiave**
 
@@ -577,7 +577,7 @@ La lamentela sembra uno sfogo salutare, ma è inazione: descrive il problema inv
 
 Per sette giorni, ogni volta che ti accorgi di stare per lamentarti, annota sul quaderno la lamentela in poche parole e accanto la domanda «sto descrivendo, o sto spostando?». Sotto, scrivi una sola azione piccola che sposterebbe il problema, anche se poi non la fai. Alla fine della settimana rileggi l’elenco, segna le lamentele che si ripetono e scegli quella su cui fare la prima mossa nella settimana successiva.
 
-### Capitolo 28 — L’urgente grida, l’importante sussurra
+### Capitolo 29 — L’urgente grida, l’importante sussurra
 
 **I concetti chiave**
 
@@ -598,7 +598,7 @@ Nel volo Eastern Air Lines 401 (1972) tre professionisti esperti lavoravano con 
 
 Per una settimana, ogni sera, accanto al voto QuDiVi, annota sul quaderno quanti minuti hai dedicato alla cosa importante ma non urgente che avevi scelto al mattino. Non giudicare il numero: scrivilo e basta. Alla fine della settimana guarda insieme le due colonne, i minuti e i voti, e chiediti se i giorni con più minuti nella casella che sussurra sono stati anche quelli più degni di essere vissuti.
 
-### Capitolo 29 — Legna da accendere
+### Capitolo 30 — Legna da accendere
 
 **I concetti chiave**
 
@@ -619,7 +619,7 @@ Molti litigi nascono da un vocabolario emotivo povero: chi conosce soltanto la r
 
 Per una settimana, nella riga della sera, aggiungi una parola sola per dire che cosa hai provato nel momento più difficile della giornata. Evita le parole generiche come «bene», «male» o «stressato», e cerca quella più precisa: deluso, umiliato, preoccupato, escluso, sollevato. Alla fine della settimana rileggi sul quaderno le sette parole e chiediti se, avendo trovato subito la parola giusta, avresti reagito in un altro modo.
 
-### Capitolo 30 — Dove questo libro si ferma
+### Capitolo 31 — Dove questo libro si ferma
 
 **I concetti chiave**
 
@@ -640,7 +640,7 @@ La sofferenza psichica seria è una questione clinica, non motivazionale: il pri
 
 Questa volta l’esercizio ha due parti, e la prima vale per tutti. Scrivi sul quaderno, in una pagina che ritrovi facilmente, il nome e il numero di telefono del tuo medico di base e dei servizi che potrebbero servirti, a te o a una persona a cui vuoi bene. Se la risposta alla prima domanda di verifica è sì, non aspettare: chiama oggi; il libro ti aspetta, non ha fretta e non se ne va. La seconda parte vale soltanto se fumi: per tre settimane usa la riga della sera per annotare il minuto prima di una sigaretta, cioè dove eri, con chi e che cosa provavi, e alla fine rileggi tutto cercando lo schema.
 
-### Capitolo 31 — L’inganno dell’evidenziatore
+### Capitolo 32 — L’inganno dell’evidenziatore
 
 **I concetti chiave**
 
@@ -661,7 +661,7 @@ Insegnare fa imparare perché costringe a tirare fuori le cose dalla testa (Sene
 
 Scegli un capitolo di questo libro che hai già letto, chiudi il libro e scrivi sul quaderno, a memoria, i tre concetti che ricordi meglio: è il passo Controlla. Poi spiega il primo con parole tue, come se dovessi raccontarlo a un amico: è il passo Descrivi. Soltanto alla fine riapri il capitolo e confronta. Ripeti la stessa prova fra una settimana, senza rileggere prima, e annota quanto è rimasto.
 
-### Capitolo 32 — Il punto di partenza non decide il punto di arrivo
+### Capitolo 33 — Il punto di partenza non decide il punto di arrivo
 
 **I concetti chiave**
 
@@ -682,7 +682,7 @@ Vanno lette con la cautela del pregiudizio di sopravvivenza: sono scelte fra chi
 
 Scrivi sul quaderno la condizione che, in questo periodo, stai usando come prova che non è il momento: poco tempo, pochi soldi, una situazione familiare, un’età. Sotto, rispondi a una domanda sola: che cosa potrei fare dentro questa condizione, e non dopo, in meno di quindici minuti? Fanne la riga del mattino di domani, e la sera, nella riga della sera, scrivi che cosa hai imparato.
 
-### Capitolo 33 — Il contadino che diceva forse
+### Capitolo 34 — Il contadino che diceva forse
 
 **I concetti chiave**
 
@@ -703,7 +703,7 @@ La resilienza, in senso stretto, è tornare come prima dopo un colpo; l’antifr
 
 Scrivi sul quaderno un evento degli ultimi anni che al momento hai giudicato una disgrazia, e uno che hai giudicato una fortuna. Accanto a ciascuno annota che cosa ne è venuto dopo, a distanza di mesi o di anni. Poi scegli una situazione che stai vivendo adesso e scrivi, come il contadino, soltanto «forse», seguito da due possibili sviluppi, uno favorevole e uno sfavorevole. Rileggi questa pagina al prossimo momento mensile.
 
-### Capitolo 34 — Tutto, in tre minuti
+### Capitolo 35 — Tutto, in tre minuti
 
 **I concetti chiave**
 

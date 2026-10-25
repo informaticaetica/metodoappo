@@ -7,7 +7,7 @@ import re
 
 caps = sorted(glob.glob('capitoli/*.md'))
 out = ['# Metodo APPO 2.0\n\n## Osa Realizzarti Oggi\n\n### Il romanzo\n\n**Marco Costanzo**\n']
-toc = ['## Indice\n', '- Come leggere questo romanzo', '- Note legali, Avvertenza, Dedica, Lettera al lettore']
+toc = ['## Indice\n', '- Come leggere questo romanzo', '- Note legali, Avvertenza, Dedica']
 for c in caps:
     for l in open(c, encoding='utf-8'):
         if l.startswith('# '):

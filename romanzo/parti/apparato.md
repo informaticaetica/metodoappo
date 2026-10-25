@@ -12,7 +12,7 @@ La sua formazione di partenza è tecnica. Viene dall’informatica ed è stato t
 
 Ha una laurea in scienze economiche e bancarie, con una tesi originale su un metodo di marketing basato sulla creazione di micromercati virtuali. Da oltre venticinque anni lavora come consulente di web marketing.
 
-Prima del metodo APPO ha messo a punto un metodo di studio, ZDC — Zooma, Descrivi, Controlla, che è il seme da cui APPO è nato e a cui questo libro dedica il capitolo 31\. Al metodo APPO ha dedicato diversi libri, che lo applicano alla crescita personale, alla formazione di chi vuole insegnarlo, all’alfabetizzazione sull’intelligenza artificiale, al marketing e al sostegno alle persone che affrontano una malattia oncologica.
+Prima del metodo APPO ha messo a punto un metodo di studio, ZDC — Zooma, Descrivi, Controlla, che è il seme da cui APPO è nato e a cui questo libro dedica il capitolo 32\. Al metodo APPO ha dedicato diversi libri, che lo applicano alla crescita personale, alla formazione di chi vuole insegnarlo, all’alfabetizzazione sull’intelligenza artificiale, al marketing e al sostegno alle persone che affrontano una malattia oncologica.
 
 Usa il metodo scientifico in tutto quello che fa. È il filo che tiene insieme l’informatica, l’economia e la formazione: osservare, formulare un’ipotesi, verificarla sui dati, cambiare idea quando i dati lo chiedono. Per questo ogni affermazione sul comportamento umano contenuta in questo libro è stata controllata sulle fonti, e dove una convinzione diffusa non reggeva è stata corretta: il testo attribuito a Sant’Agostino che è di padre Giacomo Perico, i ventuno giorni delle abitudini che non hanno base nella ricerca, lo studio sui giudici che è stato ridimensionato, la batteria della volontà che è una metafora e non un meccanismo fisiologico. Se trovi un errore, scrivigli: le edizioni successive lo correggeranno. Per la stessa ragione il metodo APPO è a disposizione di qualunque gruppo di ricerca voglia metterlo alla prova con uno studio controllato randomizzato.
 
@@ -40,95 +40,95 @@ Gli aggiornamenti, l’elenco completo delle fonti e le schede stampabili si tro
 
 Qui trovi, capitolo per capitolo, le opere e le ricerche citate nel libro, comprese le fonti delle citazioni di apertura. Dove il testo ha corretto o ridimensionato un’attribuzione diffusa, lo trovi segnalato nella sezione che segue l’elenco.
 
-### Prefazione
+### Capitolo 1
 
 - Popper, K. R. (1934). *Logik der Forschung*. Wien: Springer (trad. it. *Logica della scoperta scientifica*, Torino: Einaudi).
 
-### Capitolo 1
+### Capitolo 2
 
 - Seneca, *Lettere a Lucilio*, lettera 18, 6\.
 
-### Capitolo 2
+### Capitolo 3
 
 - Platone, *Apologia di Socrate*, 38a.
 
-### Capitolo 3
+### Capitolo 4
 
 - Seneca, *Lettere a Lucilio*, lettera 71, 3\.
 
-### Capitolo 4
+### Capitolo 5
 
 - Jones, S. E., Lane, J. M., Wood, A. R., et al. (2019). Genome-wide association analyses of chronotype in 697,828 individuals provides insights into circadian rhythms. *Nature Communications*, 10, 343\.  
 - Seneca, *La brevità della vita*, 1, 3\.  
 - Wittmann, M., Dinich, J., Merrow, M., & Roenneberg, T. (2006). Social jetlag: Misalignment of biological and social time. *Chronobiology International*, 23(1–2), 497–509.
 
-### Capitolo 5
+### Capitolo 6
 
 - Dewey, J. (1938). *Logic: The Theory of Inquiry*. New York: Henry Holt.  
 - Doran, G. T. (1981). There’s a S.M.A.R.T. way to write management’s goals and objectives. *Management Review*, 70(11), 35–36.
 
-### Capitolo 6
+### Capitolo 7
 
 - Marco Aurelio, *Pensieri*, II, 5\.  
 - NASA, fotografia della Terra come «puntino azzurro» (*Pale Blue Dot*), scattata dalla sonda Voyager 1 il 14 febbraio 1990\.  
 - Sagan, C. (1994). *Pale Blue Dot: A Vision of the Human Future in Space*. New York: Random House.
 
-### Capitolo 7
+### Capitolo 8
 
 - Fogg, B. J. (2019). *Tiny Habits: The Small Changes That Change Everything*. Boston: Houghton Mifflin Harcourt.  
 - Lally, P., van Jaarsveld, C. H. M., Potts, H. W. W., & Wardle, J. (2010). How are habits formed: Modelling habit formation in the real world. *European Journal of Social Psychology*, 40(6), 998–1009.  
 - Proverbio giapponese *nana korobi ya oki* («cadi sette volte, rialzati otto»).
 
-### Capitolo 8
+### Capitolo 9
 
 - Esiodo, *Le opere e i giorni*, verso 410\.  
 - Maltz, M. (1960). *Psycho-Cybernetics*. Englewood Cliffs, NJ: Prentice-Hall.
 
-### Capitolo 9
+### Capitolo 10
 
 - Cialdini, R. B. (1984). *Influence: The Psychology of Persuasion*. New York: William Morrow (trad. it. *Le armi della persuasione*, Firenze: Giunti).  
 - Franklin, B. *Autobiografia*, scritta fra il 1771 e il 1790 (le tredici virtù e le domande del mattino e della sera).  
 - Seneca, *L’ira*, III, 36 (l’esame serale appreso dal filosofo Sestio).
 
-### Capitolo 10
+### Capitolo 11
 
 - Kahneman, D., Krueger, A. B., Schkade, D. A., Schwarz, N., & Stone, A. A. (2004). A survey method for characterizing daily life experience: The day reconstruction method. *Science*, 306(5702), 1776–1780.  
 - Seneca, *Lettere a Lucilio*, lettera 77, 20\.
 
-### Capitolo 11
+### Capitolo 12
 
 - Iyengar, S. S., & Lepper, M. R. (2000). When choice is demotivating: Can one desire too much of a good thing? *Journal of Personality and Social Psychology*, 79(6), 995–1006.  
 - Orazio, *Ars poetica*, verso 23\.  
 - Scheibehenne, B., Greifeneder, R., & Todd, P. M. (2010). Can there ever be too many options? A meta-analytic review of choice overload. *Journal of Consumer Research*, 37(3), 409–425.
 
-### Capitolo 12
+### Capitolo 13
 
 - Di Stefano, G., Gino, F., Pisano, G. P., & Staats, B. R. (2014). *Making Experience Count: The Role of Reflection in Individual Learning*. Harvard Business School Working Paper 14-093.  
 - Montaigne, M. de, *Saggi*, I, 39\.
 
-### Capitolo 13
+### Capitolo 14
 
 - Eraclito, frammento 91 Diels-Kranz, tramandato da Plutarco, *L’E di Delfi*, 392b.  
 - Locke, E. A., & Latham, G. P. (1990). *A Theory of Goal Setting and Task Performance*. Englewood Cliffs, NJ: Prentice-Hall.
 
-### Capitolo 14
+### Capitolo 15
 
 - Gable, S. L., Reis, H. T., Impett, E. A., & Asher, E. R. (2004). What do you do when things go right? The intrapersonal and interpersonal benefits of sharing positive events. *Journal of Personality and Social Psychology*, 87(2), 228–245.  
 - Rohn, J. Aforisma attribuito: «siamo la media delle cinque persone che frequentiamo». Non è un risultato di ricerca, e nel libro è presentato come tale.  
 - Seneca, *Lettere a Lucilio*, lettera 7, 1\.
 
-### Capitolo 15
+### Capitolo 16
 
 - Kierkegaard, S. *Diari*, 1843\.  
 - Perico, G. (2001). *Resta con noi Signore\!* San Paolo Edizioni, con prefazione del cardinale Carlo Maria Martini.
 
-### Capitolo 16
+### Capitolo 17
 
 - Covey, S. R. (1989). *The 7 Habits of Highly Effective People*. New York: Free Press (trad. it. *Le 7 regole per avere successo*, Milano: Franco Angeli).  
 - Drucker, P. F. (1967). *The Effective Executive*. New York: Harper & Row.  
 - Epitteto, *Manuale* (*Enchiridion*), capitolo 1\.
 
-### Capitolo 17
+### Capitolo 18
 
 - Buettner, D. (2008). *The Blue Zones: Lessons for Living Longer from the People Who’ve Lived the Longest*. Washington, DC: National Geographic.  
 - Epicuro, *Massime capitali*, XXVII.  
@@ -136,17 +136,17 @@ Qui trovi, capitolo per capitolo, le opere e le ricerche citate nel libro, compr
 - Newman, S. J. (2019). Supercentenarians and the oldest-old are concentrated into regions with no birth certificates and short lifespans. *bioRxiv*, 704080, e versioni successive.  
 - Waldinger, R., & Schulz, M. (2023). *The Good Life: Lessons from the World’s Longest Scientific Study of Happiness*. New York: Simon & Schuster.
 
-### Capitolo 18
+### Capitolo 19
 
 - Cipolla, C. M. (1988). *Allegro ma non troppo*. Bologna: il Mulino (contiene «Le leggi fondamentali della stupidità umana»).  
 - Wilson, E. O. Dibattito allo Harvard Museum of Natural History, Cambridge (Massachusetts), settembre 2009\.
 
-### Capitolo 19
+### Capitolo 20
 
 - Aristotele, *Etica Nicomachea*, II, 9, 1109a.  
 - Il falso allarme missilistico del 26 settembre 1983 nel bunker di Serpuchov-15, vicino a Mosca, e la decisione del tenente colonnello Stanislav Petrov.
 
-### Capitolo 20
+### Capitolo 21
 
 - Baumeister, R. F., Bratslavsky, E., Muraven, M., & Tice, D. M. (1998). Ego depletion: Is the active self a limited resource? *Journal of Personality and Social Psychology*, 74(5), 1252–1265.  
 - Danziger, S., Levav, J., & Avnaim-Pesso, L. (2011). Extraneous factors in judicial decisions. *Proceedings of the National Academy of Sciences*, 108(17), 6889–6892.  
@@ -154,64 +154,64 @@ Qui trovi, capitolo per capitolo, le opere e le ricerche citate nel libro, compr
 - Galla, B. M., & Duckworth, A. L. (2015). More than resisting temptation: Beneficial habits mediate the relationship between self-control and positive life outcomes. *Journal of Personality and Social Psychology*, 109(3), 508–525.  
 - Gollwitzer, P. M., & Sheeran, P. (2006). Implementation intentions and goal achievement: A meta-analysis of effects and processes. *Advances in Experimental Social Psychology*, 38, 69–119.  
 - Hagger, M. S., Chatzisarantis, N. L. D., et al. (2016). A multilab preregistered replication of the ego-depletion effect. *Perspectives on Psychological Science*, 11(4), 546–573.  
-- Lally, P., van Jaarsveld, C. H. M., Potts, H. W. W., & Wardle, J. (2010). Vedi capitolo 7\. La variabilità va da 18 a 254 giorni; la mediana di 66 giorni riguarda il sottoinsieme dei partecipanti i cui dati si adattavano al modello.  
+- Lally, P., van Jaarsveld, C. H. M., Potts, H. W. W., & Wardle, J. (2010). Vedi capitolo 8\. La variabilità va da 18 a 254 giorni; la mediana di 66 giorni riguarda il sottoinsieme dei partecipanti i cui dati si adattavano al modello.  
 - Ovidio, *Metamorfosi*, VII, 20-21 (le parole di Medea).  
 - Vohs, K. D., Schmeichel, B. J., et al. (2021). A multisite preregistered paradigmatic test of the ego-depletion effect. *Psychological Science*, 32(10), 1566–1581.  
 - Weinshall-Margel, K., & Shapard, J. (2011). Overlooked factors in the analysis of parole decisions. *Proceedings of the National Academy of Sciences*, 108(42), E833.
 
-### Capitolo 21
+### Capitolo 22
 
 - Montaigne, M. de, *Saggi*, III, 13\.
 
-### Capitolo 22
+### Capitolo 23
 
 - Allen, D. (2001). *Getting Things Done: The Art of Stress-Free Productivity*. New York: Viking.  
 - Clear, J. (2018). *Atomic Habits*. New York: Avery.  
-- Covey, S. R. (1989). Vedi capitolo 16\.  
+- Covey, S. R. (1989). Vedi capitolo 17\.  
 - Pascal, B. *Lettere provinciali*, XVI, 1656\.
-
-### Capitolo 23
-
-- Imai, M. (1986). *Kaizen: The Key to Japan’s Competitive Success*. New York: McGraw-Hill.  
-- Lally, P., e colleghi (2010). Vedi capitolo 7\.  
-- Seneca, *Lettere a Lucilio*, lettera 2, 3\.  
-- W. Edwards Deming e i programmi di formazione *Training Within Industry* nel Giappone del dopoguerra.
 
 ### Capitolo 24
 
-- Cialdini, R. B. (1984). Vedi capitolo 9\.  
+- Imai, M. (1986). *Kaizen: The Key to Japan’s Competitive Success*. New York: McGraw-Hill.  
+- Lally, P., e colleghi (2010). Vedi capitolo 8\.  
+- Seneca, *Lettere a Lucilio*, lettera 2, 3\.  
+- W. Edwards Deming e i programmi di formazione *Training Within Industry* nel Giappone del dopoguerra.
+
+### Capitolo 25
+
+- Cialdini, R. B. (1984). Vedi capitolo 10\.  
 - König, L., & Jucks, R. (2019). Influence of enthusiastic language on the credibility of health information and the trustworthiness of science communicators: Insights from a between-subject web-based experiment. *Interactive Journal of Medical Research*, 8(3), e13619.  
 - Orazio, *Epistole*, I, 2, 40-41.  
 - Publilio Siro, *Sentenze* («Beneficium accipere libertatem est vendere»).  
 - Ross, L. (1977). The intuitive psychologist and his shortcomings: Distortions in the attribution process. *Advances in Experimental Social Psychology*, 10, 173–220.
 
-### Capitolo 25
+### Capitolo 26
 
 - Aristotele, *Politica*, I, 4, 1253b.  
 - Reber, R., & Schwarz, N. (1999). Effects of perceptual fluency on judgments of truth. *Consciousness and Cognition*, 8(3), 338–342.
 
-### Capitolo 26
+### Capitolo 27
 
 - Machiavelli, N. *Il Principe*, XXV (scritto nel 1513, pubblicato nel 1532).  
 - Mitchell, K. E., Levin, A. S., & Krumboltz, J. D. (1999). Planned happenstance: Constructing unexpected career opportunities. *Journal of Counseling & Development*, 77(2), 115–124.  
 - Taleb, N. N. (2012). *Antifragile: Things That Gain from Disorder*. New York: Random House (trad. it. *Antifragile. Prosperare nel disordine*, Milano: il Saggiatore, 2013).  
 - Wiseman, R. (2003). *The Luck Factor*. London: Century. Esperimento descritto in un libro divulgativo, non in una serie di studi controllati.
 
-### Capitolo 27
+### Capitolo 28
 
 - Bushman, B. J. (2002). Does venting anger feed or extinguish the flame? Catharsis, rumination, distraction, anger, and aggressive responding. *Personality and Social Psychology Bulletin*, 28(6), 724–731.  
 - Pronin, E., Lin, D. Y., & Ross, L. (2002). The bias blind spot: Perceptions of bias in self versus others. *Personality and Social Psychology Bulletin*, 28(3), 369–381.  
 - Seneca, *Lettere a Lucilio*, lettera 13, 4\.
 
-### Capitolo 28
+### Capitolo 29
 
-- Covey, S. R. (1989). Vedi capitolo 16 (la matrice dell’urgente e dell’importante).  
+- Covey, S. R. (1989). Vedi capitolo 17 (la matrice dell’urgente e dell’importante).  
 - Eisenhower, D. D. Discorso alla seconda Assemblea del Consiglio ecumenico delle Chiese, Evanston (Illinois), 19 agosto 1954\.  
 - National Transportation Safety Board (1973). *Aircraft Accident Report: Eastern Air Lines, Inc., L-1011, N310EA, Miami, Florida, December 29, 1972* (NTSB-AAR-73-14). Washington, DC: NTSB.  
 - Thoreau, H. D. Lettera a H. G. O. Blake, 16 novembre 1857\.  
 - Zhu, M., Yang, Y., & Hsee, C. K. (2018). The mere urgency effect. *Journal of Consumer Research*, 45(3), 673–690.
 
-### Capitolo 29
+### Capitolo 30
 
 - Consiglio dell’Unione Europea (2018). Raccomandazione del Consiglio del 22 maggio 2018 relativa alle competenze chiave per l’apprendimento permanente (2018/C 189/01). *Gazzetta ufficiale dell’Unione europea*, C 189 del 4 giugno 2018\.  
 - Goleman, D. (1995). *Emotional Intelligence: Why It Can Matter More Than IQ*. New York: Bantam Books (trad. it. *Intelligenza emotiva*, Milano: Rizzoli).  
@@ -223,7 +223,7 @@ Qui trovi, capitolo per capitolo, le opere e le ricerche citate nel libro, compr
 - Plutarco, *L’arte di ascoltare* (*De recta ratione audiendi*), in *Moralia*, 48c.  
 - Salovey, P., & Mayer, J. D. (1990). Emotional intelligence. *Imagination, Cognition and Personality*, 9(3), 185–211.
 
-### Capitolo 30
+### Capitolo 31
 
 - AIFA, Osservatorio nazionale sull’impiego dei medicinali. *L’uso dei farmaci in Italia. Rapporto nazionale OsMed*, edizioni annuali, per i dati italiani.  
 - American Psychiatric Association (2013). *Diagnostic and Statistical Manual of Mental Disorders*, quinta edizione (DSM-5), per i criteri del disturbo da alimentazione incontrollata.  
@@ -233,14 +233,14 @@ Qui trovi, capitolo per capitolo, le opere e le ricerche citate nel libro, compr
 - Sin, N. L., & Lyubomirsky, S. (2009). Enhancing well-being and alleviating depressive symptoms with positive psychology interventions: A practice-friendly meta-analysis. *Journal of Clinical Psychology*, 65(5), 467–487.  
 - White, C. A., Uttl, B., & Holder, M. D. (2019). Meta-analyses of positive psychology interventions: The effects are much smaller than previously reported. *PLoS ONE*, 14(5), e0216588.
 
-### Capitolo 31
+### Capitolo 32
 
 - Bjork, R. A. (1994). Memory and metamemory considerations in the training of human beings. In J. Metcalfe & A. P. Shimamura (a cura di), *Metacognition: Knowing About Knowing* (pp. 185–205). Cambridge, MA: MIT Press.  
 - Dunlosky, J., Rawson, K. A., Marsh, E. J., Nathan, M. J., & Willingham, D. T. (2013). Improving students’ learning with effective learning techniques: Promising directions from cognitive and educational psychology. *Psychological Science in the Public Interest*, 14(1), 4–58.  
 - Roediger, H. L., III, & Karpicke, J. D. (2006). Test-enhanced learning: Taking memory tests improves long-term retention. *Psychological Science*, 17(3), 249–255. Esperimento 2: 83 per cento contro 71 a cinque minuti; 40 per cento contro 61 a una settimana; 14,2 letture contro 3,4.  
 - Seneca, *Lettere a Lucilio*, lettera 7, 8\.
 
-### Capitolo 32
+### Capitolo 33
 
 - Branson, R. (1998). *Losing My Virginity*. London: Virgin Books.  
 - Branson, R. Intervista a NPR, «Virgin’s Richard Branson Bares His Business Secrets», 10 ottobre 2012 (la scuola lasciata a quindici anni; la differenza fra utile netto e utile lordo).  
@@ -249,20 +249,20 @@ Qui trovi, capitolo per capitolo, le opere e le ricerche citate nel libro, compr
 - Schultz, H., & Yang, D. J. (1997). *Pour Your Heart Into It: How Starbucks Built a Company One Cup at a Time*. New York: Hyperion.  
 - Seneca, *Lettere a Lucilio*, lettera 104, 26\.
 
-### Capitolo 33
+### Capitolo 34
 
 - Giovenale, *Satire*, VI, 165\.  
 - Haworth, D. (2021). Friday essay: A rare bird — how Europeans got the black swan so wrong. *The Conversation*, giugno 2021 (la spedizione di Willem de Vlamingh del gennaio 1697, l’avvistamento di Antonie Caen del 1636, i primi cigni neri vivi giunti in Europa nel 1804).  
 - *Huainanzi*, raccolta compilata alla corte di Liu An, re di Huainan, II secolo a.C. (la storia del vecchio della frontiera che perse il cavallo).  
 - Taleb, N. N. (2007). *The Black Swan: The Impact of the Highly Improbable*. New York: Random House (trad. it. *Il cigno nero*, Milano: il Saggiatore).  
-- Taleb, N. N. (2012). Vedi capitolo 26\.
-
-### Capitolo 34
-
-- Lally, P., e colleghi (2010). Vedi capitolo 7\.  
-- Marco Aurelio, *Pensieri*, IV, 24, che cita Democrito (frammento 68 B 3 Diels-Kranz).
+- Taleb, N. N. (2012). Vedi capitolo 27\.
 
 ### Capitolo 35
+
+- Lally, P., e colleghi (2010). Vedi capitolo 8\.  
+- Marco Aurelio, *Pensieri*, IV, 24, che cita Democrito (frammento 68 B 3 Diels-Kranz).
+
+### Capitolo 36
 
 - Seneca, *Lettere a Lucilio*, lettera 1, 1\.
 
@@ -284,9 +284,9 @@ La frase secondo cui l’intelligenza emotiva conterebbe più del quoziente inte
 
 La matrice dell’urgente e dell’importante è attribuita a Dwight Eisenhower, che nel 1954 citava a sua volta un rettore universitario; la forma a quattro caselle è stata resa celebre da Stephen Covey.
 
-La frase di Thoreau che apre il capitolo 28 circola spesso nella forma «non basta essere occupati»; nella lettera originale del 1857 la parola è *industrious*, cioè operosi.
+La frase di Thoreau che apre il capitolo 29 circola spesso nella forma «non basta essere occupati»; nella lettera originale del 1857 la parola è *industrious*, cioè operosi.
 
-La massima di Plutarco che apre il capitolo 29 circola spesso come «la mente non è un vaso da riempire, ma un fuoco da accendere»; nell’originale greco l’immagine è quella della legna, che ha bisogno soltanto di essere accesa.
+La massima di Plutarco che apre il capitolo 30 circola spesso come «la mente non è un vaso da riempire, ma un fuoco da accendere»; nell’originale greco l’immagine è quella della legna, che ha bisogno soltanto di essere accesa.
 
 ### Dove chiedere aiuto
 

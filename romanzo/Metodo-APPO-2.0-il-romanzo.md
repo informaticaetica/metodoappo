@@ -9,52 +9,53 @@
 ## Indice
 
 - Come leggere questo romanzo
-- Note legali, Avvertenza, Dedica, Lettera al lettore
-- Prologo — Un grimaldello per le porte chiuse
+- Note legali, Avvertenza, Dedica
+- Prologo — Lettera al lettore
 
 **PARTE PRIMA — Il metodo**
 
-- Capitolo 1 — Il giorno in cui arriva il cigno nero
-- Capitolo 2 — Un libro per leggere la tua vita
-- Capitolo 3 — Il porto lo scegli tu
-- Capitolo 4 — La bugia del «non ho tempo»
-- Capitolo 5 — Il metodo APPO 2.0, spiegato da zero
-- Capitolo 6 — La collana dei giorni e il QuDiVi
-- Capitolo 7 — Il giorno in cui smetterai
-- Capitolo 8 — La riga APPO del mattino
-- Capitolo 9 — La riga della sera
-- Capitolo 10 — Il QuDiVi: un contatore meraviglioso delle tue giornate
-- Capitolo 11 — Due righe bastano?
-- Capitolo 12 — Il rito di amarsi
-- Capitolo 13 — Guardare la marea, non l'onda
-- Capitolo 14 — Un bracciale d'oro in bigiotteria
+- Capitolo 1 — Un grimaldello per le porte chiuse
+- Capitolo 2 — Il giorno in cui arriva il cigno nero
+- Capitolo 3 — Un libro per leggere la tua vita
+- Capitolo 4 — Il porto lo scegli tu
+- Capitolo 5 — La bugia del «non ho tempo»
+- Capitolo 6 — Il metodo APPO 2.0, spiegato da zero
+- Capitolo 7 — La collana dei giorni e il QuDiVi
+- Capitolo 8 — Il giorno in cui smetterai
+- Capitolo 9 — La riga APPO del mattino
+- Capitolo 10 — La riga della sera
+- Capitolo 11 — Il QuDiVi: un contatore meraviglioso delle tue giornate
+- Capitolo 12 — Due righe bastano?
+- Capitolo 13 — Il rito di amarsi
+- Capitolo 14 — Guardare la marea, non l'onda
+- Capitolo 15 — Un bracciale d'oro in bigiotteria
 
 **PARTE SECONDA — Perché è fatto così**
 
-- Capitolo 15 — La domanda che non se ne va
-- Capitolo 16 — Una dichiarazione d'amore
-- Capitolo 17 — La consapevolezza evapora alle nove e mezza
-- Capitolo 18 — Una testa antica in un mondo nuovo
-- Capitolo 19 — L'uomo che aspettò qualche minuto
-- Capitolo 20 — La batteria della volontà
-- Capitolo 21 — L'unico mestiere che non puoi delegare
-- Capitolo 22 — Un armadio pieno di chiavi
-- Capitolo 23 — Non si cambia strumento: si affila
-- Capitolo 24 — Le regole che nessuno ti dice
-- Capitolo 25 — La macchina che risponde, ma non chiede
-- Capitolo 26 — Le porte socchiuse
-- Capitolo 27 — Il nemico che ti porti in casa
-- Capitolo 28 — L'urgente grida, l'importante sussurra
-- Capitolo 29 — Legna da accendere
-- Capitolo 30 — Dove questo libro si ferma
-- Capitolo 31 — L'inganno dell'evidenziatore
-- Capitolo 32 — Il punto di partenza non decide il punto di arrivo
-- Capitolo 33 — Il contadino che diceva forse
+- Capitolo 16 — La domanda che non se ne va
+- Capitolo 17 — Una dichiarazione d'amore
+- Capitolo 18 — La consapevolezza evapora alle nove e mezza
+- Capitolo 19 — Una testa antica in un mondo nuovo
+- Capitolo 20 — L'uomo che aspettò qualche minuto
+- Capitolo 21 — La batteria della volontà
+- Capitolo 22 — L'unico mestiere che non puoi delegare
+- Capitolo 23 — Un armadio pieno di chiavi
+- Capitolo 24 — Non si cambia strumento: si affila
+- Capitolo 25 — Le regole che nessuno ti dice
+- Capitolo 26 — La macchina che risponde, ma non chiede
+- Capitolo 27 — Le porte socchiuse
+- Capitolo 28 — Il nemico che ti porti in casa
+- Capitolo 29 — L'urgente grida, l'importante sussurra
+- Capitolo 30 — Legna da accendere
+- Capitolo 31 — Dove questo libro si ferma
+- Capitolo 32 — L'inganno dell'evidenziatore
+- Capitolo 33 — Il punto di partenza non decide il punto di arrivo
+- Capitolo 34 — Il contadino che diceva forse
 
 **CHIUSURA**
 
-- Capitolo 34 — Tutto, in tre minuti
-- Capitolo 35 — Congedo
+- Capitolo 35 — Tutto, in tre minuti
+- Capitolo 36 — Congedo
 
 **APPARATO**
 
@@ -99,7 +100,7 @@ Contatti: 340 493 1860
 
 ## Avvertenza
 
-Questo libro propone strumenti di organizzazione personale e di riflessione quotidiana. Non è uno strumento clinico e non sostituisce in alcun modo la valutazione, la diagnosi o la cura di un medico, di uno psicologo o di un altro professionista della salute. Se stai attraversando una difficoltà che va oltre la stanchezza e il disordine — una sofferenza che non passa, pensieri di farti del male, una dipendenza che non riesci a governare — il primo passo APPO è sempre lo stesso: chiedere aiuto, subito, a una persona qualificata. Il capitolo 30 è dedicato interamente a questo confine.
+Questo libro propone strumenti di organizzazione personale e di riflessione quotidiana. Non è uno strumento clinico e non sostituisce in alcun modo la valutazione, la diagnosi o la cura di un medico, di uno psicologo o di un altro professionista della salute. Se stai attraversando una difficoltà che va oltre la stanchezza e il disordine — una sofferenza che non passa, pensieri di farti del male, una dipendenza che non riesci a governare — il primo passo APPO è sempre lo stesso: chiedere aiuto, subito, a una persona qualificata. Il capitolo 31 è dedicato interamente a questo confine.
 
 Ogni volta che in queste pagine compare un dato scientifico, trovi indicata la ricerca da cui proviene, con gli autori e l’anno; nelle Fonti, in fondo al libro, trovi anche la rivista o l’opera, perché tu possa verificarla. Quando le prove sono solide lo dico; quando sono preliminari, contrastanti o ridimensionate da studi successivi, lo dico con la stessa chiarezza. Un metodo che richiede onestà al lettore deve pretenderla prima di tutto da sé stesso.
 
@@ -115,17 +116,17 @@ Di lei mi restano il dono della sua amicizia, il ricordo della sua forza e la gr
 
 A Mody, con affetto e riconoscenza, perché le persone speciali, come le vere amicizie, non scompaiono mai.
 
-## Lettera al lettore
+## Prologo — Lettera al lettore
 
 Caro lettore,
 
 prima che cominci a leggere, voglio chiederti una cosa sola. Te la chiedo adesso perché tutto il resto dipende da questa: **sii onesto**. Non con me, con te stesso.
 
-Se una persona va dal medico con un’ulcera e gli dice di avere un po’ di mal di stomaco, riceverà una cura per il mal di stomaco. E l’ulcera continuerà a scavare. Questo libro funziona allo stesso modo: ti darà risposte precise quanto saranno precise le domande che gli farai. Ci torneremo nel capitolo 3 ma volevo che fosse anche la prima cosa che ci diciamo affinché tu non investa male il tuo tempo.
+Se una persona va dal medico con un’ulcera e gli dice di avere un po’ di mal di stomaco, riceverà una cura per il mal di stomaco. E l’ulcera continuerà a scavare. Questo libro funziona allo stesso modo: ti darà risposte precise quanto saranno precise le domande che gli farai. Ci torneremo nel capitolo 4 ma volevo che fosse anche la prima cosa che ci diciamo affinché tu non investa male il tuo tempo.
 
 Ho scritto queste pagine perché credo nella logica kaizen del miglioramento continuo, fatto di piccoli passi costanti. Per questo, molti anni fa, ho avviato il progetto [miglioramento.com](http://miglioramento.com) e oggi dedico parte del mio tempo a descrivere, perfezionale e divulgare metodi per risolvere problemi e per allenare il pensiero critico con il metodo scientifico: sono le strategie che trovi nei libri della collana APPO. Ogni volta che mi è possibile faccio formazione dal vivo, e questo libro è la prosecuzione di quella stessa scelta quando non posso raggiungere le persone in presenza.
 
-Spero di incontrarti un giorno in una delle comunità pensanti APPO, i piccoli gruppi di persone che praticano il metodo insieme e di cui ti parlerò nel capitolo 14\. Mi auguro che ne nasca presto una anche nella tua zona, se non esiste già, e che un giorno tu possa raccontarmi i tuoi progressi.
+Spero di incontrarti un giorno in una delle comunità pensanti APPO, i piccoli gruppi di persone che praticano il metodo insieme e di cui ti parlerò nel capitolo 15\. Mi auguro che ne nasca presto una anche nella tua zona, se non esiste già, e che un giorno tu possa raccontarmi i tuoi progressi.
 
 Credo che la vita sia troppo breve per non viverla pienamente e che ogni strumento che ci avvicina a questo scopo merita di essere prima esplorato e poi usato, se lo si ritiene valido ed etico. Ti chiedo di trattare così anche questo libro: mettilo alla prova, e tieni nella tua vita solo ciò che funziona meglio per te.
 
@@ -137,7 +138,9 @@ Con gratitudine e fiducia,
 
 Marco Costanzo
 
-## Prologo — Un grimaldello per le porte chiuse
+# PARTE PRIMA — Il metodo
+
+## Capitolo 1 — Un grimaldello per le porte chiuse
 
 «Per quanto numerosi siano i casi di cigni bianchi che possiamo aver osservato, ciò non giustifica la conclusione che tutti i cigni sono bianchi.»
 
@@ -257,9 +260,7 @@ Prima di spegnere la luce, quella notte, Stefano trovò nel cassetto del comodin
 
 Fuori, il golfo era nero e il faro sul promontorio girava piano, sempre nello stesso punto.
 
-# PARTE PRIMA — Il metodo
-
-## Capitolo 1 — Il giorno in cui arriva il cigno nero
+## Capitolo 2 — Il giorno in cui arriva il cigno nero
 
 «Il soldato si esercita in tempo di pace, e scava trincee quando non c'è nessun nemico.»
 
@@ -467,7 +468,7 @@ La riga del giorno dopo la scrisse alle sette, in cucina, prima di accendere il 
 
 Non sapeva ancora che era la prima riga del suo metodo. Sapeva soltanto che era vera.
 
-## Capitolo 2 — Un libro per leggere la tua vita
+## Capitolo 3 — Un libro per leggere la tua vita
 
 «Una vita senza ricerca non è degna di essere vissuta.»
 
@@ -645,7 +646,7 @@ Spense la luce. Dalla finestra di Torraca entrava il fresco della montagna e, lo
 
 *Dove lo stai tenendo?*
 
-## Capitolo 3 — Il porto lo scegli tu
+## Capitolo 4 — Il porto lo scegli tu
 
 «Per chi non sa verso quale porto sta andando, nessun vento è favorevole.»
 
@@ -815,7 +816,7 @@ Sotto, scrisse la riga della sera:
 
 *papà che ha detto la verità al medico. io no, ancora.*
 
-## Capitolo 4 — La bugia del «non ho tempo»
+## Capitolo 5 — La bugia del «non ho tempo»
 
 «Non abbiamo poco tempo: ne sprechiamo molto.»
 
@@ -977,7 +978,7 @@ Per tre sere annotò sul quaderno i minuti passati sul telefono senza scopo: due
 
 E il giovedì successivo, alle sette e un quarto, mentre il caffè cominciava a salire, la scrisse.
 
-## Capitolo 5 — Il metodo APPO 2.0, spiegato da zero
+## Capitolo 6 — Il metodo APPO 2.0, spiegato da zero
 
 «Un problema ben definito è un problema per metà risolto.»
 
@@ -1133,7 +1134,7 @@ La sera, accanto alle quattro righe, scrisse soltanto:
 
 Era la prima volta, da quando aveva cominciato, che accanto a una riga del mattino poteva mettere un segno pieno.
 
-## Capitolo 6 — La collana dei giorni e il QuDiVi
+## Capitolo 7 — La collana dei giorni e il QuDiVi
 
 «Compi ogni azione della tua vita come se fosse l'ultima.»
 
@@ -1289,7 +1290,7 @@ Poi chiuse il quaderno. Fuori, il faro girava. Aurelio gli aveva detto, salutand
 
 Stefano non ci aveva creduto. Si sentiva lanciato. Una settimana intera di righe, una colonna di numeri. Che motivo avrebbe avuto, per smettere?
 
-## Capitolo 7 — Il giorno in cui smetterai
+## Capitolo 8 — Il giorno in cui smetterai
 
 «Cadi sette volte, rialzati otto.»
 
@@ -1457,7 +1458,7 @@ Sul telefono, sul comodino, arrivò un messaggio di Giulia, dalla stanza accanto
 
 *Fatto.*
 
-## Capitolo 8 — La riga APPO del mattino
+## Capitolo 9 — La riga APPO del mattino
 
 «Non rimandare a domani né a dopodomani.»
 
@@ -1603,7 +1604,7 @@ Quella sera, accanto alla riga del mattino, Stefano mise un segno pieno. Poi scr
 
 *non ho parlato della scuola. lui ha suonato. 4 minuti. valgono la settimana.*
 
-## Capitolo 9 — La riga della sera
+## Capitolo 10 — La riga della sera
 
 «Ripasso per intero la mia giornata, e torno a misurare ciò che ho detto e fatto.»
 
@@ -1725,7 +1726,7 @@ Quella sera, prima di dormire, scrisse:
 
 *QuDiVi 6. ostacolo: ho aspettato la risposta di Lorenzo per tutto il giorno invece di fare altro. (non gli avevo detto che mi serviva entro oggi.)*
 
-## Capitolo 10 — Il QuDiVi: un contatore meraviglioso delle tue giornate
+## Capitolo 11 — Il QuDiVi: un contatore meraviglioso delle tue giornate
 
 «Come una favola, così la vita: non conta quanto è lunga, ma quanto è ben recitata.»
 
@@ -1856,7 +1857,7 @@ La riga della sera venne fuori da sola:
 
 Non corresse niente.
 
-## Capitolo 11 — Due righe bastano?
+## Capitolo 12 — Due righe bastano?
 
 «Sia pure ciò che vuoi, purché sia semplice e uno.»
 
@@ -2017,7 +2018,7 @@ La sera scrisse *8* e, sotto:
 
 Era una riga brutta, storta, senza maiuscole. Non la sistemò.
 
-## Capitolo 12 — Il rito di amarsi
+## Capitolo 13 — Il rito di amarsi
 
 «La più grande cosa del mondo è saper essere di sé stessi.»
 
@@ -2177,7 +2178,7 @@ Stefano rimase seduto al tavolo. Sul taccuino, accanto alla riga di grazie della
 
 Era la seconda volta in tre mesi. In quarantotto anni, non ricordava una terza.
 
-## Capitolo 13 — Guardare la marea, non l'onda
+## Capitolo 14 — Guardare la marea, non l'onda
 
 «Non si scende due volte nello stesso fiume.»
 
@@ -2321,7 +2322,7 @@ Matteo, dal sedile posteriore, con le cuffie sul collo, chiese che cosa c'era sc
 
 Stefano rise forte, per la prima volta in tutta l'estate. Il fiume, sotto il paese, continuava a scorrere verso il mare, e non era più lo stesso fiume della mattina.
 
-## Capitolo 14 — Un bracciale d'oro in bigiotteria
+## Capitolo 15 — Un bracciale d'oro in bigiotteria
 
 «Mi chiedi che cosa tu debba evitare più di ogni altra cosa? La folla.»
 
@@ -2525,7 +2526,7 @@ Quella sera, nella riga della sera, scrisse soltanto:
 
 # PARTE SECONDA — Perché è fatto così
 
-## Capitolo 15 — La domanda che non se ne va
+## Capitolo 16 — La domanda che non se ne va
 
 «La vita si può capire solo all'indietro, ma va vissuta in avanti.»
 
@@ -2676,7 +2677,7 @@ Prima di dormire, sotto la riga della sera, aggiunse una cosa che non c'entrava 
 
 La sera dopo, accanto alle quattro righe, scrisse che per almeno tre ore la giornata era andata nella direzione che aveva scritto. La proposta era finita. I fratelli l'avevano letta in silenzio, poi uno dei due aveva detto: «Conosco un caseificio a Laurito che ha lo stesso problema».
 
-## Capitolo 16 — Una dichiarazione d'amore
+## Capitolo 17 — Una dichiarazione d'amore
 
 «Di tutte le cose, alcune dipendono da noi, altre non dipendono da noi.»
 
@@ -2830,7 +2831,7 @@ Nella riga della sera scrisse:
 
 Una persona, quella sera, era andata a letto un po' meno ferita. Forse due.
 
-## Capitolo 17 — La consapevolezza evapora alle nove e mezza
+## Capitolo 18 — La consapevolezza evapora alle nove e mezza
 
 «Di tutto ciò che la saggezza procura per la felicità di una vita intera, di gran lunga la cosa più grande è il possesso dell'amicizia.»
 
@@ -3014,7 +3015,7 @@ Accanto alla riga del mattino, Stefano mise un segno pieno. Poi scrisse il QuDiV
 
 Fu un 9. Il primo da settimane.
 
-## Capitolo 18 — Una testa antica in un mondo nuovo
+## Capitolo 19 — Una testa antica in un mondo nuovo
 
 «Abbiamo emozioni paleolitiche, istituzioni medievali e tecnologia divina.»
 
@@ -3164,7 +3165,7 @@ Accanto alle due *St* cercò il momento in cui aveva reagito d'impulso, e il seg
 
 Lo sottolineò due volte. Era il suo rumore nell'erba. Adesso sapeva come suonava.
 
-## Capitolo 19 — L'uomo che aspettò qualche minuto
+## Capitolo 20 — L'uomo che aspettò qualche minuto
 
 «Chiunque può adirarsi: questo è facile. Ma adirarsi nel modo giusto non è da tutti.»
 
@@ -3326,7 +3327,7 @@ Sandro rimase con la forchetta a mezz'aria. Dopo il caffè, gli chiese davvero.
 
 La sera, nella riga, Stefano scrisse: *Natale. I.*
 
-## Capitolo 20 — La batteria della volontà
+## Capitolo 21 — La batteria della volontà
 
 «Vedo il meglio e l'approvo, ma seguo il peggio.»
 
@@ -3466,7 +3467,7 @@ Prese il taccuino e scrisse in fondo, sotto il rito, tre righe sulla settimana d
 *non ha funzionato: la riga della sera in ospedale. troppo stanco. bastava una parola.*
 *la parola di questi sei mesi è papà. non me n'ero accorto. adesso sì.*
 
-## Capitolo 21 — L'unico mestiere che non puoi delegare
+## Capitolo 22 — L'unico mestiere che non puoi delegare
 
 «Il nostro grande e glorioso capolavoro è vivere a proposito.»
 
@@ -3620,7 +3621,7 @@ La mattina dopo, rileggendo quella frase prima di scrivere la nuova riga, capì 
 
 *sabato prossimo: una cena con Giulia, solo noi due. niente mamma, niente papà, niente Matteo. niente corsa.*
 
-## Capitolo 22 — Un armadio pieno di chiavi
+## Capitolo 23 — Un armadio pieno di chiavi
 
 «Ho scritto una lettera lunga perché non ho avuto il tempo di farla breve.»
 
@@ -3767,7 +3768,7 @@ Accanto, in fondo alla pagina, aggiunse l'ultima riga:
 
 Si accorse che era la riga più lunga della lista. Non quella scritta: quella vissuta.
 
-## Capitolo 23 — Non si cambia strumento: si affila
+## Capitolo 24 — Non si cambia strumento: si affila
 
 «Nulla ostacola la guarigione quanto il cambiare spesso rimedio.»
 
@@ -3921,7 +3922,7 @@ A Giulia telefonò per dirle che sei settimane erano niente, e che una media a c
 
 Ivo, il giovedì di marzo, si presentò con un taccuino nero da quattro euro e cinquanta, identico a quello di Stefano. Lo posò sul tavolo di formica senza dire niente. Sulla prima pagina c'erano due righe e un numero.
 
-## Capitolo 24 — Le regole che nessuno ti dice
+## Capitolo 25 — Le regole che nessuno ti dice
 
 «Osa sapere: comincia.»
 
@@ -4080,7 +4081,7 @@ Matteo ci pensò un momento.
 
 «Me lo fai conoscere, prima o poi?»
 
-## Capitolo 25 — La macchina che risponde, ma non chiede
+## Capitolo 26 — La macchina che risponde, ma non chiede
 
 «Se ogni strumento potesse compiere da sé il proprio lavoro, su comando o prevedendolo, non ci sarebbe bisogno né di aiutanti per i capomastri né di schiavi per i padroni.»
 
@@ -4264,7 +4265,7 @@ Quella sera, nella riga della sera, Stefano scrisse il nome della persona con cu
 
 *Matteo.*
 
-## Capitolo 26 — Le porte socchiuse
+## Capitolo 27 — Le porte socchiuse
 
 «Penso che possa essere vero che la fortuna decida la metà delle nostre azioni, ma che ne lasci governare a noi l'altra metà, o quasi.»
 
@@ -4424,7 +4425,7 @@ A giugno, a Torraca, Antonio raccolse i primi fagiolini. Su quaranta buchi ne er
 
 «Succede» disse Antonio, sgranandone uno fra le dita. «Ma se non ne metti quaranta, non ne raccogli trentuno.»
 
-## Capitolo 27 — Il nemico che ti porti in casa
+## Capitolo 28 — Il nemico che ti porti in casa
 
 «Sono più le cose che ci spaventano di quelle che ci opprimono, Lucilio, e soffriamo più spesso nell'immaginazione che nella realtà.»
 
@@ -4586,7 +4587,7 @@ Nella riga della sera Stefano scrisse il QuDiVi, *9*, e sotto:
 
 *detto sì a Pina. non avevo il permesso. me lo sono dato.*
 
-## Capitolo 28 — L'urgente grida, l'importante sussurra
+## Capitolo 29 — L'urgente grida, l'importante sussurra
 
 «Non basta essere operosi: lo sono anche le formiche. Per che cosa sei operoso, tu?»
 
@@ -4756,7 +4757,7 @@ Sotto, nella riga della sera, scrisse soltanto:
 
 *ho tenuto l'aereo.*
 
-## Capitolo 29 — Legna da accendere
+## Capitolo 30 — Legna da accendere
 
 «La mente non ha bisogno, come un vaso, di essere riempita, ma soltanto, come la legna, di essere accesa.»
 
@@ -4952,7 +4953,7 @@ Aurelio, dall'altro capo, aveva taciuto a lungo.
 
 «Va bene» aveva detto alla fine. «Dopo la comunità di giugno.»
 
-## Capitolo 30 — Dove questo libro si ferma
+## Capitolo 31 — Dove questo libro si ferma
 
 «Il primo principio è che non devi ingannare te stesso, e tu sei la persona più facile da ingannare.»
 
@@ -5094,7 +5095,7 @@ Nella riga della sera, quel giorno, non scrisse il minuto prima di nessuna sigar
 
 *Paura. ma ho il numero scritto.*
 
-## Capitolo 31 — L'inganno dell'evidenziatore
+## Capitolo 32 — L'inganno dell'evidenziatore
 
 «Gli uomini, mentre insegnano, imparano.»
 
@@ -5246,7 +5247,7 @@ Sotto, nella riga della sera, scrisse:
 
 *insegnato le disequazioni a Matteo. lui ha insegnato a me le terzine. Aurelio a letto. il 24 il cardiologo. lo accompagno io.*
 
-## Capitolo 32 — Il punto di partenza non decide il punto di arrivo
+## Capitolo 33 — Il punto di partenza non decide il punto di arrivo
 
 «Non è perché le cose sono difficili che non osiamo, ma è perché non osiamo che sono difficili.»
 
@@ -5386,7 +5387,7 @@ Poi scrisse *8*, e sotto:
 
 Due giorni dopo, nella notte fra il ventuno e il ventidue giugno, Rosa lo chiamò alle tre e quaranta.
 
-## Capitolo 33 — Il contadino che diceva forse
+## Capitolo 34 — Il contadino che diceva forse
 
 «Un uccello raro sulla terra, molto simile a un cigno nero.»
 
@@ -5436,7 +5437,7 @@ Stefano non disse niente. Il monitor faceva bip.
 
 ---
 
-«Nel prologo della tua storia, se mai qualcuno la scriverà, ci sarà un cigno nero» disse Aurelio, sorridendo appena. «Ti ho sempre parlato della metafora. Mai della storia vera. Ed è più istruttiva della metafora.»
+«Nel primo capitolo della tua storia, se mai qualcuno la scriverà, ci sarà un cigno nero» disse Aurelio, sorridendo appena. «Ti ho sempre parlato della metafora. Mai della storia vera. Ed è più istruttiva della metafora.»
 
 «Raccontamela.»
 
@@ -5550,7 +5551,7 @@ Aurelio sorrise.
 
 # CHIUSURA
 
-## Capitolo 34 — Tutto, in tre minuti
+## Capitolo 35 — Tutto, in tre minuti
 
 «Fa' poche cose, dice, se vuoi essere sereno.»
 
@@ -5708,7 +5709,7 @@ Poi chiuse il taccuino, e lo riaprì all'ultima pagina scritta, e scrisse la rig
 
 *il caffè ad Aurelio, alle sei.*
 
-## Capitolo 35 — Congedo
+## Capitolo 36 — Congedo
 
 «Fa' così, mio Lucilio: rivendica te stesso a te stesso, e il tempo che finora ti veniva portato via, o sottratto, o ti sfuggiva, raccoglilo e custodiscilo.»
 
@@ -5902,7 +5903,7 @@ Chiudi il libro. Prendi un quaderno qualunque, non serve che sia bello: serve ch
 
 Per ogni capitolo, i concetti chiave del metodo, le domande di verifica e l'esercizio APPO dell'edizione saggistica. Puoi usarle dopo aver letto il capitolo corrispondente, oppure da sole, per ripassare.
 
-### Prefazione — Un grimaldello per le porte chiuse
+### Capitolo 1 — Un grimaldello per le porte chiuse
 
 **I concetti chiave**
 
@@ -5922,7 +5923,7 @@ Questo libro è un grimaldello: non la chiave perfetta per una sola serratura, m
 
 Prendi il quaderno che userai per tutto il percorso. Sulla prima pagina scrivi la data di oggi e completa questa frase: «Ho deciso di imparare a leggere la mia vita perché…». Non cercare parole belle: cerca parole vere. Stasera, prima di dormire, scrivi sotto una sola riga per rispondere a questa domanda: «Che cosa mi ha rallentato, oggi?». È la prima riga del tuo metodo.
 
-### Capitolo 1 — Il giorno in cui arriva il cigno nero
+### Capitolo 2 — Il giorno in cui arriva il cigno nero
 
 **I concetti chiave**
 
@@ -5943,7 +5944,7 @@ I cigni neri sono eventi rari, difficili da prevedere, che scombinano ogni piano
 
 Per sette giorni scrivi due righe sul quaderno: la sera, *che cosa mi ha ostacolato, oggi?*; la mattina, prima di guardare il telefono, la cosa più importante che vuoi vedere realizzata entro sera. Poi rileggi le quattordici righe tutte insieme e sottolinea la parola o il tema che torna più spesso. Scrivilo in cima a una pagina nuova: è il tuo primo punto di lavoro.
 
-### Capitolo 2 — Un libro per leggere la tua vita
+### Capitolo 3 — Un libro per leggere la tua vita
 
 **I concetti chiave**
 
@@ -5963,7 +5964,7 @@ La frase che lo riassume, imparare a leggere la propria vita a partire da oggi c
 
 Sul quaderno, apri una pagina con il titolo «Il mio programma di studi». Scrivi tre competenze che avresti voluto imparare da ragazzo e che nessuno ti ha insegnato, per esempio dire di no senza sentirti in colpa. Accanto a ciascuna, annota una situazione della prossima settimana in cui potresti allenarla. Non serve riuscirci al primo tentativo: serve accorgerti del momento in cui quella situazione arriva.
 
-### Capitolo 3 — Il porto lo scegli tu
+### Capitolo 4 — Il porto lo scegli tu
 
 **I concetti chiave**
 
@@ -5984,7 +5985,7 @@ Il patto ha due condizioni. La prima è l’onestà, intesa come strumento tecni
 
 Sul quaderno, scrivi in alto la frase con cui di solito descrivi il problema che ti pesa di più in questo periodo, esattamente come la diresti a un amico. Sotto, riscrivila tre volte, togliendo ogni volta un elemento di comodo: prima ciò che non dipende da te, poi ciò che ti fa fare bella figura, infine ciò che ti protegge dalla paura. Confronta la prima frase con l’ultima. La differenza fra le due è la misura dell’ulcera che stavi chiamando mal di stomaco.
 
-### Capitolo 4 — La bugia del «non ho tempo»
+### Capitolo 5 — La bugia del «non ho tempo»
 
 **I concetti chiave**
 
@@ -6005,7 +6006,7 @@ Il cronotipo è in buona parte biologico (Jones e colleghi, 2019), e forzarlo pr
 
 Per tre sere annota sul quaderno i minuti passati sul telefono senza uno scopo; molti telefoni li contano da soli. Il quarto giorno scegli un momento che si ripete ogni giorno, il caffè, il parcheggio, la luce che si spegne, e scrivi la tua intenzione nella forma «Dopo il…, scrivo la mia riga». Poi apri il calendario della prossima settimana e segna, prima di qualsiasi altro impegno, trenta minuti per te. Difendili come un appuntamento dal medico.
 
-### Capitolo 5 — Il metodo APPO 2.0, spiegato da zero
+### Capitolo 6 — Il metodo APPO 2.0, spiegato da zero
 
 **I concetti chiave**
 
@@ -6026,7 +6027,7 @@ La domanda del mattino originale era più complessa; quella della sera chiedeva 
 
 Domani mattina, prima di qualsiasi altra cosa, percorri sul quaderno i quattro passaggi del capitolo, una riga per ciascuno: Aspirazione, Problema, Progetto, Opportunità. Rileggi la riga del Problema: se il soggetto è un’altra persona, riscrivila. La sera, accanto alle quattro righe, scrivi soltanto se la mossa del Progetto l’hai fatta, e che cosa si è aperto, se si è aperto qualcosa. Non giudicare il risultato: osservalo.
 
-### Capitolo 6 — La collana dei giorni e il QuDiVi
+### Capitolo 7 — La collana dei giorni e il QuDiVi
 
 **I concetti chiave**
 
@@ -6046,7 +6047,7 @@ Il QuDiVi misura la qualità della giornata, non la quantità di cose fatte: una
 
 Per sette sere, prima della riga della sera, scrivi sul quaderno il QuDiVi della giornata. Accanto, tra parentesi, annota quante ore hai lavorato o quante cose hai spuntato dalla lista. Alla fine della settimana confronta le due colonne e chiediti: i giorni più pieni sono stati anche quelli con il voto più alto? Scrivi in due righe che cosa hai scoperto.
 
-### Capitolo 7 — Il giorno in cui smetterai
+### Capitolo 8 — Il giorno in cui smetterai
 
 **I concetti chiave**
 
@@ -6067,7 +6068,7 @@ Il protocollo di rientro ha tre regole: non recuperare niente, ripartire oggi e 
 
 Oggi stesso scegli il tuo appiglio esterno e preparalo: imposta un promemoria alla stessa ora, oppure attacca un foglietto dove prepari il caffè. Poi scrivi un messaggio alla persona che hai scelto: «Per due settimane scriverò due righe al giorno. Ogni tanto chiedimi se lo sto facendo». Annota sul quaderno la data in cui l’hai mandato. Fra due settimane rileggi questa pagina e scrivi accanto quante righe hai saltato e se il messaggio ti ha aiutato a ritornare sui tuoi passi.
 
-### Capitolo 8 — La riga APPO del mattino
+### Capitolo 9 — La riga APPO del mattino
 
 **I concetti chiave**
 
@@ -6088,7 +6089,7 @@ Il metodo non giudica la grandezza dell’aspirazione, ma quanto ti sta a cuore.
 
 Per cinque mattine, prima di guardare il telefono, rileggi la riga della sera precedente e poi scrivi la riga del mattino. La sera, accanto a ciascuna, metti un segno: pieno se la tua aspirazione è stata realizzata, vuoto se non lo è stata, e una lettera E se non lo è stata per una causa esterna. Al quinto giorno conta i segni. Guarda quante volte la giornata è stata decisa dall'esterno e quante volte ne hai preso tu il controllo.
 
-### Capitolo 9 — La riga della sera
+### Capitolo 10 — La riga della sera
 
 **I concetti chiave**
 
@@ -6109,7 +6110,7 @@ Scrivere ogni sera un piccolo impegno con sé stessi sfrutta il principio di coe
 
 Per due settimane usa le due versioni della domanda della sera, una settimana ciascuna, sempre alla stessa ora. Alla fine della seconda settimana rileggi le quattordici righe, dividile in due colonne e chiediti a quale domanda hai risposto con meno fatica e con più precisione. Scrivi la tua scelta sulla prima pagina del quaderno, con la data. Da quel giorno, tieni quella.
 
-### Capitolo 10 — Il QuDiVi: un contatore meraviglioso delle tue giornate
+### Capitolo 11 — Il QuDiVi: un contatore meraviglioso delle tue giornate
 
 **I concetti chiave**
 
@@ -6130,7 +6131,7 @@ Lo studio di Kahneman e colleghi (2004) su 909 lavoratrici del Texas mostrò che
 
 Per quattro settimane assegna ogni sera il QuDiVi prima della riga della sera, senza mai correggerlo. Ogni domenica calcola la media dei sette voti e scrivila accanto alla data. Alla fine del mese, guarda i giorni con i voti più alti e quelli con i voti più bassi, e annota accanto a ciascun gruppo che cosa avevano in comune: giorni della settimana, attività, persone. È la tua prima classifica personale.
 
-### Capitolo 11 — Due righe bastano?
+### Capitolo 12 — Due righe bastano?
 
 **I concetti chiave**
 
@@ -6151,7 +6152,7 @@ Nei giorni senza tempo basta una parola, per non interrompere la sequenza. La ri
 
 Prepara oggi la tua scheda definitiva. Se usi la carta, scegli un taccuino tascabile e traccia sulla prima pagina la struttura: una riga in alto, una in basso, uno spazio per il numero. Se usi il telefono, crea una nota protetta con lo stesso schema e mettila fra le prime schermate. Poi rifai l’esercizio della settimana a memoria e conserva il foglio: fra sette giorni confrontalo con le righe che avrai scritto nel frattempo.
 
-### Capitolo 12 — Il rito di amarsi
+### Capitolo 13 — Il rito di amarsi
 
 **I concetti chiave**
 
@@ -6172,7 +6173,7 @@ Se la media resta ferma per settimane, la causa è quasi sempre un problema di c
 
 Questa settimana fai il tuo primo rito di amarsi, completo. Rileggi, sottolinea a matita, calcola la media e scrivila accanto alla data. Poi scrivi l’esperimento nella forma «Questa settimana, quando…, farò…». Infine scrivi la riga di grazie, con un nome e un fatto, e trova un momento, entro tre giorni, per ringraziare direttamente quella persona . Annota sul quaderno come ha reagito.
 
-### Capitolo 13 — Guardare la marea, non l’onda
+### Capitolo 14 — Guardare la marea, non l’onda
 
 **I concetti chiave**
 
@@ -6193,7 +6194,7 @@ Un obiettivo specifico funziona molto meglio se accompagnato da un riscontro reg
 
 Scegli oggi la data del tuo primo momento mensile e segnala in calendario. Quel giorno, rileggi gli appunti dei riti settimanali e rispondi sul quaderno alle tre domande, una riga ciascuna, poi alle due annotazioni sugli imprevisti. Chiudi scrivendo una sola frase: «Il mese prossimo cambio…», scegliendo se cambiare l’Aspirazione, il Problema o il Progetto. Se non serve cambiare niente, scrivilo: anche questo è un dato.
 
-### Capitolo 14 — Un bracciale d’oro in bigiotteria
+### Capitolo 15 — Un bracciale d’oro in bigiotteria
 
 **I concetti chiave**
 
@@ -6214,7 +6215,7 @@ Le reazioni a una buona notizia sono quattro, e soltanto quella che si illumina 
 
 Sul quaderno, apri una pagina con due colonne. A sinistra scrivi le persone con cui hai passato più tempo nell’ultima settimana, di persona o al telefono; a destra, accanto a ciascuna, la reazione che ha avuto l’ultima volta che le hai raccontato una cosa bella, usando le quattro risposte del capitolo. Non tagliare nessuno. Scegli soltanto la persona che si è illuminata e raccontale, entro sette giorni, il primo piccolo risultato che ti darà il metodo.
 
-### Capitolo 15 — La domanda che non se ne va
+### Capitolo 16 — La domanda che non se ne va
 
 **I concetti chiave**
 
@@ -6234,7 +6235,7 @@ Il senso non è un premio in fondo al percorso, ma sta nel modo in cui si attrav
 
 Sul quaderno, scrivi in cima a una pagina la domanda di questo capitolo: «Come faccio a non sprecare nemmeno un giorno del tempo che mi resta?». Sotto, rispondi soltanto per domani, con una riga per ciascuna delle quattro parole del metodo. Domani sera rileggi la pagina e annota se, almeno per un’ora, la giornata è andata nella direzione che avevi scritto.
 
-### Capitolo 16 — Una dichiarazione d’amore
+### Capitolo 17 — Una dichiarazione d’amore
 
 **I concetti chiave**
 
@@ -6254,7 +6255,7 @@ L’efficacia è fare le cose giuste, l’efficienza è farle nel modo giusto (D
 
 Sul quaderno, dividi una pagina in due colonne con i titoli «Dipende da me» e «Non dipende da me». Scrivi nelle colonne le cinque preoccupazioni che ti occupano di più la mente in questo periodo. Poi, per ogni voce della prima colonna, scrivi accanto la mossa più piccola che potresti fare entro tre giorni, e scegline una per la riga del mattino di domani.
 
-### Capitolo 17 — La consapevolezza evapora alle nove e mezza
+### Capitolo 18 — La consapevolezza evapora alle nove e mezza
 
 **I concetti chiave**
 
@@ -6275,7 +6276,7 @@ Sapere non basta: senza uno strumento che sopravviva alla giornata reale, la con
 
 Scegli una relazione importante che stai trascurando, una persona che conta per te e che senti troppo poco. Per i prossimi sette giorni, almeno tre mattine, scrivi come riga del mattino un gesto concreto verso di lei: una telefonata, un messaggio vero, un caffè insieme. La sera, nel QuDiVi, osserva se le giornate in cui hai fatto quel gesto hanno avuto un voto diverso dalle altre.
 
-### Capitolo 18 — Una testa antica in un mondo nuovo
+### Capitolo 19 — Una testa antica in un mondo nuovo
 
 **I concetti chiave**
 
@@ -6296,7 +6297,7 @@ Il quadrato di Cipolla (*Allegro ma non troppo*, 1988\) incrocia il vantaggio o 
 
 Per una settimana, ogni sera, aggiungi alla riga della sera una lettera: I, B, S oppure St, a seconda della casella del quadrato di Cipolla in cui è finita l’azione più significativa della giornata. Non giudicarti: annota soltanto. Alla fine della settimana conta le lettere e cerca, accanto alle azioni finite nella casella stupida, il momento in cui hai reagito d’impulso. Scrivi quale segnale del corpo lo ha preceduto.
 
-### Capitolo 19 — L’uomo che aspettò qualche minuto
+### Capitolo 20 — L’uomo che aspettò qualche minuto
 
 **I concetti chiave**
 
@@ -6317,7 +6318,7 @@ Il 26 settembre 1983 Stanislav Petrov mise qualche minuto fra un falso allarme n
 
 Pensa a una situazione che ti aspetta questa settimana e che temi possa farti reagire d’impulso: una riunione, una telefonata, una conversazione in famiglia. Oggi, a freddo, quando non ti costa niente, scrivi sul quaderno le tue risposte alle quattro domande per quella situazione. Il giorno in cui accadrà, rileggile prima di entrare. La sera, nella riga della sera, annota se e quando ti sono servite.
 
-### Capitolo 20 — La batteria della volontà
+### Capitolo 21 — La batteria della volontà
 
 **I concetti chiave**
 
@@ -6338,7 +6339,7 @@ Per questo il metodo è tarato sul giorno peggiore e chiede di avere bisogno di 
 
 Guarda la prossima settimana e scegli la più difficile delle prossime quattro. Segnala sul calendario con la scritta «settimana di prova». Per quei sette giorni non aggiungere niente al metodo: soltanto le due righe e il QuDiVi, agganciati sempre agli stessi due momenti. Alla fine della settimana rileggi tutto e scrivi in tre righe che cosa ha funzionato anche a batteria scarica, e che cosa no.
 
-### Capitolo 21 — L’unico mestiere che non puoi delegare
+### Capitolo 22 — L’unico mestiere che non puoi delegare
 
 **I concetti chiave**
 
@@ -6358,7 +6359,7 @@ Le situazioni in cui serve sono molte, dal lavoro in proprio alla pensione, dai 
 
 Sul quaderno, scrivi la situazione dell’elenco in cui ti riconosci di più e, sotto, le quattro parole del metodo applicate a quella situazione: dove vuoi arrivare, qual è l’ostacolo vero, qual è la mossa più piccola, che cosa si potrebbe aprire. Poi scegli una sola riparazione della tua officina, piccola e concreta, e scrivila come riga del mattino di domani.
 
-### Capitolo 22 — Un armadio pieno di chiavi
+### Capitolo 23 — Un armadio pieno di chiavi
 
 **I concetti chiave**
 
@@ -6378,7 +6379,7 @@ APPO è costruito come un grimaldello: lavora sul meccanismo comune a tutte le p
 
 Sul quaderno, elenca i metodi, le applicazioni o i corsi che hai provato negli ultimi anni. Accanto a ciascuno scrivi tre cose: quanto tempo al giorno ti chiedeva, quale porta apriva (lavoro, abitudini, relazioni, mentalità) e dopo quanto tempo l’hai lasciato. Guarda la colonna del tempo: è quasi sempre lì, più che nella tua costanza, la ragione dell’abbandono.
 
-### Capitolo 23 — Non si cambia strumento: si affila
+### Capitolo 24 — Non si cambia strumento: si affila
 
 **I concetti chiave**
 
@@ -6398,7 +6399,7 @@ Il Kaizen (Imai, 1986), nato nelle fabbriche giapponesi del dopoguerra anche gra
 
 Rileggi le righe delle ultime due settimane e cerca il punto in cui il metodo si inceppa più spesso: una riga che salti, un momento che non regge, un giorno della settimana che va sempre storto. Scrivi sul quaderno un solo aggiustamento, nella forma «Da domani, invece di…, faccio…». Provalo per sette giorni senza cambiare nient’altro, e annota alla fine se ha funzionato.
 
-### Capitolo 24 — Le regole che nessuno ti dice
+### Capitolo 25 — Le regole che nessuno ti dice
 
 **I concetti chiave**
 
@@ -6418,7 +6419,7 @@ Il mercato usa scarsità, riprova sociale, autorità, simpatia e coerenza (Ciald
 
 Per una settimana, ogni volta che una proposta ti tenta, che sia un acquisto, un corso o un’applicazione, annota sul quaderno quale leva del capitolo l’ha resa attraente e rispondi alle tre domande prima di comprare. Alla fine della settimana conta quante proposte hanno superato le tre domande. Fai la stessa prova con il metodo di questo libro: scrivi quale parte riduce il tuo attrito e quale no.
 
-### Capitolo 25 — La macchina che risponde, ma non chiede
+### Capitolo 26 — La macchina che risponde, ma non chiede
 
 **I concetti chiave**
 
@@ -6439,7 +6440,7 @@ Gli errori più frequenti sono due: delegare il pensiero invece della fatica mec
 
 Scegli la riga della sera che si è ripetuta più spesso nelle ultime settimane e descrivila sul quaderno con parole tue, come la racconteresti a un amico, senza nomi né dettagli riconoscibili. Poi elenca cinque primi passi possibili, ciascuno da meno di quindici minuti: scrivili tu oppure, se usi uno strumento di intelligenza artificiale, chiedigli soltanto le alternative, non la soluzione. Scegline uno, uno solo, e fanne la riga del mattino di domani. Infine scrivi il nome di una persona con cui potresti parlare di ciò che hai scoperto.
 
-### Capitolo 26 — Le porte socchiuse
+### Capitolo 27 — Le porte socchiuse
 
 **I concetti chiave**
 
@@ -6460,7 +6461,7 @@ L’opzionalità (Taleb, 2012\) consiste nel moltiplicare piccole azioni a basso
 
 Al prossimo momento mensile, scrivi sul quaderno l’inventario delle tue porte socchiuse: due o tre voci, ciascuna con una riga che dica che cosa è e quanto ti costa tenerla aperta. Poi rileggi le righe dell’ultimo mese e cerca un’Opportunità, anche minima. Accanto, rispondi alla domanda «perché adesso?»: quale piccola azione ripetuta l’ha resa possibile? Se la trovi, scrivi come potresti ripeterla il mese prossimo.
 
-### Capitolo 27 — Il nemico che ti porti in casa
+### Capitolo 28 — Il nemico che ti porti in casa
 
 **I concetti chiave**
 
@@ -6481,7 +6482,7 @@ La lamentela sembra uno sfogo salutare, ma è inazione: descrive il problema inv
 
 Per sette giorni, ogni volta che ti accorgi di stare per lamentarti, annota sul quaderno la lamentela in poche parole e accanto la domanda «sto descrivendo, o sto spostando?». Sotto, scrivi una sola azione piccola che sposterebbe il problema, anche se poi non la fai. Alla fine della settimana rileggi l’elenco, segna le lamentele che si ripetono e scegli quella su cui fare la prima mossa nella settimana successiva.
 
-### Capitolo 28 — L’urgente grida, l’importante sussurra
+### Capitolo 29 — L’urgente grida, l’importante sussurra
 
 **I concetti chiave**
 
@@ -6502,7 +6503,7 @@ Nel volo Eastern Air Lines 401 (1972) tre professionisti esperti lavoravano con 
 
 Per una settimana, ogni sera, accanto al voto QuDiVi, annota sul quaderno quanti minuti hai dedicato alla cosa importante ma non urgente che avevi scelto al mattino. Non giudicare il numero: scrivilo e basta. Alla fine della settimana guarda insieme le due colonne, i minuti e i voti, e chiediti se i giorni con più minuti nella casella che sussurra sono stati anche quelli più degni di essere vissuti.
 
-### Capitolo 29 — Legna da accendere
+### Capitolo 30 — Legna da accendere
 
 **I concetti chiave**
 
@@ -6523,7 +6524,7 @@ Molti litigi nascono da un vocabolario emotivo povero: chi conosce soltanto la r
 
 Per una settimana, nella riga della sera, aggiungi una parola sola per dire che cosa hai provato nel momento più difficile della giornata. Evita le parole generiche come «bene», «male» o «stressato», e cerca quella più precisa: deluso, umiliato, preoccupato, escluso, sollevato. Alla fine della settimana rileggi sul quaderno le sette parole e chiediti se, avendo trovato subito la parola giusta, avresti reagito in un altro modo.
 
-### Capitolo 30 — Dove questo libro si ferma
+### Capitolo 31 — Dove questo libro si ferma
 
 **I concetti chiave**
 
@@ -6544,7 +6545,7 @@ La sofferenza psichica seria è una questione clinica, non motivazionale: il pri
 
 Questa volta l’esercizio ha due parti, e la prima vale per tutti. Scrivi sul quaderno, in una pagina che ritrovi facilmente, il nome e il numero di telefono del tuo medico di base e dei servizi che potrebbero servirti, a te o a una persona a cui vuoi bene. Se la risposta alla prima domanda di verifica è sì, non aspettare: chiama oggi; il libro ti aspetta, non ha fretta e non se ne va. La seconda parte vale soltanto se fumi: per tre settimane usa la riga della sera per annotare il minuto prima di una sigaretta, cioè dove eri, con chi e che cosa provavi, e alla fine rileggi tutto cercando lo schema.
 
-### Capitolo 31 — L’inganno dell’evidenziatore
+### Capitolo 32 — L’inganno dell’evidenziatore
 
 **I concetti chiave**
 
@@ -6565,7 +6566,7 @@ Insegnare fa imparare perché costringe a tirare fuori le cose dalla testa (Sene
 
 Scegli un capitolo di questo libro che hai già letto, chiudi il libro e scrivi sul quaderno, a memoria, i tre concetti che ricordi meglio: è il passo Controlla. Poi spiega il primo con parole tue, come se dovessi raccontarlo a un amico: è il passo Descrivi. Soltanto alla fine riapri il capitolo e confronta. Ripeti la stessa prova fra una settimana, senza rileggere prima, e annota quanto è rimasto.
 
-### Capitolo 32 — Il punto di partenza non decide il punto di arrivo
+### Capitolo 33 — Il punto di partenza non decide il punto di arrivo
 
 **I concetti chiave**
 
@@ -6586,7 +6587,7 @@ Vanno lette con la cautela del pregiudizio di sopravvivenza: sono scelte fra chi
 
 Scrivi sul quaderno la condizione che, in questo periodo, stai usando come prova che non è il momento: poco tempo, pochi soldi, una situazione familiare, un’età. Sotto, rispondi a una domanda sola: che cosa potrei fare dentro questa condizione, e non dopo, in meno di quindici minuti? Fanne la riga del mattino di domani, e la sera, nella riga della sera, scrivi che cosa hai imparato.
 
-### Capitolo 33 — Il contadino che diceva forse
+### Capitolo 34 — Il contadino che diceva forse
 
 **I concetti chiave**
 
@@ -6607,7 +6608,7 @@ La resilienza, in senso stretto, è tornare come prima dopo un colpo; l’antifr
 
 Scrivi sul quaderno un evento degli ultimi anni che al momento hai giudicato una disgrazia, e uno che hai giudicato una fortuna. Accanto a ciascuno annota che cosa ne è venuto dopo, a distanza di mesi o di anni. Poi scegli una situazione che stai vivendo adesso e scrivi, come il contadino, soltanto «forse», seguito da due possibili sviluppi, uno favorevole e uno sfavorevole. Rileggi questa pagina al prossimo momento mensile.
 
-### Capitolo 34 — Tutto, in tre minuti
+### Capitolo 35 — Tutto, in tre minuti
 
 **I concetti chiave**
 
@@ -6641,7 +6642,7 @@ La sua formazione di partenza è tecnica. Viene dall’informatica ed è stato t
 
 Ha una laurea in scienze economiche e bancarie, con una tesi originale su un metodo di marketing basato sulla creazione di micromercati virtuali. Da oltre venticinque anni lavora come consulente di web marketing.
 
-Prima del metodo APPO ha messo a punto un metodo di studio, ZDC — Zooma, Descrivi, Controlla, che è il seme da cui APPO è nato e a cui questo libro dedica il capitolo 31\. Al metodo APPO ha dedicato diversi libri, che lo applicano alla crescita personale, alla formazione di chi vuole insegnarlo, all’alfabetizzazione sull’intelligenza artificiale, al marketing e al sostegno alle persone che affrontano una malattia oncologica.
+Prima del metodo APPO ha messo a punto un metodo di studio, ZDC — Zooma, Descrivi, Controlla, che è il seme da cui APPO è nato e a cui questo libro dedica il capitolo 32\. Al metodo APPO ha dedicato diversi libri, che lo applicano alla crescita personale, alla formazione di chi vuole insegnarlo, all’alfabetizzazione sull’intelligenza artificiale, al marketing e al sostegno alle persone che affrontano una malattia oncologica.
 
 Usa il metodo scientifico in tutto quello che fa. È il filo che tiene insieme l’informatica, l’economia e la formazione: osservare, formulare un’ipotesi, verificarla sui dati, cambiare idea quando i dati lo chiedono. Per questo ogni affermazione sul comportamento umano contenuta in questo libro è stata controllata sulle fonti, e dove una convinzione diffusa non reggeva è stata corretta: il testo attribuito a Sant’Agostino che è di padre Giacomo Perico, i ventuno giorni delle abitudini che non hanno base nella ricerca, lo studio sui giudici che è stato ridimensionato, la batteria della volontà che è una metafora e non un meccanismo fisiologico. Se trovi un errore, scrivigli: le edizioni successive lo correggeranno. Per la stessa ragione il metodo APPO è a disposizione di qualunque gruppo di ricerca voglia metterlo alla prova con uno studio controllato randomizzato.
 
@@ -6669,95 +6670,95 @@ Gli aggiornamenti, l’elenco completo delle fonti e le schede stampabili si tro
 
 Qui trovi, capitolo per capitolo, le opere e le ricerche citate nel libro, comprese le fonti delle citazioni di apertura. Dove il testo ha corretto o ridimensionato un’attribuzione diffusa, lo trovi segnalato nella sezione che segue l’elenco.
 
-### Prefazione
+### Capitolo 1
 
 - Popper, K. R. (1934). *Logik der Forschung*. Wien: Springer (trad. it. *Logica della scoperta scientifica*, Torino: Einaudi).
 
-### Capitolo 1
+### Capitolo 2
 
 - Seneca, *Lettere a Lucilio*, lettera 18, 6\.
 
-### Capitolo 2
+### Capitolo 3
 
 - Platone, *Apologia di Socrate*, 38a.
 
-### Capitolo 3
+### Capitolo 4
 
 - Seneca, *Lettere a Lucilio*, lettera 71, 3\.
 
-### Capitolo 4
+### Capitolo 5
 
 - Jones, S. E., Lane, J. M., Wood, A. R., et al. (2019). Genome-wide association analyses of chronotype in 697,828 individuals provides insights into circadian rhythms. *Nature Communications*, 10, 343\.  
 - Seneca, *La brevità della vita*, 1, 3\.  
 - Wittmann, M., Dinich, J., Merrow, M., & Roenneberg, T. (2006). Social jetlag: Misalignment of biological and social time. *Chronobiology International*, 23(1–2), 497–509.
 
-### Capitolo 5
+### Capitolo 6
 
 - Dewey, J. (1938). *Logic: The Theory of Inquiry*. New York: Henry Holt.  
 - Doran, G. T. (1981). There’s a S.M.A.R.T. way to write management’s goals and objectives. *Management Review*, 70(11), 35–36.
 
-### Capitolo 6
+### Capitolo 7
 
 - Marco Aurelio, *Pensieri*, II, 5\.  
 - NASA, fotografia della Terra come «puntino azzurro» (*Pale Blue Dot*), scattata dalla sonda Voyager 1 il 14 febbraio 1990\.  
 - Sagan, C. (1994). *Pale Blue Dot: A Vision of the Human Future in Space*. New York: Random House.
 
-### Capitolo 7
+### Capitolo 8
 
 - Fogg, B. J. (2019). *Tiny Habits: The Small Changes That Change Everything*. Boston: Houghton Mifflin Harcourt.  
 - Lally, P., van Jaarsveld, C. H. M., Potts, H. W. W., & Wardle, J. (2010). How are habits formed: Modelling habit formation in the real world. *European Journal of Social Psychology*, 40(6), 998–1009.  
 - Proverbio giapponese *nana korobi ya oki* («cadi sette volte, rialzati otto»).
 
-### Capitolo 8
+### Capitolo 9
 
 - Esiodo, *Le opere e i giorni*, verso 410\.  
 - Maltz, M. (1960). *Psycho-Cybernetics*. Englewood Cliffs, NJ: Prentice-Hall.
 
-### Capitolo 9
+### Capitolo 10
 
 - Cialdini, R. B. (1984). *Influence: The Psychology of Persuasion*. New York: William Morrow (trad. it. *Le armi della persuasione*, Firenze: Giunti).  
 - Franklin, B. *Autobiografia*, scritta fra il 1771 e il 1790 (le tredici virtù e le domande del mattino e della sera).  
 - Seneca, *L’ira*, III, 36 (l’esame serale appreso dal filosofo Sestio).
 
-### Capitolo 10
+### Capitolo 11
 
 - Kahneman, D., Krueger, A. B., Schkade, D. A., Schwarz, N., & Stone, A. A. (2004). A survey method for characterizing daily life experience: The day reconstruction method. *Science*, 306(5702), 1776–1780.  
 - Seneca, *Lettere a Lucilio*, lettera 77, 20\.
 
-### Capitolo 11
+### Capitolo 12
 
 - Iyengar, S. S., & Lepper, M. R. (2000). When choice is demotivating: Can one desire too much of a good thing? *Journal of Personality and Social Psychology*, 79(6), 995–1006.  
 - Orazio, *Ars poetica*, verso 23\.  
 - Scheibehenne, B., Greifeneder, R., & Todd, P. M. (2010). Can there ever be too many options? A meta-analytic review of choice overload. *Journal of Consumer Research*, 37(3), 409–425.
 
-### Capitolo 12
+### Capitolo 13
 
 - Di Stefano, G., Gino, F., Pisano, G. P., & Staats, B. R. (2014). *Making Experience Count: The Role of Reflection in Individual Learning*. Harvard Business School Working Paper 14-093.  
 - Montaigne, M. de, *Saggi*, I, 39\.
 
-### Capitolo 13
+### Capitolo 14
 
 - Eraclito, frammento 91 Diels-Kranz, tramandato da Plutarco, *L’E di Delfi*, 392b.  
 - Locke, E. A., & Latham, G. P. (1990). *A Theory of Goal Setting and Task Performance*. Englewood Cliffs, NJ: Prentice-Hall.
 
-### Capitolo 14
+### Capitolo 15
 
 - Gable, S. L., Reis, H. T., Impett, E. A., & Asher, E. R. (2004). What do you do when things go right? The intrapersonal and interpersonal benefits of sharing positive events. *Journal of Personality and Social Psychology*, 87(2), 228–245.  
 - Rohn, J. Aforisma attribuito: «siamo la media delle cinque persone che frequentiamo». Non è un risultato di ricerca, e nel libro è presentato come tale.  
 - Seneca, *Lettere a Lucilio*, lettera 7, 1\.
 
-### Capitolo 15
+### Capitolo 16
 
 - Kierkegaard, S. *Diari*, 1843\.  
 - Perico, G. (2001). *Resta con noi Signore\!* San Paolo Edizioni, con prefazione del cardinale Carlo Maria Martini.
 
-### Capitolo 16
+### Capitolo 17
 
 - Covey, S. R. (1989). *The 7 Habits of Highly Effective People*. New York: Free Press (trad. it. *Le 7 regole per avere successo*, Milano: Franco Angeli).  
 - Drucker, P. F. (1967). *The Effective Executive*. New York: Harper & Row.  
 - Epitteto, *Manuale* (*Enchiridion*), capitolo 1\.
 
-### Capitolo 17
+### Capitolo 18
 
 - Buettner, D. (2008). *The Blue Zones: Lessons for Living Longer from the People Who’ve Lived the Longest*. Washington, DC: National Geographic.  
 - Epicuro, *Massime capitali*, XXVII.  
@@ -6765,17 +6766,17 @@ Qui trovi, capitolo per capitolo, le opere e le ricerche citate nel libro, compr
 - Newman, S. J. (2019). Supercentenarians and the oldest-old are concentrated into regions with no birth certificates and short lifespans. *bioRxiv*, 704080, e versioni successive.  
 - Waldinger, R., & Schulz, M. (2023). *The Good Life: Lessons from the World’s Longest Scientific Study of Happiness*. New York: Simon & Schuster.
 
-### Capitolo 18
+### Capitolo 19
 
 - Cipolla, C. M. (1988). *Allegro ma non troppo*. Bologna: il Mulino (contiene «Le leggi fondamentali della stupidità umana»).  
 - Wilson, E. O. Dibattito allo Harvard Museum of Natural History, Cambridge (Massachusetts), settembre 2009\.
 
-### Capitolo 19
+### Capitolo 20
 
 - Aristotele, *Etica Nicomachea*, II, 9, 1109a.  
 - Il falso allarme missilistico del 26 settembre 1983 nel bunker di Serpuchov-15, vicino a Mosca, e la decisione del tenente colonnello Stanislav Petrov.
 
-### Capitolo 20
+### Capitolo 21
 
 - Baumeister, R. F., Bratslavsky, E., Muraven, M., & Tice, D. M. (1998). Ego depletion: Is the active self a limited resource? *Journal of Personality and Social Psychology*, 74(5), 1252–1265.  
 - Danziger, S., Levav, J., & Avnaim-Pesso, L. (2011). Extraneous factors in judicial decisions. *Proceedings of the National Academy of Sciences*, 108(17), 6889–6892.  
@@ -6783,64 +6784,64 @@ Qui trovi, capitolo per capitolo, le opere e le ricerche citate nel libro, compr
 - Galla, B. M., & Duckworth, A. L. (2015). More than resisting temptation: Beneficial habits mediate the relationship between self-control and positive life outcomes. *Journal of Personality and Social Psychology*, 109(3), 508–525.  
 - Gollwitzer, P. M., & Sheeran, P. (2006). Implementation intentions and goal achievement: A meta-analysis of effects and processes. *Advances in Experimental Social Psychology*, 38, 69–119.  
 - Hagger, M. S., Chatzisarantis, N. L. D., et al. (2016). A multilab preregistered replication of the ego-depletion effect. *Perspectives on Psychological Science*, 11(4), 546–573.  
-- Lally, P., van Jaarsveld, C. H. M., Potts, H. W. W., & Wardle, J. (2010). Vedi capitolo 7\. La variabilità va da 18 a 254 giorni; la mediana di 66 giorni riguarda il sottoinsieme dei partecipanti i cui dati si adattavano al modello.  
+- Lally, P., van Jaarsveld, C. H. M., Potts, H. W. W., & Wardle, J. (2010). Vedi capitolo 8\. La variabilità va da 18 a 254 giorni; la mediana di 66 giorni riguarda il sottoinsieme dei partecipanti i cui dati si adattavano al modello.  
 - Ovidio, *Metamorfosi*, VII, 20-21 (le parole di Medea).  
 - Vohs, K. D., Schmeichel, B. J., et al. (2021). A multisite preregistered paradigmatic test of the ego-depletion effect. *Psychological Science*, 32(10), 1566–1581.  
 - Weinshall-Margel, K., & Shapard, J. (2011). Overlooked factors in the analysis of parole decisions. *Proceedings of the National Academy of Sciences*, 108(42), E833.
 
-### Capitolo 21
+### Capitolo 22
 
 - Montaigne, M. de, *Saggi*, III, 13\.
 
-### Capitolo 22
+### Capitolo 23
 
 - Allen, D. (2001). *Getting Things Done: The Art of Stress-Free Productivity*. New York: Viking.  
 - Clear, J. (2018). *Atomic Habits*. New York: Avery.  
-- Covey, S. R. (1989). Vedi capitolo 16\.  
+- Covey, S. R. (1989). Vedi capitolo 17\.  
 - Pascal, B. *Lettere provinciali*, XVI, 1656\.
-
-### Capitolo 23
-
-- Imai, M. (1986). *Kaizen: The Key to Japan’s Competitive Success*. New York: McGraw-Hill.  
-- Lally, P., e colleghi (2010). Vedi capitolo 7\.  
-- Seneca, *Lettere a Lucilio*, lettera 2, 3\.  
-- W. Edwards Deming e i programmi di formazione *Training Within Industry* nel Giappone del dopoguerra.
 
 ### Capitolo 24
 
-- Cialdini, R. B. (1984). Vedi capitolo 9\.  
+- Imai, M. (1986). *Kaizen: The Key to Japan’s Competitive Success*. New York: McGraw-Hill.  
+- Lally, P., e colleghi (2010). Vedi capitolo 8\.  
+- Seneca, *Lettere a Lucilio*, lettera 2, 3\.  
+- W. Edwards Deming e i programmi di formazione *Training Within Industry* nel Giappone del dopoguerra.
+
+### Capitolo 25
+
+- Cialdini, R. B. (1984). Vedi capitolo 10\.  
 - König, L., & Jucks, R. (2019). Influence of enthusiastic language on the credibility of health information and the trustworthiness of science communicators: Insights from a between-subject web-based experiment. *Interactive Journal of Medical Research*, 8(3), e13619.  
 - Orazio, *Epistole*, I, 2, 40-41.  
 - Publilio Siro, *Sentenze* («Beneficium accipere libertatem est vendere»).  
 - Ross, L. (1977). The intuitive psychologist and his shortcomings: Distortions in the attribution process. *Advances in Experimental Social Psychology*, 10, 173–220.
 
-### Capitolo 25
+### Capitolo 26
 
 - Aristotele, *Politica*, I, 4, 1253b.  
 - Reber, R., & Schwarz, N. (1999). Effects of perceptual fluency on judgments of truth. *Consciousness and Cognition*, 8(3), 338–342.
 
-### Capitolo 26
+### Capitolo 27
 
 - Machiavelli, N. *Il Principe*, XXV (scritto nel 1513, pubblicato nel 1532).  
 - Mitchell, K. E., Levin, A. S., & Krumboltz, J. D. (1999). Planned happenstance: Constructing unexpected career opportunities. *Journal of Counseling & Development*, 77(2), 115–124.  
 - Taleb, N. N. (2012). *Antifragile: Things That Gain from Disorder*. New York: Random House (trad. it. *Antifragile. Prosperare nel disordine*, Milano: il Saggiatore, 2013).  
 - Wiseman, R. (2003). *The Luck Factor*. London: Century. Esperimento descritto in un libro divulgativo, non in una serie di studi controllati.
 
-### Capitolo 27
+### Capitolo 28
 
 - Bushman, B. J. (2002). Does venting anger feed or extinguish the flame? Catharsis, rumination, distraction, anger, and aggressive responding. *Personality and Social Psychology Bulletin*, 28(6), 724–731.  
 - Pronin, E., Lin, D. Y., & Ross, L. (2002). The bias blind spot: Perceptions of bias in self versus others. *Personality and Social Psychology Bulletin*, 28(3), 369–381.  
 - Seneca, *Lettere a Lucilio*, lettera 13, 4\.
 
-### Capitolo 28
+### Capitolo 29
 
-- Covey, S. R. (1989). Vedi capitolo 16 (la matrice dell’urgente e dell’importante).  
+- Covey, S. R. (1989). Vedi capitolo 17 (la matrice dell’urgente e dell’importante).  
 - Eisenhower, D. D. Discorso alla seconda Assemblea del Consiglio ecumenico delle Chiese, Evanston (Illinois), 19 agosto 1954\.  
 - National Transportation Safety Board (1973). *Aircraft Accident Report: Eastern Air Lines, Inc., L-1011, N310EA, Miami, Florida, December 29, 1972* (NTSB-AAR-73-14). Washington, DC: NTSB.  
 - Thoreau, H. D. Lettera a H. G. O. Blake, 16 novembre 1857\.  
 - Zhu, M., Yang, Y., & Hsee, C. K. (2018). The mere urgency effect. *Journal of Consumer Research*, 45(3), 673–690.
 
-### Capitolo 29
+### Capitolo 30
 
 - Consiglio dell’Unione Europea (2018). Raccomandazione del Consiglio del 22 maggio 2018 relativa alle competenze chiave per l’apprendimento permanente (2018/C 189/01). *Gazzetta ufficiale dell’Unione europea*, C 189 del 4 giugno 2018\.  
 - Goleman, D. (1995). *Emotional Intelligence: Why It Can Matter More Than IQ*. New York: Bantam Books (trad. it. *Intelligenza emotiva*, Milano: Rizzoli).  
@@ -6852,7 +6853,7 @@ Qui trovi, capitolo per capitolo, le opere e le ricerche citate nel libro, compr
 - Plutarco, *L’arte di ascoltare* (*De recta ratione audiendi*), in *Moralia*, 48c.  
 - Salovey, P., & Mayer, J. D. (1990). Emotional intelligence. *Imagination, Cognition and Personality*, 9(3), 185–211.
 
-### Capitolo 30
+### Capitolo 31
 
 - AIFA, Osservatorio nazionale sull’impiego dei medicinali. *L’uso dei farmaci in Italia. Rapporto nazionale OsMed*, edizioni annuali, per i dati italiani.  
 - American Psychiatric Association (2013). *Diagnostic and Statistical Manual of Mental Disorders*, quinta edizione (DSM-5), per i criteri del disturbo da alimentazione incontrollata.  
@@ -6862,14 +6863,14 @@ Qui trovi, capitolo per capitolo, le opere e le ricerche citate nel libro, compr
 - Sin, N. L., & Lyubomirsky, S. (2009). Enhancing well-being and alleviating depressive symptoms with positive psychology interventions: A practice-friendly meta-analysis. *Journal of Clinical Psychology*, 65(5), 467–487.  
 - White, C. A., Uttl, B., & Holder, M. D. (2019). Meta-analyses of positive psychology interventions: The effects are much smaller than previously reported. *PLoS ONE*, 14(5), e0216588.
 
-### Capitolo 31
+### Capitolo 32
 
 - Bjork, R. A. (1994). Memory and metamemory considerations in the training of human beings. In J. Metcalfe & A. P. Shimamura (a cura di), *Metacognition: Knowing About Knowing* (pp. 185–205). Cambridge, MA: MIT Press.  
 - Dunlosky, J., Rawson, K. A., Marsh, E. J., Nathan, M. J., & Willingham, D. T. (2013). Improving students’ learning with effective learning techniques: Promising directions from cognitive and educational psychology. *Psychological Science in the Public Interest*, 14(1), 4–58.  
 - Roediger, H. L., III, & Karpicke, J. D. (2006). Test-enhanced learning: Taking memory tests improves long-term retention. *Psychological Science*, 17(3), 249–255. Esperimento 2: 83 per cento contro 71 a cinque minuti; 40 per cento contro 61 a una settimana; 14,2 letture contro 3,4.  
 - Seneca, *Lettere a Lucilio*, lettera 7, 8\.
 
-### Capitolo 32
+### Capitolo 33
 
 - Branson, R. (1998). *Losing My Virginity*. London: Virgin Books.  
 - Branson, R. Intervista a NPR, «Virgin’s Richard Branson Bares His Business Secrets», 10 ottobre 2012 (la scuola lasciata a quindici anni; la differenza fra utile netto e utile lordo).  
@@ -6878,20 +6879,20 @@ Qui trovi, capitolo per capitolo, le opere e le ricerche citate nel libro, compr
 - Schultz, H., & Yang, D. J. (1997). *Pour Your Heart Into It: How Starbucks Built a Company One Cup at a Time*. New York: Hyperion.  
 - Seneca, *Lettere a Lucilio*, lettera 104, 26\.
 
-### Capitolo 33
+### Capitolo 34
 
 - Giovenale, *Satire*, VI, 165\.  
 - Haworth, D. (2021). Friday essay: A rare bird — how Europeans got the black swan so wrong. *The Conversation*, giugno 2021 (la spedizione di Willem de Vlamingh del gennaio 1697, l’avvistamento di Antonie Caen del 1636, i primi cigni neri vivi giunti in Europa nel 1804).  
 - *Huainanzi*, raccolta compilata alla corte di Liu An, re di Huainan, II secolo a.C. (la storia del vecchio della frontiera che perse il cavallo).  
 - Taleb, N. N. (2007). *The Black Swan: The Impact of the Highly Improbable*. New York: Random House (trad. it. *Il cigno nero*, Milano: il Saggiatore).  
-- Taleb, N. N. (2012). Vedi capitolo 26\.
-
-### Capitolo 34
-
-- Lally, P., e colleghi (2010). Vedi capitolo 7\.  
-- Marco Aurelio, *Pensieri*, IV, 24, che cita Democrito (frammento 68 B 3 Diels-Kranz).
+- Taleb, N. N. (2012). Vedi capitolo 27\.
 
 ### Capitolo 35
+
+- Lally, P., e colleghi (2010). Vedi capitolo 8\.  
+- Marco Aurelio, *Pensieri*, IV, 24, che cita Democrito (frammento 68 B 3 Diels-Kranz).
+
+### Capitolo 36
 
 - Seneca, *Lettere a Lucilio*, lettera 1, 1\.
 
@@ -6913,9 +6914,9 @@ La frase secondo cui l’intelligenza emotiva conterebbe più del quoziente inte
 
 La matrice dell’urgente e dell’importante è attribuita a Dwight Eisenhower, che nel 1954 citava a sua volta un rettore universitario; la forma a quattro caselle è stata resa celebre da Stephen Covey.
 
-La frase di Thoreau che apre il capitolo 28 circola spesso nella forma «non basta essere occupati»; nella lettera originale del 1857 la parola è *industrious*, cioè operosi.
+La frase di Thoreau che apre il capitolo 29 circola spesso nella forma «non basta essere occupati»; nella lettera originale del 1857 la parola è *industrious*, cioè operosi.
 
-La massima di Plutarco che apre il capitolo 29 circola spesso come «la mente non è un vaso da riempire, ma un fuoco da accendere»; nell’originale greco l’immagine è quella della legna, che ha bisogno soltanto di essere accesa.
+La massima di Plutarco che apre il capitolo 30 circola spesso come «la mente non è un vaso da riempire, ma un fuoco da accendere»; nell’originale greco l’immagine è quella della legna, che ha bisogno soltanto di essere accesa.
 
 ### Dove chiedere aiuto
 
