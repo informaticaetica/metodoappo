@@ -5915,7 +5915,7 @@ Questo libro è un grimaldello: non la chiave perfetta per una sola serratura, m
 
 1. Qual è stato, finora, il cigno nero della tua vita? Quale certezza ha fatto crollare?  
 2. Quando è arrivato, che cosa avevi in mano per affrontarlo? Che cosa ti è mancato?  
-3. Fra gli usi del libro descritti in questa prefazione, quale ti riguarda di più oggi?  
+3. Fra gli usi del libro descritti in questo capitolo, quale ti riguarda di più oggi?  
 4. Con parole tue, che cosa significa leggere la propria vita come si leggerebbe quella di un altro?  
 5. In questo periodo hai trenta minuti al giorno che non appartengono agli altri? Se non li hai, dove pensi che siano finiti?
 
