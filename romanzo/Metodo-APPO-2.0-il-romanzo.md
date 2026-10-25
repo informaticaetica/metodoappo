@@ -71,7 +71,7 @@
 
 ## Come leggere questo romanzo
 
-Questo libro racconta il metodo APPO 2.0 attraverso un anno nella vita di Stefano Ardenzi, un bancario di quarantotto anni che perde il lavoro e torna nel Cilento, dove incontra Elio Ravasini, l'uomo che gli insegnerà il metodo un gesto alla volta.
+Questo libro racconta il metodo APPO 2.0 attraverso un anno nella vita di Stefano Ardenzi, un bancario di quarantotto anni che perde il lavoro e torna nel Cilento, dove incontra Aurelio Messineo, l'uomo che gli insegnerà il metodo un gesto alla volta.
 
 I capitoli seguono lo stesso ordine del metodo. Ogni capitolo conserva il titolo e la citazione d'apertura dell'edizione saggistica e porta una sola idea, che qui prende la forma di una scena, di un dialogo o di una riga scritta sul taccuino. La prima parte racconta come si impara il metodo; la seconda perché è fatto così; la chiusura lo rimette in fila in tre minuti.
 
@@ -291,17 +291,17 @@ A una decina di metri da lui, un uomo anziano armeggiava con un gozzo di legno, 
 
 Stefano spense la sigaretta e si avvicinò. Insieme spinsero il gozzo finché lo scafo non prese il mare con un risucchio. Sulla fiancata, a lettere nere un po' scrostate, c'era scritto un nome: *Lucilio*.
 
-«Elio» disse l'uomo, tendendogli la mano. Aveva una stretta asciutta. «Elio Ravasini. Lei è il figlio di Vincenzo Ardenzi. Il bancario.»
+«Aurelio» disse l'uomo, tendendogli la mano. Aveva una stretta asciutta. «Aurelio Messineo. Lei è il figlio di Vincenzo Ardenzi. Il bancario.»
 
 «Come fa a saperlo?»
 
-«Qui ci si conosce tutti, e suo padre mi ha fatto la libreria vent'anni fa. Ancora regge.» Elio montò sulla barca con una agilità che Stefano non si aspettava. «Viene? Faccio un giro fino alla punta e torno. Un'ora.»
+«Qui ci si conosce tutti, e suo padre mi ha fatto la libreria vent'anni fa. Ancora regge.» Aurelio montò sulla barca con una agilità che Stefano non si aspettava. «Viene? Faccio un giro fino alla punta e torno. Un'ora.»
 
 Stefano non sapeva perché disse di sì. Forse perché l'alternativa era tornare a fissare il soffitto.
 
 ---
 
-Il motore del *Lucilio* faceva un rumore regolare, tranquillizzante. Elio teneva il timone con una mano e con l'altra versava caffè da un thermos in due bicchierini di plastica.
+Il motore del *Lucilio* faceva un rumore regolare, tranquillizzante. Aurelio teneva il timone con una mano e con l'altra versava caffè da un thermos in due bicchierini di plastica.
 
 «Suo padre mi ha detto che le hanno chiuso la filiale.»
 
@@ -309,27 +309,27 @@ Stefano sentì una vampata di imbarazzo, come se lo avessero scoperto a rubare.
 
 «Mio padre parla troppo.»
 
-«Suo padre parla pochissimo. Per questo, quando parla, conviene ascoltarlo.» Elio gli porse il caffè. «Mi dispiace. Davvero. Sono cose che arrivano senza bussare.»
+«Suo padre parla pochissimo. Per questo, quando parla, conviene ascoltarlo.» Aurelio gli porse il caffè. «Mi dispiace. Davvero. Sono cose che arrivano senza bussare.»
 
 «È che non me l'aspettavo» disse Stefano, e si accorse che era la prima volta che lo diceva ad alta voce. «Ventidue anni. I numeri erano buoni. Nessuno se l'aspettava. E io mi sento un idiota per non averlo visto arrivare.»
 
-«Tutti si sentono idioti, dopo. È curioso: quasi tutti si colpevolizzano per non essere stati capaci di prevedere una cosa che, per definizione, non si poteva prevedere.» Elio bevve un sorso. «Io queste cose le chiamo cigni neri. Fatti rari, difficili da prevedere, che scombinano ogni piano. Una diagnosi, tua o di una persona cara. Un lavoro perso. Una cartella esattoriale che non sai come pagare. E poi c'è un cigno nero diverso da tutti gli altri, perché non è un fatto che ti capita, ma una persona che ne è responsabile: un familiare, un collega, che si comporta in modo gravemente scorretto, come non avresti mai creduto possibile.»
+«Tutti si sentono idioti, dopo. È curioso: quasi tutti si colpevolizzano per non essere stati capaci di prevedere una cosa che, per definizione, non si poteva prevedere.» Aurelio bevve un sorso. «Io queste cose le chiamo cigni neri. Fatti rari, difficili da prevedere, che scombinano ogni piano. Una diagnosi, tua o di una persona cara. Un lavoro perso. Una cartella esattoriale che non sai come pagare. E poi c'è un cigno nero diverso da tutti gli altri, perché non è un fatto che ti capita, ma una persona che ne è responsabile: un familiare, un collega, che si comporta in modo gravemente scorretto, come non avresti mai creduto possibile.»
 
 Stefano pensò a Ferri, alla parola «efficientamento» ripetuta tre volte.
 
-«E poi» aggiunse Elio, «ci sono i cigni d'oro.»
+«E poi» aggiunse Aurelio, «ci sono i cigni d'oro.»
 
 «Che sarebbero?»
 
-«Lo stesso animale, ma di segno opposto. Una telefonata di una persona cara. Un incontro con chi può darti una mano reale. Una porta che si apre proprio mentre ne stavi chiudendo un'altra. Sono più frequenti di quanto si creda. Ma un occhio non allenato non li riconosce.» Elio indicò con il mento il golfo intorno a loro. «Un uomo che non riesce a dormire e alle cinque e mezza va a sedersi su un molo, per esempio. Non si sa mai che cosa trova.»
+«Lo stesso animale, ma di segno opposto. Una telefonata di una persona cara. Un incontro con chi può darti una mano reale. Una porta che si apre proprio mentre ne stavi chiudendo un'altra. Sono più frequenti di quanto si creda. Ma un occhio non allenato non li riconosce.» Aurelio indicò con il mento il golfo intorno a loro. «Un uomo che non riesce a dormire e alle cinque e mezza va a sedersi su un molo, per esempio. Non si sa mai che cosa trova.»
 
 Stefano rise, per la prima volta da giorni. Una risata corta, sorpresa.
 
 ---
 
-Arrivarono vicino alla punta, dove la costa diventava di roccia e le grotte si aprivano nel calcare come bocche. Elio spense il motore e il silenzio fu così improvviso che Stefano sentì il proprio respiro.
+Arrivarono vicino alla punta, dove la costa diventava di roccia e le grotte si aprivano nel calcare come bocche. Aurelio spense il motore e il silenzio fu così improvviso che Stefano sentì il proprio respiro.
 
-«Le posso dire una cosa che ho capito tardi?» chiese Elio.
+«Le posso dire una cosa che ho capito tardi?» chiese Aurelio.
 
 «Dica.»
 
@@ -337,7 +337,7 @@ Arrivarono vicino alla punta, dove la costa diventava di roccia e le grotte si a
 
 «Improvviso da una settimana» ammise Stefano. «Ho mandato curriculum a caso, ho litigato con mio figlio, ho risposto male a mia suocera. Fumo il doppio.»
 
-«Improvvisare sotto pressione è il modo più rapido che conosca per fare del male, nello stesso momento, a se stessi e a chi ci sta intorno.» Elio lo disse senza nessun tono di rimprovero, come si dice che domani pioverà. «È la differenza fra imparare a nuotare in piscina e impararlo mentre stai annegando. Le bracciate sono le stesse. Cambia solo il momento in cui le impari.»
+«Improvvisare sotto pressione è il modo più rapido che conosca per fare del male, nello stesso momento, a se stessi e a chi ci sta intorno.» Aurelio lo disse senza nessun tono di rimprovero, come si dice che domani pioverà. «È la differenza fra imparare a nuotare in piscina e impararlo mentre stai annegando. Le bracciate sono le stesse. Cambia solo il momento in cui le impari.»
 
 Si chinò e batté due colpi con le nocche sul legno della barca, vicino al nome.
 
@@ -345,7 +345,7 @@ Si chinò e batté due colpi con le nocche sul legno della barca, vicino al nome
 
 Stefano scosse la testa.
 
-«Lucilio era l'amico a cui Seneca scriveva le lettere. Centoventiquattro lettere, una specie di corso per corrispondenza su come si vive. In una c'è una frase che mi porto dietro da quarant'anni: il soldato si esercita in tempo di pace, e scava trincee quando non c'è nessun nemico.» Elio guardò l'orizzonte. «Non è zelo. È che il giorno in cui il nemico arriva, non c'è più tempo per imparare a scavare.»
+«Lucilio era l'amico a cui Seneca scriveva le lettere. Centoventiquattro lettere, una specie di corso per corrispondenza su come si vive. In una c'è una frase che mi porto dietro da quarant'anni: il soldato si esercita in tempo di pace, e scava trincee quando non c'è nessun nemico.» Aurelio guardò l'orizzonte. «Non è zelo. È che il giorno in cui il nemico arriva, non c'è più tempo per imparare a scavare.»
 
 «Io non ho scavato niente.»
 
@@ -355,17 +355,17 @@ Stefano scosse la testa.
 
 Fu lì, fermi davanti alla punta, che Stefano gli raccontò del quadro elettrico.
 
-Non sapeva bene perché. Gli sembrava una cosa da niente, quasi comica: un uomo di quarantotto anni che gira al buio nella casa dove è cresciuto. Ma Elio lo ascoltò con un'attenzione strana, e alla fine sorrise.
+Non sapeva bene perché. Gli sembrava una cosa da niente, quasi comica: un uomo di quarantotto anni che gira al buio nella casa dove è cresciuto. Ma Aurelio lo ascoltò con un'attenzione strana, e alla fine sorrise.
 
 «Lei mi ha appena spiegato il metodo meglio di come lo spiegherei io.»
 
 «Quale metodo?»
 
-«Ogni casa ha un quadro elettrico. Non lo guardi mai, non ci pensi mai, eppure da quella scatoletta grigia dipende se la luce si accende. Il giorno in cui salta la corrente, se sai dov'è e che cosa fare, risolvi in dieci secondi. Se non lo sai, giri al buio.» Elio tirò fuori dalla tasca della giacca un taccuino piccolo, nero, consumato agli angoli. «Io ho un quadro elettrico per la vita. Ci ho messo molti anni a costruirlo, e alla fine è venuto fuori molto più piccolo di quanto pensassi. Poggia su quattro parole.»
+«Ogni casa ha un quadro elettrico. Non lo guardi mai, non ci pensi mai, eppure da quella scatoletta grigia dipende se la luce si accende. Il giorno in cui salta la corrente, se sai dov'è e che cosa fare, risolvi in dieci secondi. Se non lo sai, giri al buio.» Aurelio tirò fuori dalla tasca della giacca un taccuino piccolo, nero, consumato agli angoli. «Io ho un quadro elettrico per la vita. Ci ho messo molti anni a costruirlo, e alla fine è venuto fuori molto più piccolo di quanto pensassi. Poggia su quattro parole.»
 
 Stefano aspettò.
 
-«Prima delle definizioni le do le immagini, perché sono quelle che restano.» Elio indicò la costa davanti a loro. «Un porto verso cui navighi. Uno scoglio che ti sbarra la rotta. Una remata per aggirarlo. E poi una corrente, che ti accorgi di poter sfruttare soltanto perché ti sei mosso.»
+«Prima delle definizioni le do le immagini, perché sono quelle che restano.» Aurelio indicò la costa davanti a loro. «Un porto verso cui navighi. Uno scoglio che ti sbarra la rotta. Una remata per aggirarlo. E poi una corrente, che ti accorgi di poter sfruttare soltanto perché ti sei mosso.»
 
 Fece una pausa, perché Stefano potesse vedere ogni cosa.
 
@@ -373,11 +373,11 @@ Fece una pausa, perché Stefano potesse vedere ogni cosa.
 
 «Sembra il nome di un farmaco.»
 
-«Me l'hanno detto in tanti.» Elio non si offese. «Alle quattro parole si aggiungono tre ritmi. Non sono tre compiti: sono tre modi di guardare la propria vita. Il ritmo del giorno è il più breve e il più fedele: due righe, una appena sveglio e una prima di dormire, come aprire e chiudere una porta. Il ritmo della settimana è quello del ritorno: ti siedi, rileggi quello che hai scritto di getto, e cerchi la parola che si è ripetuta senza che te ne accorgessi. Il ritmo del mese è il più lento, somiglia al mare: una volta sola ti fermi e guardi la direzione in cui stai andando.»
+«Me l'hanno detto in tanti.» Aurelio non si offese. «Alle quattro parole si aggiungono tre ritmi. Non sono tre compiti: sono tre modi di guardare la propria vita. Il ritmo del giorno è il più breve e il più fedele: due righe, una appena sveglio e una prima di dormire, come aprire e chiudere una porta. Il ritmo della settimana è quello del ritorno: ti siedi, rileggi quello che hai scritto di getto, e cerchi la parola che si è ripetuta senza che te ne accorgessi. Il ritmo del mese è il più lento, somiglia al mare: una volta sola ti fermi e guardi la direzione in cui stai andando.»
 
 «E poi? Dopo il primo mese che cosa aggiunge?»
 
-Elio lo guardò con una specie di soddisfazione, come un maestro davanti alla domanda giusta.
+Aurelio lo guardò con una specie di soddisfazione, come un maestro davanti alla domanda giusta.
 
 «Niente. Fra un anno il metodo le chiederà esattamente quello che le chiede stasera. Molti strumenti fanno il contrario: più ci entri, più campi ti chiedono di compilare, più tabelle ti aggiungono, finché diventano una seconda occupazione da mandare avanti accanto alla vita. E la vita, prima o poi, vince. Lei ha mai pagato un abbonamento in palestra e non ci è andato?»
 
@@ -387,7 +387,7 @@ Stefano pensò ai trecentosessanta euro che aveva dato, due gennaio fa, a una pa
 
 ---
 
-Mentre tornavano, con il sole ormai alto e il porto di Sapri che si avvicinava, Elio gli diede il primo compito. Non lo chiamò compito: lo chiamò gesto.
+Mentre tornavano, con il sole ormai alto e il porto di Sapri che si avvicinava, Aurelio gli diede il primo compito. Non lo chiamò compito: lo chiamò gesto.
 
 «Stasera, prima di dormire, prenda un quaderno qualunque e scriva una sola riga per rispondere a questa domanda: *che cosa mi ha ostacolato, oggi?* Non deve essere una frase bella né profonda. Deve soltanto esistere.»
 
@@ -399,13 +399,13 @@ Mentre tornavano, con il sole ormai alto e il porto di Sapri che si avvicinava, 
 
 «Tutto il resto serve a farle fare questi due gesti meglio e più a lungo. Ma se si fermasse qui, avrebbe già in mano il cuore del metodo.»
 
-Attraccarono. Elio legò la cima a una bitta con un nodo che fece senza guardare, poi si voltò verso Stefano, e per la prima volta la sua voce ebbe una sfumatura cerimoniosa.
+Attraccarono. Aurelio legò la cima a una bitta con un nodo che fece senza guardare, poi si voltò verso Stefano, e per la prima volta la sua voce ebbe una sfumatura cerimoniosa.
 
 «Prima di cominciare le devo chiedere un permesso.»
 
 «Un permesso per che cosa?»
 
-«Per farle da allenatore. Per un po'. Non da maestro: da allenatore. La differenza conta. Il maestro sa, e tu no: sta davanti a te, parla, e tu prendi appunti. L'allenatore sta a bordo campo, mentre in campo ci sei tu. Non entra, non segna al posto tuo, dice due parole quando servono e per il resto sta zitto. Alla fine della partita il risultato è tuo, non suo.» Elio si strinse nelle spalle. «Glielo chiedo invece di darlo per scontato, perché un allenatore che non hai scelto è soltanto uno che ti dice che cosa fare, con perdita di tempo per tutti e due. Senza la sua decisione di scendere in campo, io sono uno strumento inutile.»
+«Per farle da allenatore. Per un po'. Non da maestro: da allenatore. La differenza conta. Il maestro sa, e tu no: sta davanti a te, parla, e tu prendi appunti. L'allenatore sta a bordo campo, mentre in campo ci sei tu. Non entra, non segna al posto tuo, dice due parole quando servono e per il resto sta zitto. Alla fine della partita il risultato è tuo, non suo.» Aurelio si strinse nelle spalle. «Glielo chiedo invece di darlo per scontato, perché un allenatore che non hai scelto è soltanto uno che ti dice che cosa fare, con perdita di tempo per tutti e due. Senza la sua decisione di scendere in campo, io sono uno strumento inutile.»
 
 Stefano guardò quell'uomo che conosceva da due ore. Pensò che era assurdo. Pensò anche che negli ultimi otto giorni nessuno gli aveva chiesto il permesso di niente: né Ferri, né la banca, né il gruppo che l'aveva comprata.
 
@@ -417,11 +417,11 @@ Stefano guardò quell'uomo che conosceva da due ore. Pensò che era assurdo. Pen
 
 ---
 
-Stava per salire in macchina quando Elio lo richiamò. Aveva aperto il taccuino nero e gli mostrava la prima pagina, dove c'erano tre parole scritte a mano, in stampatello:
+Stava per salire in macchina quando Aurelio lo richiamò. Aveva aperto il taccuino nero e gli mostrava la prima pagina, dove c'erano tre parole scritte a mano, in stampatello:
 
 *OSA REALIZZARTI OGGI*
 
-«Prenda le iniziali» disse Elio.
+«Prenda le iniziali» disse Aurelio.
 
 «O, R, O.» Stefano ci mise un secondo. «Oro.»
 
@@ -429,7 +429,7 @@ Stava per salire in macchina quando Elio lo richiamò. Aveva aperto il taccuino 
 
 Stefano non sapeva che cosa rispondere. Si sentiva tutto tranne che oro. Si sentiva un esubero, una figura come la sua.
 
-«L'oro ha tre proprietà» continuò Elio, come se avesse sentito il pensiero. «Non arrugginisce: non si ossida, non diventa meno oro con gli anni. Non deve diventare prezioso, perché lo è già. Non perde valore quando circola: l'oro chiuso in cassaforte e quello che passa di mano in mano valgono uguale, ma soltanto il secondo è servito a qualcosa. E si lascia lavorare: è il metallo più malleabile che esista. Lo puoi battere, assottigliare, cambiargli forma mille volte, e alla fine è ancora oro, fino all'ultimo grammo.»
+«L'oro ha tre proprietà» continuò Aurelio, come se avesse sentito il pensiero. «Non arrugginisce: non si ossida, non diventa meno oro con gli anni. Non deve diventare prezioso, perché lo è già. Non perde valore quando circola: l'oro chiuso in cassaforte e quello che passa di mano in mano valgono uguale, ma soltanto il secondo è servito a qualcosa. E si lascia lavorare: è il metallo più malleabile che esista. Lo puoi battere, assottigliare, cambiargli forma mille volte, e alla fine è ancora oro, fino all'ultimo grammo.»
 
 Chiuse il taccuino.
 
@@ -461,11 +461,11 @@ Non sapeva ancora che era la prima riga del suo metodo. Sapeva soltanto che era 
 
 ---
 
-La casa di Elio era l'ultima del lungomare di Sapri, prima che la strada salisse verso la collina. Due stanze al piano terra, una terrazza con un pergolato di vite e un tavolo di legno grezzo, e dentro, su un'intera parete, la libreria che Vincenzo Ardenzi aveva costruito vent'anni prima. Stefano la riconobbe subito: gli incastri a coda di rondine, i ripiani spessi, la vernice opaca che suo padre preparava da sé. Era piena fino all'ultimo centimetro.
+La casa di Aurelio era l'ultima del lungomare di Sapri, prima che la strada salisse verso la collina. Due stanze al piano terra, una terrazza con un pergolato di vite e un tavolo di legno grezzo, e dentro, su un'intera parete, la libreria che Vincenzo Ardenzi aveva costruito vent'anni prima. Stefano la riconobbe subito: gli incastri a coda di rondine, i ripiani spessi, la vernice opaca che suo padre preparava da sé. Era piena fino all'ultimo centimetro.
 
-«Ancora regge» disse Elio, vedendolo guardare. «Come le avevo detto.»
+«Ancora regge» disse Aurelio, vedendolo guardare. «Come le avevo detto.»
 
-Era il sabato dopo il primo giro in barca. Stefano aveva scritto le sue righe per quattro giorni, mattina e sera, ed era venuto a dirlo con un certo orgoglio da scolaro. Elio non aveva fatto commenti. Aveva messo sul tavolo della terrazza una caraffa d'acqua, due bicchieri e un foglio scritto a mano.
+Era il sabato dopo il primo giro in barca. Stefano aveva scritto le sue righe per quattro giorni, mattina e sera, ed era venuto a dirlo con un certo orgoglio da scolaro. Aurelio non aveva fatto commenti. Aveva messo sul tavolo della terrazza una caraffa d'acqua, due bicchieri e un foglio scritto a mano.
 
 «Prima di andare avanti, voglio che lei sappia che cosa avrà in mano alla fine» disse. «Così può decidere adesso se vale la pena continuare.»
 
@@ -475,11 +475,11 @@ Contò sulle dita.
 
 «Un'ora al mese» ripeté Stefano, scettico. «In banca, i corsi di formazione obbligatori duravano otto ore. E non servivano a niente.»
 
-«Questo non è un corso. Non è una filosofia di vita, e non è un percorso di crescita nel senso in cui di solito se ne parla. È uno strumento. E uno strumento si giudica con due soli criteri: se è utile, e se fa quello per cui è stato costruito.» Elio spinse il foglio verso di lui. «Legga. Sono frasi che mi hanno detto in tanti, negli anni, per descrivere il momento in cui hanno cominciato a cercare un metodo. Cerchi quella in cui si riconosce di più.»
+«Questo non è un corso. Non è una filosofia di vita, e non è un percorso di crescita nel senso in cui di solito se ne parla. È uno strumento. E uno strumento si giudica con due soli criteri: se è utile, e se fa quello per cui è stato costruito.» Aurelio spinse il foglio verso di lui. «Legga. Sono frasi che mi hanno detto in tanti, negli anni, per descrivere il momento in cui hanno cominciato a cercare un metodo. Cerchi quella in cui si riconosce di più.»
 
 ---
 
-Stefano prese il foglio. La calligrafia di Elio era minuta, regolare, da persona che ha scritto molto a mano.
+Stefano prese il foglio. La calligrafia di Aurelio era minuta, regolare, da persona che ha scritto molto a mano.
 
 *Da quando è successo, ogni giornata mi sembra decisa da qualcun altro.*
 
@@ -525,7 +525,7 @@ Stefano ci pensò.
 
 «Quella che dice: *non ho niente che non va, solo che non sto più scegliendo niente.*» Si sorprese della propria risposta. «Prima che chiudessero la filiale. Io non stavo male. Stavo. Facevo le stesse cose. Ma da anni non sceglievo niente. Mi sceglievano le cose.»
 
-Elio annuì piano.
+Aurelio annuì piano.
 
 «Sulla penultima, quella del fumo, le do subito un'indicazione, perché la vedo accendere sigarette da quando è arrivato» disse. «Il metodo aiuta davvero con le abitudini che si vogliono togliere, il fumo in particolare. Ma non nel modo in cui pensa, e non da solo. Ne parleremo più avanti, insieme a quello che il metodo non può fare e a chi conviene chiedere aiuto. Per ora le basti sapere che c'è.»
 
@@ -535,13 +535,13 @@ Elio annuì piano.
 
 ---
 
-Il telefono di Stefano vibrò sul tavolo. Era Sandro, suo cugino, che viveva a Vallo della Lucania e aveva un negozio di materiale elettrico. Stefano fece per rifiutare la chiamata, ma Elio gli fece cenno di rispondere.
+Il telefono di Stefano vibrò sul tavolo. Era Sandro, suo cugino, che viveva a Vallo della Lucania e aveva un negozio di materiale elettrico. Stefano fece per rifiutare la chiamata, ma Aurelio gli fece cenno di rispondere.
 
 Sandro parlò per dieci minuti. Il negozio andava male da due anni. Un fornitore lo pressava. La moglie voleva che chiudesse e andasse a lavorare dal fratello di lei. Lui non voleva. Ma intanto teneva aperto sette giorni su sette, faceva tutto da solo, e il sabato sera non aveva la forza nemmeno di uscire a cena. «Non so che cosa fare, Stefà. Non lo so proprio.»
 
 Stefano, mentre ascoltava, vide la soluzione prima che suo cugino avesse finito di parlare. Era evidente. Sandro non aveva un problema di fornitori: aveva un problema di margini su tre linee di prodotto che teneva per affetto, perché erano quelle che vendeva suo padre. E aveva un problema con sua moglie che non era il negozio, ma il sabato sera. Gli disse due o tre cose, con delicatezza. Sandro, dall'altro capo, restò in silenzio un po', poi disse: «Hai ragione. Non ci avevo mai pensato così».
 
-Quando chiuse, Elio lo stava guardando con un mezzo sorriso.
+Quando chiuse, Aurelio lo stava guardando con un mezzo sorriso.
 
 «Quanto ci ha messo a capire il problema di suo cugino?»
 
@@ -551,7 +551,7 @@ Quando chiuse, Elio lo stava guardando con un mezzo sorriso.
 
 Stefano non rispose.
 
-«È normale» disse Elio. «Sappiamo leggere di tutto. I contratti, le istruzioni del forno, i messaggi degli altri, riletti tre volte per capirne il tono. Sappiamo leggere perfino la vita degli altri: quando un amico ci racconta i suoi guai, spesso vediamo la soluzione prima che abbia finito di parlare. L'unica vita che non leggiamo quasi mai è la nostra.»
+«È normale» disse Aurelio. «Sappiamo leggere di tutto. I contratti, le istruzioni del forno, i messaggi degli altri, riletti tre volte per capirne il tono. Sappiamo leggere perfino la vita degli altri: quando un amico ci racconta i suoi guai, spesso vediamo la soluzione prima che abbia finito di parlare. L'unica vita che non leggiamo quasi mai è la nostra.»
 
 Versò dell'acqua nei due bicchieri.
 
@@ -561,15 +561,15 @@ Versò dell'acqua nei due bicchieri.
 
 Il sole era passato dietro il pergolato. Una vespa girava intorno alla caraffa.
 
-«C'è una frase che riassume quello che stiamo facendo» disse Elio. «Imparare a leggere la propria vita, a partire da oggi, con gli strumenti che avremmo dovuto avere fin dall'adolescenza. Sono tre promesse, in una frase sola.»
+«C'è una frase che riassume quello che stiamo facendo» disse Aurelio. «Imparare a leggere la propria vita, a partire da oggi, con gli strumenti che avremmo dovuto avere fin dall'adolescenza. Sono tre promesse, in una frase sola.»
 
 «Leggere l'ho capito.»
 
-«La seconda è nel tempo: *a partire da oggi*. Non da quando avrà capito il suo passato. Non da lunedì, non da settembre, non da quando le cose si saranno sistemate.» Elio si sporse in avanti. «Quasi tutti i metodi che ho incontrato chiedono una condizione prima ancora di cominciare: che tu abbia tempo, energia, idee chiare e un periodo tranquillo davanti. È una richiesta onesta, ma impossibile nei giorni del cigno nero, perché quelle condizioni arrivano di rado e, quando arrivano, non restano. Questo comincia da dove è lei stasera, così com'è. In mezzo alle cose non risolte, con la stanchezza che si porta addosso. Anzi: è nelle giornate storte che mostra di più il suo valore.»
+«La seconda è nel tempo: *a partire da oggi*. Non da quando avrà capito il suo passato. Non da lunedì, non da settembre, non da quando le cose si saranno sistemate.» Aurelio si sporse in avanti. «Quasi tutti i metodi che ho incontrato chiedono una condizione prima ancora di cominciare: che tu abbia tempo, energia, idee chiare e un periodo tranquillo davanti. È una richiesta onesta, ma impossibile nei giorni del cigno nero, perché quelle condizioni arrivano di rado e, quando arrivano, non restano. Questo comincia da dove è lei stasera, così com'è. In mezzo alle cose non risolte, con la stanchezza che si porta addosso. Anzi: è nelle giornate storte che mostra di più il suo valore.»
 
 «E la terza?»
 
-Elio rimase un momento in silenzio, e Stefano capì che era quella a cui teneva di più.
+Aurelio rimase un momento in silenzio, e Stefano capì che era quella a cui teneva di più.
 
 «Gli strumenti che avrebbe dovuto avere fin da ragazzo. Nessuno glieli ha dati, e non è colpa sua.» Si appoggiò allo schienale. «Provi a contare le ore che ha passato, a scuola o altrove, a imparare come si riconosce un'emozione mentre la stai provando. O come si dice a una persona che ti ha ferito quello che pensi, senza aggredirla. Come si prende una decisione quando si ha paura. Come si chiede aiuto. Come si capisce, il lunedì mattina, quale delle quaranta cose che ti chiedono è l'unica che conta davvero.»
 
@@ -577,15 +577,15 @@ Stefano provò a contarle davvero. Gli venne in mente un'assemblea di istituto i
 
 «Poco» disse.
 
-«Per quasi tutti è poco o niente. Non per colpa degli insegnanti, che spesso ci provano lo stesso, rubando tempo al programma. È che nei programmi quelle ore non ci sono. Così queste competenze restano affidate al caso. Chi le ha imparate in casa le sa usare, e si sente dire che è portato. Chi non le ha imparate improvvisa, e si sente dire che ha un brutto carattere.» Elio scosse la testa. «Non è questione di talento né di carattere. È un programma di studi che nessuno ha mai scritto.»
+«Per quasi tutti è poco o niente. Non per colpa degli insegnanti, che spesso ci provano lo stesso, rubando tempo al programma. È che nei programmi quelle ore non ci sono. Così queste competenze restano affidate al caso. Chi le ha imparate in casa le sa usare, e si sente dire che è portato. Chi non le ha imparate improvvisa, e si sente dire che ha un brutto carattere.» Aurelio scosse la testa. «Non è questione di talento né di carattere. È un programma di studi che nessuno ha mai scritto.»
 
 Stefano pensò a Giulia, che insegnava lettere in un liceo e che spesso, la sera, raccontava di ragazzi che piangevano in bagno durante le verifiche senza che nessuno sapesse che cosa dirgli. Pensò a Matteo, chiuso in camera con le cuffie. Pensò a se stesso, a quindici anni, nella stanza col poster della moto.
 
-«In Italia non esiste una scuola laica dello sviluppo personale» disse Elio. «Intendo un luogo pubblico, aperto a tutti, che non ti chieda di credere a qualcosa e non ti venda un percorso. Un posto dove imparare semplicemente a vivere bene le proprie giornate. Chi cerca queste competenze comincia a farlo da adulto, se è fortunato. Quasi sempre per motivi di lavoro o nel momento peggiore. E quasi sempre pagando qualcuno.»
+«In Italia non esiste una scuola laica dello sviluppo personale» disse Aurelio. «Intendo un luogo pubblico, aperto a tutti, che non ti chieda di credere a qualcosa e non ti venda un percorso. Un posto dove imparare semplicemente a vivere bene le proprie giornate. Chi cerca queste competenze comincia a farlo da adulto, se è fortunato. Quasi sempre per motivi di lavoro o nel momento peggiore. E quasi sempre pagando qualcuno.»
 
 «E lei che cosa vorrebbe fare? Una scuola?»
 
-Elio rise.
+Aurelio rise.
 
 «Una scuola in formato tascabile, magari. Non coprirà tutto. Ma da qualche parte bisogna cominciare, e lei ha già cominciato.»
 
@@ -595,7 +595,7 @@ Elio rise.
 
 ---
 
-Prima che Stefano se ne andasse, Elio lo accompagnò fino al cancello. La luce del tardo pomeriggio faceva brillare il golfo come una lamiera.
+Prima che Stefano se ne andasse, Aurelio lo accompagnò fino al cancello. La luce del tardo pomeriggio faceva brillare il golfo come una lamiera.
 
 «Le lascio una domanda» disse. «Riguarda quella cosa dell'oro.»
 
@@ -619,13 +619,13 @@ Sotto, scrisse tre competenze che avrebbe voluto imparare da ragazzo e che nessu
 
 *3. Chiedere aiuto prima di essere sott'acqua.*
 
-Accanto a ciascuna, come gli aveva suggerito Elio, provò a scrivere una situazione della settimana successiva in cui avrebbe potuto allenarla. Per la prima trovò subito: suo cognato Raffaele, il marito di sua sorella, che gli aveva chiesto di dargli una mano con una pratica di mutuo «tanto adesso hai tempo». Per la seconda: la telefonata della domenica con Matteo. Per la terza non gli venne niente, e lasciò lo spazio bianco.
+Accanto a ciascuna, come gli aveva suggerito Aurelio, provò a scrivere una situazione della settimana successiva in cui avrebbe potuto allenarla. Per la prima trovò subito: suo cognato Raffaele, il marito di sua sorella, che gli aveva chiesto di dargli una mano con una pratica di mutuo «tanto adesso hai tempo». Per la seconda: la telefonata della domenica con Matteo. Per la terza non gli venne niente, e lasciò lo spazio bianco.
 
 Poi rilesse la frase che aveva scelto quel pomeriggio: *non ho niente che non va, solo che non sto più scegliendo niente*.
 
-Pensò a Socrate, che Elio aveva citato mentre lavava i bicchieri: una vita senza ricerca non è degna di essere vissuta. Al liceo quella frase l'aveva imparata a memoria per un'interrogazione, e gli era sembrata una cosa da filosofi. Adesso gli sembrava una cosa da bancari licenziati.
+Pensò a Socrate, che Aurelio aveva citato mentre lavava i bicchieri: una vita senza ricerca non è degna di essere vissuta. Al liceo quella frase l'aveva imparata a memoria per un'interrogazione, e gli era sembrata una cosa da filosofi. Adesso gli sembrava una cosa da bancari licenziati.
 
-Spense la luce. Prima di addormentarsi, la domanda di Elio gli tornò in mente da sola, come certe canzoni.
+Spense la luce. Prima di addormentarsi, la domanda di Aurelio gli tornò in mente da sola, come certe canzoni.
 
 *Dove lo stai tenendo?*
 
@@ -665,7 +665,7 @@ In macchina, sulla strada del ritorno, Vincenzo guardò fuori dal finestrino per
 
 ---
 
-«Quella che le è capitata stamattina» disse Elio, «è la scena su cui si regge tutto il metodo.»
+«Quella che le è capitata stamattina» disse Aurelio, «è la scena su cui si regge tutto il metodo.»
 
 Erano sul *Lucilio*, nel pomeriggio, con il motore spento al largo della spiaggia del Buondormire. Stefano gli aveva raccontato della visita perché aveva bisogno di raccontarla a qualcuno, e a Giulia non voleva darla per telefono.
 
@@ -673,15 +673,15 @@ Erano sul *Lucilio*, nel pomeriggio, con il motore spento al largo della spiaggi
 
 Stefano guardò l'acqua. Era trasparente fino al fondo, si vedevano i sassi bianchi e i ricci neri.
 
-«Questa scena, con nomi diversi, la facciamo tutti ogni giorno» continuò Elio. «Diciamo al capo che il progetto ha qualche ritardo, quando sappiamo che è fermo da tre settimane. Diciamo a chi vive con noi che siamo un po' stanchi, quando quello che proviamo è che non ci sentiamo più capiti. E scriviamo sul quaderno che il problema è la mancanza di tempo, quando il problema vero è la paura di provarci e non riuscirci. In tutti i casi otteniamo la stessa cosa: evitiamo un momento scomodo, e regaliamo tempo al problema. Un problema descritto male non si risolve. Riceve la cura di un altro problema.»
+«Questa scena, con nomi diversi, la facciamo tutti ogni giorno» continuò Aurelio. «Diciamo al capo che il progetto ha qualche ritardo, quando sappiamo che è fermo da tre settimane. Diciamo a chi vive con noi che siamo un po' stanchi, quando quello che proviamo è che non ci sentiamo più capiti. E scriviamo sul quaderno che il problema è la mancanza di tempo, quando il problema vero è la paura di provarci e non riuscirci. In tutti i casi otteniamo la stessa cosa: evitiamo un momento scomodo, e regaliamo tempo al problema. Un problema descritto male non si risolve. Riceve la cura di un altro problema.»
 
 «Quindi la prima regola è l'onestà.»
 
-«La prima condizione. E qui non è una virtù morale: è uno strumento tecnico.» Elio si sistemò il berretto. «Una delle quattro parole si chiama Problema. Se ci scrive quello di comodo, quello che non dipende da lei o che fa fare bella figura anche al quaderno, il metodo continuerà a girare a vuoto. Come un medico a cui racconti soltanto il mal di stomaco.»
+«La prima condizione. E qui non è una virtù morale: è uno strumento tecnico.» Aurelio si sistemò il berretto. «Una delle quattro parole si chiama Problema. Se ci scrive quello di comodo, quello che non dipende da lei o che fa fare bella figura anche al quaderno, il metodo continuerà a girare a vuoto. Come un medico a cui racconti soltanto il mal di stomaco.»
 
 ---
 
-Più tardi, mentre il sole si abbassava, Elio gli fece la domanda che Stefano avrebbe ricordato per anni.
+Più tardi, mentre il sole si abbassava, Aurelio gli fece la domanda che Stefano avrebbe ricordato per anni.
 
 «Mi sa dire, in una riga sola, dove vuole arrivare nei prossimi sei mesi?»
 
@@ -689,23 +689,23 @@ Stefano aprì la bocca per rispondere e la richiuse. *Trovare un lavoro*, pensò
 
 «Non lo so» disse alla fine.
 
-«Bene» disse Elio, e sembrava sinceramente soddisfatto. «Adesso possiamo cominciare.»
+«Bene» disse Aurelio, e sembrava sinceramente soddisfatto. «Adesso possiamo cominciare.»
 
 «Bene?»
 
-«La frase di Seneca, quella del porto, la conoscono in molti. Quasi nessuno conosce quella che viene subito dopo, nella stessa lettera. È più dura. Dice: *viviamo a caso, ed è per questo che il caso ha tanto potere sulle nostre vite.*» Elio scandì il latino a memoria. «*Necesse est multum in vita nostra casus possit, quia vivimus casu.* Noti che cosa non dice la prima frase. Non dice che al marinaio serve un vento più forte, o una barca migliore, o più fortuna. Dice che, senza un porto scelto, nessun vento gli è favorevole. Il vento non è contrario: è inutile. Un vento contrario almeno ti dice dove non stai andando. Un vento inutile non ti dice niente, e tu non te ne accorgi nemmeno, perché ti senti spinto.»
+«La frase di Seneca, quella del porto, la conoscono in molti. Quasi nessuno conosce quella che viene subito dopo, nella stessa lettera. È più dura. Dice: *viviamo a caso, ed è per questo che il caso ha tanto potere sulle nostre vite.*» Aurelio scandì il latino a memoria. «*Necesse est multum in vita nostra casus possit, quia vivimus casu.* Noti che cosa non dice la prima frase. Non dice che al marinaio serve un vento più forte, o una barca migliore, o più fortuna. Dice che, senza un porto scelto, nessun vento gli è favorevole. Il vento non è contrario: è inutile. Un vento contrario almeno ti dice dove non stai andando. Un vento inutile non ti dice niente, e tu non te ne accorgi nemmeno, perché ti senti spinto.»
 
 Stefano pensò ai suoi ventidue anni in banca. Dodici ore al giorno, a volte. Obiettivi trimestrali raggiunti. La sensazione costante di essere spinto.
 
-«La maggior parte delle persone che si sentono bloccate non ha un problema di energia, ma di direzione» disse Elio. «Ne ho conosciute tantissime: gente instancabile, che lavorava dodici ore al giorno e non sapeva dirmi in una frase dove volesse arrivare. Non gli mancava la forza. Gli mancava il porto.» Fece una pausa. «Il primo a remare senza porto, per onestà, sono stato io. Giornate piene, risultati veri, e la sera quella sensazione di inconcludenza. L'ho capito il giorno in cui ho provato a scrivere in una riga il mio obiettivo, e non ci sono riuscito. Come lei adesso. Avevo scambiato la fatica per movimento.»
+«La maggior parte delle persone che si sentono bloccate non ha un problema di energia, ma di direzione» disse Aurelio. «Ne ho conosciute tantissime: gente instancabile, che lavorava dodici ore al giorno e non sapeva dirmi in una frase dove volesse arrivare. Non gli mancava la forza. Gli mancava il porto.» Fece una pausa. «Il primo a remare senza porto, per onestà, sono stato io. Giornate piene, risultati veri, e la sera quella sensazione di inconcludenza. L'ho capito il giorno in cui ho provato a scrivere in una riga il mio obiettivo, e non ci sono riuscito. Come lei adesso. Avevo scambiato la fatica per movimento.»
 
 «E come ha fatto?»
 
-«Ho smesso di pensare di essere pigro. Chi pensa di essere pigro si colpevolizza, cerca di imporsi una disciplina più dura e si sfinisce. Chi capisce di non avere una meta non ha bisogno di sforzarsi di più.» Elio sorrise. «Deve scegliere.»
+«Ho smesso di pensare di essere pigro. Chi pensa di essere pigro si colpevolizza, cerca di imporsi una disciplina più dura e si sfinisce. Chi capisce di non avere una meta non ha bisogno di sforzarsi di più.» Aurelio sorrise. «Deve scegliere.»
 
 ---
 
-«Questo metodo ha due anime» disse Elio mentre accendeva il motore per rientrare. «Una è stare meglio con se stessi e con gli altri. L'altra è risolvere problemi di qualunque tipo. Non sono due cose diverse messe vicine. Sono due facce della stessa medaglia.»
+«Questo metodo ha due anime» disse Aurelio mentre accendeva il motore per rientrare. «Una è stare meglio con se stessi e con gli altri. L'altra è risolvere problemi di qualunque tipo. Non sono due cose diverse messe vicine. Sono due facce della stessa medaglia.»
 
 «Non vedo cosa c'entrino l'una con l'altra.»
 
@@ -715,21 +715,21 @@ Stefano pensò subito a Matteo. *Abbassa quella chitarra. Sei sempre al telefono
 
 «Da un lato è un problema di relazione, perché ti fa stare male. Dall'altro è un problema tecnico, perché ha una causa e una prima mossa che puoi fare. È la stessa discussione, e si risolve soltanto se la guardi da tutti e due i lati.»
 
-Poi, mentre la barca prendeva velocità, Elio alzò la voce per sovrastare il motore e gli fece tre domande, una dietro l'altra, senza aspettare risposta.
+Poi, mentre la barca prendeva velocità, Aurelio alzò la voce per sovrastare il motore e gli fece tre domande, una dietro l'altra, senza aspettare risposta.
 
 «La prima: sa dire, adesso, qual è la cosa che desidera di più? Non quella che dice agli altri. Quella vera. La seconda: c'è qualcosa che vuole e che non ha mai detto ad alta voce, nemmeno a se stesso, perché ammetterlo farebbe troppo rumore? La terza: quante volte, nell'ultimo mese, ha avuto una reazione impulsiva verso qualcuno e poi se n'è pentito?»
 
 Stefano non rispose. Il vento gli entrava negli occhi.
 
-«Non me lo dica» gridò Elio. «Non serve una risposta bella. Serve una risposta onesta. Se ha esitato anche su una sola delle tre, è nel posto giusto. L'esitazione è il rumore che fa una domanda che trova finalmente spazio dove prima c'era un silenzio velenoso.»
+«Non me lo dica» gridò Aurelio. «Non serve una risposta bella. Serve una risposta onesta. Se ha esitato anche su una sola delle tre, è nel posto giusto. L'esitazione è il rumore che fa una domanda che trova finalmente spazio dove prima c'era un silenzio velenoso.»
 
 ---
 
-Attraccati, mentre Elio sistemava le cime, Stefano ripensò al patto del primo giorno. L'allenatore, le tre promesse.
+Attraccati, mentre Aurelio sistemava le cime, Stefano ripensò al patto del primo giorno. L'allenatore, le tre promesse.
 
 «Lei ha detto che mi avrebbe detto la verità. Io che cosa ci devo mettere?»
 
-«Due cose. La prima l'abbiamo vista: l'onestà. E le dico subito che non è facile, e non per debolezza.» Elio si sedette sulla bitta. «Lavorano contro di noi due meccanismi antichi. Il primo è la coerenza: una volta che hai detto una cosa, soprattutto ad alta voce e davanti a qualcuno, tendi a comportarti di conseguenza anche quando hai cambiato idea. Se per vent'anni hai raccontato a tutti che il tuo lavoro ti piace, ammettere che non è vero significa smentire vent'anni di te stesso.»
+«Due cose. La prima l'abbiamo vista: l'onestà. E le dico subito che non è facile, e non per debolezza.» Aurelio si sedette sulla bitta. «Lavorano contro di noi due meccanismi antichi. Il primo è la coerenza: una volta che hai detto una cosa, soprattutto ad alta voce e davanti a qualcuno, tendi a comportarti di conseguenza anche quando hai cambiato idea. Se per vent'anni hai raccontato a tutti che il tuo lavoro ti piace, ammettere che non è vero significa smentire vent'anni di te stesso.»
 
 Stefano sentì quella frase entrargli addosso come uno spiffero.
 
@@ -741,7 +741,7 @@ Stefano sentì quella frase entrargli addosso come uno spiffero.
 
 «E la seconda cosa?»
 
-Elio esitò, come chi sa che sta per dire una cosa che suonerà ingiusta.
+Aurelio esitò, come chi sa che sta per dire una cosa che suonerà ingiusta.
 
 «La responsabilità. Prendersi la responsabilità di tutto quello che le succede. Anche di quello che non è dipeso da lei.»
 
@@ -749,11 +749,11 @@ Stefano si irrigidì.
 
 «Della chiusura della filiale? È stata una decisione di un consiglio di amministrazione a Milano. Io che c'entro?»
 
-«Ecco. Prima di spiegarle perché è importante, le devo dire che cosa non significa. Responsabilità non è colpa.» Elio parlò lentamente. «La colpa guarda indietro e cerca chi ha sbagliato. La responsabilità guarda avanti, e non cerca colpevoli: cerca chi ha il potere di agire. Sono due domande diverse. *Di chi è la colpa?* non ha quasi mai una risposta utile. *Qual è la mia parte, e che cosa posso fare adesso?* ne ha sempre una.»
+«Ecco. Prima di spiegarle perché è importante, le devo dire che cosa non significa. Responsabilità non è colpa.» Aurelio parlò lentamente. «La colpa guarda indietro e cerca chi ha sbagliato. La responsabilità guarda avanti, e non cerca colpevoli: cerca chi ha il potere di agire. Sono due domande diverse. *Di chi è la colpa?* non ha quasi mai una risposta utile. *Qual è la mia parte, e che cosa posso fare adesso?* ne ha sempre una.»
 
 Stefano rimase zitto. Poi, senza volerlo, gli tornò in mente Fabrizio Cuomo, il collega di Nocera, che l'anno prima doveva consegnargli un'analisi sui clienti che chiudevano i conti per passare alle banche online. Non l'aveva mai consegnata, e Stefano ne aveva parlato male a cena per settimane. Ma Stefano sapeva da due anni che Fabrizio consegnava sempre in ritardo. Non l'aveva sollecitato. Non aveva fatto l'analisi da sé. E i numeri, quelli veri, li vedeva anche lui, ogni mese, nel calo degli sportelli: aveva solo deciso di non guardarli.
 
-«Nessuna di queste cose la rende colpevole» disse Elio, quando Stefano gliel'ebbe raccontato. «Tutte le restituiscono un margine di manovra. Il guadagno vero è questo: chi si prende la responsabilità di tutto perde la possibilità di lamentarsi. E perde il capro espiatorio, la persona comoda a cui addossare quello che abbiamo deciso di delegare. All'inizio è difficile. Poi diventa la cosa più simile alla libertà che io conosca.»
+«Nessuna di queste cose la rende colpevole» disse Aurelio, quando Stefano gliel'ebbe raccontato. «Tutte le restituiscono un margine di manovra. Il guadagno vero è questo: chi si prende la responsabilità di tutto perde la possibilità di lamentarsi. E perde il capro espiatorio, la persona comoda a cui addossare quello che abbiamo deciso di delegare. All'inizio è difficile. Poi diventa la cosa più simile alla libertà che io conosca.»
 
 Si alzò dalla bitta.
 
@@ -761,7 +761,7 @@ Si alzò dalla bitta.
 
 ---
 
-Prima di salutarlo, sul molo, Elio gli disse l'ultima cosa.
+Prima di salutarlo, sul molo, Aurelio gli disse l'ultima cosa.
 
 «Non le chiedo l'entusiasmo. Va e viene, e non ci abbiamo alcun potere. Le chiedo una presenza minima. Un minuto al giorno, anche nei giorni in cui tutto questo le starà antipatico.»
 
@@ -777,7 +777,7 @@ Tirò fuori dalla tasca un coltellino da pesca e lo fece scorrere due volte, con
 
 Quella sera, a Torraca, Vincenzo andò a letto presto, senza cena. Stefano lo sentì tossire attraverso la parete.
 
-Aprì il quaderno. Fece l'esercizio che Elio gli aveva lasciato. In cima alla pagina scrisse la frase con cui, in quei giorni, descriveva a tutti il problema che gli pesava di più, esattamente come la diceva al telefono:
+Aprì il quaderno. Fece l'esercizio che Aurelio gli aveva lasciato. In cima alla pagina scrisse la frase con cui, in quei giorni, descriveva a tutti il problema che gli pesava di più, esattamente come la diceva al telefono:
 
 *Mi hanno buttato fuori dopo ventidue anni perché una banca di Milano ha deciso di tagliare le filiali, e alla mia età nessuno mi assume.*
 
@@ -811,11 +811,11 @@ La settimana dopo, Stefano saltò tre mattine.
 
 Non lo fece apposta. Il lunedì c'era stata la gastroscopia di suo padre a Vallo della Lucania, partenza alle sei, digiuno, attesa, il medico che usciva dalla sala con un'espressione neutra e diceva «ulcera duodenale, per fortuna niente di peggio, adesso cominciamo la terapia». Il martedì Stefano aveva passato la mattina a compilare candidature su un portale che si bloccava ogni dieci minuti. Il mercoledì era andato a Salerno a firmare carte in sede, ed era tornato distrutto.
 
-Il giovedì, sul molo, lo disse a Elio quasi per giustificarsi.
+Il giovedì, sul molo, lo disse a Aurelio quasi per giustificarsi.
 
 «Non ho avuto tempo.»
 
-Elio stava riavvolgendo una lenza. Non alzò la testa.
+Aurelio stava riavvolgendo una lenza. Non alzò la testa.
 
 «Lei è senza lavoro da tre settimane.»
 
@@ -823,19 +823,19 @@ Stefano sentì il sangue salirgli in faccia.
 
 «Non è che non faccio niente. Mio padre, le carte, le candidature…»
 
-«Non dicevo questo.» Elio posò la lenza. «Facciamo un conto, se le va. I conti veri. Le chiedo trenta secondi al mattino e trenta alla sera: un minuto al giorno, sette minuti alla settimana. Più avanti aggiungeremo cinque minuti alla settimana per rileggere, e dieci al mese per guardare la direzione. In tutto, circa un'ora al mese.» Tese la mano. «Mi fa vedere il telefono?»
+«Non dicevo questo.» Aurelio posò la lenza. «Facciamo un conto, se le va. I conti veri. Le chiedo trenta secondi al mattino e trenta alla sera: un minuto al giorno, sette minuti alla settimana. Più avanti aggiungeremo cinque minuti alla settimana per rileggere, e dieci al mese per guardare la direzione. In tutto, circa un'ora al mese.» Tese la mano. «Mi fa vedere il telefono?»
 
 «Il telefono?»
 
 «C'è una funzione che conta quanto tempo ci passa. Non le leggo i messaggi.»
 
-Stefano esitò, poi aprì le impostazioni e cercò la schermata. Non l'aveva mai guardata. La guardò adesso, prima di darla a Elio, e gli venne una specie di nausea.
+Stefano esitò, poi aprì le impostazioni e cercò la schermata. Non l'aveva mai guardata. La guardò adesso, prima di darla a Aurelio, e gli venne una specie di nausea.
 
 *Media giornaliera: 3 ore e 47 minuti.*
 
 Sotto, il dettaglio di ieri: un'ora e venti sui social, quaranta minuti di notizie, cinquanta minuti di video. Quindici minuti su un'applicazione di annunci immobiliari, a guardare case che non avrebbe mai comprato.
 
-Elio non prese il telefono. Gli bastò vedere la faccia di Stefano.
+Aurelio non prese il telefono. Gli bastò vedere la faccia di Stefano.
 
 «Non glielo faccio notare per farla sentire in colpa» disse. «Glielo faccio notare perché, finché è convinto di non avere tempo, non comincerà a risolvere niente. Il tempo ce l'ha. Non lo usa per questo, ma ce l'ha.»
 
@@ -843,7 +843,7 @@ Elio non prese il telefono. Gli bastò vedere la faccia di Stefano.
 
 Si sedettero sul muretto. Una barca di pescatori stava rientrando, con i gabbiani dietro come un corteo.
 
-«Quando una persona dice *non ho tempo*» disse Elio, «quasi sempre sta dicendo una di tre cose.»
+«Quando una persona dice *non ho tempo*» disse Aurelio, «quasi sempre sta dicendo una di tre cose.»
 
 Le contò sulle dita, come faceva sempre.
 
@@ -857,7 +857,7 @@ Stefano ci pensò. Le tre mattine saltate. Lunedì, la gastroscopia: ma prima de
 
 «Che non so se voglio davvero tornare in banca. E che mandare cento curriculum a banche è il modo per non pensarci.»
 
-Elio non commentò. Lasciò che la frase restasse lì, sull'aria, e dopo un po' disse soltanto:
+Aurelio non commentò. Lasciò che la frase restasse lì, sull'aria, e dopo un po' disse soltanto:
 
 «Correre senza sosta è un'anestesia efficace. Serve a una cosa sola: nascondere a se stessi una verità che non si vuole guardare. Non è un'accusa. È la condizione normale di chi ha passato anni senza fermarsi mai.»
 
@@ -875,7 +875,7 @@ Stefano la strinse. Non disse niente, perché non sapeva che cosa dire.
 
 ---
 
-Glielo raccontò a Elio il lunedì. Si aspettava che Elio avesse una risposta brillante. Invece Elio disse:
+Glielo raccontò a Aurelio il lunedì. Si aspettava che Aurelio avesse una risposta brillante. Invece Aurelio disse:
 
 «Ha ragione lei.»
 
@@ -885,7 +885,7 @@ Glielo raccontò a Elio il lunedì. Si aspettava che Elio avesse una risposta br
 
 «E allora?»
 
-«Allora a sua moglie direi due cose, se me lo permettesse.» Elio parlò lentamente, come se Giulia fosse lì. «La prima: il metodo è costruito per funzionare anche senza un giorno di riposo. Le due righe bastano da sole, e il resto è un potenziamento, non un requisito. Se riesce a farlo in macchina, prima di scendere sotto casa di sua madre, o alle undici di sera quando la casa finalmente tace, funziona lo stesso.»
+«Allora a sua moglie direi due cose, se me lo permettesse.» Aurelio parlò lentamente, come se Giulia fosse lì. «La prima: il metodo è costruito per funzionare anche senza un giorno di riposo. Le due righe bastano da sole, e il resto è un potenziamento, non un requisito. Se riesce a farlo in macchina, prima di scendere sotto casa di sua madre, o alle undici di sera quando la casa finalmente tace, funziona lo stesso.»
 
 «E la seconda?»
 
@@ -895,11 +895,11 @@ Stefano ci pensò. Non credeva che fosse il caso di Giulia. Giulia era stanca, n
 
 ---
 
-«Lei a che ora si sveglia, di solito?» chiese Elio.
+«Lei a che ora si sveglia, di solito?» chiese Aurelio.
 
 «In banca, alle sei e quaranta. Ma è sempre stato un supplizio. Io al mattino sono uno zombie fino alle dieci. La sera invece sono lucidissimo, a mezzanotte potrei scrivere un piano industriale.»
 
-«Lei è un gufo. Io sono un'allodola: alle cinque sono già in barca, e alle dieci di sera dormo in piedi.» Elio sorrise. «C'è una letteratura molto diffusa secondo cui le persone di successo si alzano tutte alle cinque, e chi vuole cambiare vita dovrebbe fare lo stesso. Non è così.»
+«Lei è un gufo. Io sono un'allodola: alle cinque sono già in barca, e alle dieci di sera dormo in piedi.» Aurelio sorrise. «C'è una letteratura molto diffusa secondo cui le persone di successo si alzano tutte alle cinque, e chi vuole cambiare vita dovrebbe fare lo stesso. Non è così.»
 
 Tirò fuori dalla tasca il taccuino nero e lo sfogliò. Stefano cominciava a capire che lì dentro c'era di tutto.
 
@@ -913,7 +913,7 @@ Tirò fuori dalla tasca il taccuino nero e lo sfogliò. Stefano cominciava a cap
 
 «E come si trova questo blocco?»
 
-«Non serve liberare un'ora. Serve un minuto, purché sia sempre lo stesso.» Elio indicò il bar sul lungomare, dove il barista stava mettendo fuori i tavolini. «Primo: trovi un momento che esiste già nella sua giornata e che si ripete sempre. Il caffè, il motore spento nel parcheggio, i cinque minuti prima di spegnere la luce. Secondo: non aggiunga il gesto nuovo a un momento qualsiasi. Lo agganci a quel momento. Le cose nuove si dimenticano; quelle agganciate a cose vecchie, molto meno. Terzo: lo difenda come difenderebbe un appuntamento dal medico, che nessuno le chiederebbe di spostare.»
+«Non serve liberare un'ora. Serve un minuto, purché sia sempre lo stesso.» Aurelio indicò il bar sul lungomare, dove il barista stava mettendo fuori i tavolini. «Primo: trovi un momento che esiste già nella sua giornata e che si ripete sempre. Il caffè, il motore spento nel parcheggio, i cinque minuti prima di spegnere la luce. Secondo: non aggiunga il gesto nuovo a un momento qualsiasi. Lo agganci a quel momento. Le cose nuove si dimenticano; quelle agganciate a cose vecchie, molto meno. Terzo: lo difenda come difenderebbe un appuntamento dal medico, che nessuno le chiederebbe di spostare.»
 
 Stefano pensò alla moka. Ogni mattina, da quando era a Torraca, la preparava per sé e per suo padre: acqua, polvere, il gas acceso. Poi tre minuti di attesa, durante i quali, invariabilmente, prendeva il telefono.
 
@@ -923,13 +923,13 @@ Stefano pensò alla moka. Ogni mattina, da quando era a Torraca, la preparava pe
 
 ---
 
-Prima di andarsene, Elio gli disse la cosa che Stefano, quella sera, avrebbe riferito a Giulia parola per parola.
+Prima di andarsene, Aurelio gli disse la cosa che Stefano, quella sera, avrebbe riferito a Giulia parola per parola.
 
 «C'è un punto che vale per chiunque. Se uno è in debito di tempo, la sua prima Aspirazione è una sola: avere ogni giorno un po' di tempo libero. Viene prima del lavoro, prima degli obiettivi, prima di qualunque cosa uno voglia ottenere. Prima anche di questo metodo.»
 
 «Sembra un lusso.»
 
-«Non è benessere. È ingegneria.» Elio si alzò. «Una vita senza margine si sgretola al primo imprevisto. Se le tue ventiquattro ore sono occupate fino all'ultimo minuto, bastano una visita medica, un figlio con la febbre o un guasto all'auto perché tutto slitti. Non perché hai sbagliato qualcosa: perché manca lo spazio fisico per far slittare gli eventi. Chi ha trenta minuti liberi al giorno assorbe l'urto. Chi non ne ha nessuno lo subisce per intero.»
+«Non è benessere. È ingegneria.» Aurelio si alzò. «Una vita senza margine si sgretola al primo imprevisto. Se le tue ventiquattro ore sono occupate fino all'ultimo minuto, bastano una visita medica, un figlio con la febbre o un guasto all'auto perché tutto slitti. Non perché hai sbagliato qualcosa: perché manca lo spazio fisico per far slittare gli eventi. Chi ha trenta minuti liberi al giorno assorbe l'urto. Chi non ne ha nessuno lo subisce per intero.»
 
 «Trenta minuti.»
 
@@ -969,11 +969,11 @@ E il giovedì successivo, alle sette e un quarto, mentre il caffè cominciava a 
 
 ---
 
-Il primo giorno di pioggia arrivò a metà giugno, improvviso, con il cielo che diventò color piombo in mezz'ora e il golfo che si increspò come carta stropicciata. Niente barca. Elio telefonò alle sette e mezza, cosa che non aveva mai fatto.
+Il primo giorno di pioggia arrivò a metà giugno, improvviso, con il cielo che diventò color piombo in mezz'ora e il golfo che si increspò come carta stropicciata. Niente barca. Aurelio telefonò alle sette e mezza, cosa che non aveva mai fatto.
 
 «Venga da me. Oggi facciamo lezione al chiuso.»
 
-Sul tavolo della cucina c'erano una caffettiera, due tazze e un blocco di fogli bianchi. Elio aveva l'aria di un professore il primo giorno di scuola.
+Sul tavolo della cucina c'erano una caffettiera, due tazze e un blocco di fogli bianchi. Aurelio aveva l'aria di un professore il primo giorno di scuola.
 
 «Fin qui le ho dato pezzi» disse. «Oggi le spiego il metodo come se non ne avesse mai sentito parlare. Tutto quello che faremo dopo partirà da qui.»
 
@@ -983,13 +983,13 @@ Prese il blocco e scrisse in alto una frase: *Un problema ben definito è un pro
 
 «Mi pare l'abbia detta qualcuno di importante.»
 
-«Di solito la attribuiscono a Charles Kettering, il capo dei laboratori di ricerca della General Motors. Altre volte al filosofo John Dewey. La storia vera è più interessante: già nel 1938 Dewey la citava come un detto popolare, e la sua vera origine resta incerta.» Elio posò la penna. «Le racconto questo dettaglio per un motivo. Per mostrarle la cura con cui cerco di smontare ogni affermazione. E perché fra poco pretenderò da lei la stessa cura, quando le chiederò di definire il suo problema. Se sa definire il problema, metà del lavoro è fatto.»
+«Di solito la attribuiscono a Charles Kettering, il capo dei laboratori di ricerca della General Motors. Altre volte al filosofo John Dewey. La storia vera è più interessante: già nel 1938 Dewey la citava come un detto popolare, e la sua vera origine resta incerta.» Aurelio posò la penna. «Le racconto questo dettaglio per un motivo. Per mostrarle la cura con cui cerco di smontare ogni affermazione. E perché fra poco pretenderò da lei la stessa cura, quando le chiederò di definire il suo problema. Se sa definire il problema, metà del lavoro è fatto.»
 
 ---
 
 «Da dove viene, questo metodo?» chiese Stefano. Era una domanda che si portava dietro da due settimane.
 
-Elio ci mise un po' a rispondere.
+Aurelio ci mise un po' a rispondere.
 
 «Da una domanda personale, che mi porto dietro da sempre. Gliela racconterò, ma non oggi. E da un metodo di studio che avevo costruito anni prima, quando insegnavo. Volevo capire come ci si avvicina ogni giorno al proprio pieno potenziale, e quali strumenti possono sostenere quel percorso nel modo meno casuale possibile.» Fece un gesto verso la libreria. «Dietro ci sono trentacinque anni di studi, e cinque anni di prove, correzioni e ripensamenti accanto a persone e a piccole imprese vere. Il metodo che ha in mano non è nato così com'è. È quello che è rimasto in piedi dopo cinque anni di potature.»
 
@@ -1019,7 +1019,7 @@ Scrisse due frasi, una sotto l'altra.
 
 ---
 
-«Il secondo riquadro» disse Elio. «Il Problema. L'ostacolo specifico che ti separa da quell'aspirazione. Qui torniamo a suo padre dal medico. La P di Problema è il momento in cui decidi se dire la verità al tuo medico.» Alzò gli occhi su Stefano. «E il medico, in questo caso, è lei.»
+«Il secondo riquadro» disse Aurelio. «Il Problema. L'ostacolo specifico che ti separa da quell'aspirazione. Qui torniamo a suo padre dal medico. La P di Problema è il momento in cui decidi se dire la verità al tuo medico.» Alzò gli occhi su Stefano. «E il medico, in questo caso, è lei.»
 
 Stefano non disse niente.
 
@@ -1031,29 +1031,29 @@ Raccontò di una donna che aveva seguito anni prima, una parrucchiera di Maratea
 
 «E poi l'ha aperto, il salone?»
 
-«Due anni dopo. Ha un'altra storia, però, e gliela racconterò un'altra volta.» Elio tornò al foglio. «C'è una prova rapida per capire se il Problema che ha scritto è quello vero. Guardi il soggetto della frase. Se è un'altra persona, o una cosa, *la banca*, *il mercato*, *mio cugino*, non ha ancora trovato il vero ostacolo. La riscriva mettendoci dentro se stesso. Vedrà comparire soluzioni che prima non vedeva.»
+«Due anni dopo. Ha un'altra storia, però, e gliela racconterò un'altra volta.» Aurelio tornò al foglio. «C'è una prova rapida per capire se il Problema che ha scritto è quello vero. Guardi il soggetto della frase. Se è un'altra persona, o una cosa, *la banca*, *il mercato*, *mio cugino*, non ha ancora trovato il vero ostacolo. La riscriva mettendoci dentro se stesso. Vedrà comparire soluzioni che prima non vedeva.»
 
 ---
 
 «Il terzo riquadro è il Progetto. L'insieme delle azioni concrete che le permettono di superare il problema. Concreto vuol dire: chi fa che cosa, entro quando. La psicologia ha un nome preciso per questo tipo di decisione presa in anticipo, e un giorno glielo spiegherò bene: si chiama *intenzione di attuazione*.»
 
-Elio si alzò e andò alla finestra. Attraverso la pioggia, lontano, si intravedeva la luce del faro sul promontorio, che girava anche di giorno, con quel tempo.
+Aurelio si alzò e andò alla finestra. Attraverso la pioggia, lontano, si intravedeva la luce del faro sul promontorio, che girava anche di giorno, con quel tempo.
 
 «Il progetto non deve essere grandioso. Deve essere sostenibile. Meglio un'azione piccola mantenuta per mesi che dieci azioni ambiziose abbandonate dopo una settimana.» Indicò il faro. «Quel faro non illumina tutto il mare in una volta: non ne avrebbe la forza. Illumina una porzione precisa, sempre la stessa, notte dopo notte. È la costanza, la regolarità, non la potenza del fascio, a rendere sicura la rotta delle navi.»
 
 «E l'ultimo?»
 
-«L'Opportunità è la parte più sottile. Arriva per ultima e, col tempo, cambia tutto. La domanda che la accompagna è: *quali nuove strade si sono aperte, per me e per gli altri?*» Elio tornò a sedersi. «Quando hai un'aspirazione chiara e un progetto in corso, indossi quelli che chiamo gli occhiali nuovi. Cominci a vedere occasioni che prima ti passavano davanti senza che le notassi, perfino dietro un evento sfavorevole. Chi non ha un'aspirazione chiara vive lo stesso identico giorno di chi ce l'ha. Ma non vede niente di utilizzabile. Senza una rotta, ogni occasione sembra rumore di fondo.»
+«L'Opportunità è la parte più sottile. Arriva per ultima e, col tempo, cambia tutto. La domanda che la accompagna è: *quali nuove strade si sono aperte, per me e per gli altri?*» Aurelio tornò a sedersi. «Quando hai un'aspirazione chiara e un progetto in corso, indossi quelli che chiamo gli occhiali nuovi. Cominci a vedere occasioni che prima ti passavano davanti senza che le notassi, perfino dietro un evento sfavorevole. Chi non ha un'aspirazione chiara vive lo stesso identico giorno di chi ce l'ha. Ma non vede niente di utilizzabile. Senza una rotta, ogni occasione sembra rumore di fondo.»
 
 ---
 
-Fuori la pioggia era diventata un ticchettio regolare. Elio versò altro caffè.
+Fuori la pioggia era diventata un ticchettio regolare. Aurelio versò altro caffè.
 
 «Nella pratica, il metodo diventa due domande. Una al mattino e una alla sera. La domanda del mattino, nella sua forma originale, era lunga.» La scrisse:
 
 *Sono in grado di scrivere l'Aspirazione che guiderà la mia giornata? Quale Problema decido di fronteggiare oggi? Con quale Progetto avrò la possibilità di vincere la mia pigrizia e la mia mancanza di strategia? Sarò attento a cogliere le Opportunità che si presenteranno?*
 
-«Risponderle con cura, prima di entrare negli impegni, dà una rotta. La risposta diventa la bussola delle ore, invece di lasciare che siano gli eventi a decidere.» Elio fece il gesto di girare una chiave. «Quando accende la macchina, per una frazione di secondo si accendono tutte le spie del cruscotto. Poi, se non ci sono guasti, si spengono. La domanda del mattino fa lo stesso con la giornata. Accende per un istante la consapevolezza, verifica che le quattro parole siano allineate, e solo dopo ti lascia partire.»
+«Risponderle con cura, prima di entrare negli impegni, dà una rotta. La risposta diventa la bussola delle ore, invece di lasciare che siano gli eventi a decidere.» Aurelio fece il gesto di girare una chiave. «Quando accende la macchina, per una frazione di secondo si accendono tutte le spie del cruscotto. Poi, se non ci sono guasti, si spengono. La domanda del mattino fa lo stesso con la giornata. Accende per un istante la consapevolezza, verifica che le quattro parole siano allineate, e solo dopo ti lascia partire.»
 
 «E quella della sera?»
 
@@ -1063,21 +1063,21 @@ Fuori la pioggia era diventata un ticchettio regolare. Elio versò altro caffè.
 
 «Però lei, a me, fa scrivere una riga sola» disse Stefano. «Non tutta quella domanda.»
 
-Elio sorrise, come se aspettasse quell'obiezione.
+Aurelio sorrise, come se aspettasse quell'obiezione.
 
 «Nella prima versione del metodo, quella che ho usato per anni, le domande del mattino erano quindici, su tre livelli. Le chiamavo domande diamante, quelle a cui non si dovrebbe mai rinunciare; domande d'oro, che illuminavano aree della vita che meritano attenzione; domande d'argento, per l'equilibrio generale. Più due domande della sera. Era un impianto completo, pensato per una trasformazione profonda nell'arco di mesi.»
 
 «E funzionava?»
 
-«Funzionava. Ma quindici domande al mattino, per quanto ben organizzate, sono un impegno serio per chi ha una vita già piena. Pensi a un genitore che lavora su turni, a chi manda avanti da solo un negozio, a chi studia mentre lavora. Pensi a sua moglie.» Elio scosse la testa. «Da qui è venuta l'idea che ha reso possibile quello che le sto insegnando. Quelle domande non vanno abolite. Vanno spostate. Non spariscono dal metodo: cambiano casa. Passano da un impegno quotidiano a un rito settimanale che le riassume e le alleggerisce. Ogni mattina basta una riga sola, perché la direzione di fondo la fissi con calma una volta alla settimana, e la vedi più chiara settimana dopo settimana.»
+«Funzionava. Ma quindici domande al mattino, per quanto ben organizzate, sono un impegno serio per chi ha una vita già piena. Pensi a un genitore che lavora su turni, a chi manda avanti da solo un negozio, a chi studia mentre lavora. Pensi a sua moglie.» Aurelio scosse la testa. «Da qui è venuta l'idea che ha reso possibile quello che le sto insegnando. Quelle domande non vanno abolite. Vanno spostate. Non spariscono dal metodo: cambiano casa. Passano da un impegno quotidiano a un rito settimanale che le riassume e le alleggerisce. Ogni mattina basta una riga sola, perché la direzione di fondo la fissi con calma una volta alla settimana, e la vedi più chiara settimana dopo settimana.»
 
 «E le quindici domande?»
 
-«Per chi è in una fase di successo, o ha davvero grandi responsabilità, magari con qualcuno che lo accompagna, si può tornare al metodo completo. Ma va fatto piano, e deve avere un perché. Il cuore non cambia: le quattro parole, la domanda del mattino, la domanda della sera. Cambia la frequenza.» Elio chiuse il blocco. «Quando una cosa funziona non si butta. Si alleggerisce.»
+«Per chi è in una fase di successo, o ha davvero grandi responsabilità, magari con qualcuno che lo accompagna, si può tornare al metodo completo. Ma va fatto piano, e deve avere un perché. Il cuore non cambia: le quattro parole, la domanda del mattino, la domanda della sera. Cambia la frequenza.» Aurelio chiuse il blocco. «Quando una cosa funziona non si butta. Si alleggerisce.»
 
 ---
 
-C'era un'ultima cosa che Elio voleva dirgli, e la disse mentre Stefano si infilava il giubbotto per uscire nella pioggia.
+C'era un'ultima cosa che Aurelio voleva dirgli, e la disse mentre Stefano si infilava il giubbotto per uscire nella pioggia.
 
 «Ogni volta che risponde alla domanda del mattino, lei afferma una cosa scomoda ma liberatoria. Che almeno una parte di quello che succederà oggi dipende da una scelta che sta facendo lei, adesso.»
 
@@ -1123,9 +1123,9 @@ Era la prima volta, da quando aveva cominciato, che accanto a una riga del matti
 
 ---
 
-«Fin qui ha visto le quattro parole e le due domande» disse Elio. «Adesso le metto in fila, e comincio da una buona notizia: nella vita di tutti i giorni, il metodo si riduce a tre gesti.»
+«Fin qui ha visto le quattro parole e le due domande» disse Aurelio. «Adesso le metto in fila, e comincio da una buona notizia: nella vita di tutti i giorni, il metodo si riduce a tre gesti.»
 
-Erano seduti sulla terrazza, a fine giugno, con il caldo che saliva dal lastricato. Elio aveva tirato fuori un cartoncino bianco, grande come una cartolina, e ci aveva scritto sopra con il pennarello.
+Erano seduti sulla terrazza, a fine giugno, con il caldo che saliva dal lastricato. Aurelio aveva tirato fuori un cartoncino bianco, grande come una cartolina, e ci aveva scritto sopra con il pennarello.
 
 *1. LA RIGA DEL MATTINO. Prima di qualunque altra cosa: qual è la cosa più importante che voglio vedere realizzata oggi, prima che la giornata finisca? Una riga, una cosa sola, mai un elenco.*
 
@@ -1143,19 +1143,19 @@ Stefano lesse il cartoncino due volte.
 
 ---
 
-«QuDiVi sta per Qualità di Vita» disse Elio. «Si pronuncia tutto attaccato. È un numero da 1 a 10, e risponde a una domanda sola: *quanto è stata degna di essere vissuta questa giornata?*»
+«QuDiVi sta per Qualità di Vita» disse Aurelio. «Si pronuncia tutto attaccato. È un numero da 1 a 10, e risponde a una domanda sola: *quanto è stata degna di essere vissuta questa giornata?*»
 
 «Cioè quanto è stata produttiva.»
 
-«No. Ed è proprio questo il punto.» Elio si sporse in avanti. «Non dà il voto a quanto ha fatto. Dà il voto a come ha vissuto. Non c'è un voto giusto o sbagliato: conta solo che sia sincero. Come si assegna nel dettaglio, con quali regole, glielo spiegherò fra qualche giorno. Per ora le basta la domanda.»
+«No. Ed è proprio questo il punto.» Aurelio si sporse in avanti. «Non dà il voto a quanto ha fatto. Dà il voto a come ha vissuto. Non c'è un voto giusto o sbagliato: conta solo che sia sincero. Come si assegna nel dettaglio, con quali regole, glielo spiegherò fra qualche giorno. Per ora le basta la domanda.»
 
 Stefano ci pensò.
 
-«Siamo abituati a misurare quanto facciamo» disse Elio. «Le cose spuntate dalla lista, i passi contati dal telefono, le ore di lavoro, i voti a scuola. Lei in banca misurava tutto: conti aperti, mutui erogati, polizze vendute. Ma nessuno le ha mai chiesto di misurare *come* stava vivendo. Per questo, la prima volta che scriverà il suo numero, le sembrerà un gesto troppo piccolo per servire a qualcosa.»
+«Siamo abituati a misurare quanto facciamo» disse Aurelio. «Le cose spuntate dalla lista, i passi contati dal telefono, le ore di lavoro, i voti a scuola. Lei in banca misurava tutto: conti aperti, mutui erogati, polizze vendute. Ma nessuno le ha mai chiesto di misurare *come* stava vivendo. Per questo, la prima volta che scriverà il suo numero, le sembrerà un gesto troppo piccolo per servire a qualcosa.»
 
 «E invece?»
 
-«Invece arriveranno due sorprese. La prima: il voto non va di pari passo con quanto è stato impegnato. Può spuntare quindici voci dalla lista e chiudere la giornata con un 3. Può non concludere niente di misurabile, sapere di essere stato esattamente dove doveva essere, e dare alla giornata un 9.» Elio alzò un secondo dito. «La seconda: un voto da solo non dice quasi niente. Il suo valore si vede con il tempo.»
+«Invece arriveranno due sorprese. La prima: il voto non va di pari passo con quanto è stato impegnato. Può spuntare quindici voci dalla lista e chiudere la giornata con un 3. Può non concludere niente di misurabile, sapere di essere stato esattamente dove doveva essere, e dare alla giornata un 9.» Aurelio alzò un secondo dito. «La seconda: un voto da solo non dice quasi niente. Il suo valore si vede con il tempo.»
 
 ---
 
@@ -1191,11 +1191,11 @@ Quella sera Stefano scrisse il suo QuDiVi: *8*. Non aveva fatto niente di misura
 
 ---
 
-«La collana dei giorni» disse Elio, quando Stefano glielo raccontò. Sembrava commosso, e cercava di non darlo a vedere. «Lei mi ha portato l'immagine che uso da anni, e non lo sapeva.»
+«La collana dei giorni» disse Aurelio, quando Stefano glielo raccontò. Sembrava commosso, e cercava di non darlo a vedere. «Lei mi ha portato l'immagine che uso da anni, e non lo sapeva.»
 
 «Quale?»
 
-«Immagini la sua vita come una collana, e ogni giorno come una perla. Di solito non guarda le perle una per una. Porta la collana al collo, e basta. Ma se un giorno le sfila e le allinea sul tavolo, nota una cosa che non aveva mai visto.» Elio fece una pausa. «Alcune sono lucide, altre opache. Il QuDiVi è la lucentezza della perla, cioè della giornata. Una perla da sola dice poco. Sette perle in fila, o trenta, cominciano a parlarle. Vede quali giorni brillano, e rileggendo le righe del quaderno accanto a quei numeri comincia a capire come sta andando davvero la sua vita.»
+«Immagini la sua vita come una collana, e ogni giorno come una perla. Di solito non guarda le perle una per una. Porta la collana al collo, e basta. Ma se un giorno le sfila e le allinea sul tavolo, nota una cosa che non aveva mai visto.» Aurelio fece una pausa. «Alcune sono lucide, altre opache. Il QuDiVi è la lucentezza della perla, cioè della giornata. Una perla da sola dice poco. Sette perle in fila, o trenta, cominciano a parlarle. Vede quali giorni brillano, e rileggendo le righe del quaderno accanto a quei numeri comincia a capire come sta andando davvero la sua vita.»
 
 «Per questo bisogna scrivere.»
 
@@ -1203,7 +1203,7 @@ Quella sera Stefano scrisse il suo QuDiVi: *8*. Non aveva fatto niente di misura
 
 ---
 
-«Dopo qualche settimana» continuò Elio, «succede una cosa che quasi nessuno prevede. Comincia a leggere la sua vita come leggerebbe quella di un altro. Con la lucidità che ha avuto con suo cugino al telefono, quando ha visto la soluzione prima che lui finisse di parlare.»
+«Dopo qualche settimana» continuò Aurelio, «succede una cosa che quasi nessuno prevede. Comincia a leggere la sua vita come leggerebbe quella di un altro. Con la lucidità che ha avuto con suo cugino al telefono, quando ha visto la soluzione prima che lui finisse di parlare.»
 
 «Il problema di Sandro l'ho visto in due minuti, sì.»
 
@@ -1217,13 +1217,13 @@ Quella sera Vincenzo volle restare sul balcone dopo cena. Faceva caldo, e il cie
 
 «Quand'ero ragazzo, sulla barca di tuo nonno, le stelle le sapevo tutte» disse Vincenzo. «Adesso me ne ricordo tre.»
 
-Stefano pensò a una cosa che Elio gli aveva raccontato quel pomeriggio, prima che si salutassero. Prese il telefono, cercò, e mostrò lo schermo a suo padre.
+Stefano pensò a una cosa che Aurelio gli aveva raccontato quel pomeriggio, prima che si salutassero. Prese il telefono, cercò, e mostrò lo schermo a suo padre.
 
 Era una fotografia quasi tutta nera, attraversata da raggi di luce. In uno di quei raggi, piccolissimo, c'era un puntino azzurro.
 
 «Che è?»
 
-«Siamo noi. La Terra. L'ha fotografata una sonda, la Voyager 1, il 14 febbraio del 1990. Era a più di sei miliardi di chilometri. Prima di uscire dal sistema solare si è girata un'ultima volta verso casa e ha scattato.» Stefano ripeteva le parole di Elio quasi alla lettera. «L'idea fu di un astronomo, Carl Sagan. In quella foto la Terra è più piccola di un pixel.»
+«Siamo noi. La Terra. L'ha fotografata una sonda, la Voyager 1, il 14 febbraio del 1990. Era a più di sei miliardi di chilometri. Prima di uscire dal sistema solare si è girata un'ultima volta verso casa e ha scattato.» Stefano ripeteva le parole di Aurelio quasi alla lettera. «L'idea fu di un astronomo, Carl Sagan. In quella foto la Terra è più piccola di un pixel.»
 
 Vincenzo prese il telefono, se lo avvicinò agli occhi, lo allontanò.
 
@@ -1241,11 +1241,11 @@ Vincenzo restò a guardare lo schermo a lungo. Poi lo restituì.
 
 Stefano rise. Era vero. Lì sopra c'era anche il sesto piano di Ferri, l'efficientamento, la parola *esubero*. Lì sopra c'era anche la cosa per cui si arrabbiava in quei giorni, e quella che lo costringeva a tenere stretto il timone. Tutto su un puntino più piccolo di un pixel, sospeso in un raggio di luce.
 
-Elio, quel pomeriggio, aveva concluso con una frase che Stefano adesso capiva meglio. Chi vive le proprie giornate sapendo quanto valgono, occupandosi della propria felicità e aiutando quella di chi ha intorno, la sera si addormenta avendo fatto la cosa più importante che ci sia. E il giorno dopo, se può, ricomincia.
+Aurelio, quel pomeriggio, aveva concluso con una frase che Stefano adesso capiva meglio. Chi vive le proprie giornate sapendo quanto valgono, occupandosi della propria felicità e aiutando quella di chi ha intorno, la sera si addormenta avendo fatto la cosa più importante che ci sia. E il giorno dopo, se può, ricomincia.
 
 ---
 
-Per sette sere Stefano fece l'esercizio che Elio gli aveva lasciato. Prima della riga della sera scriveva il QuDiVi; accanto, fra parentesi, le ore di lavoro o il numero di cose spuntate dalla lista.
+Per sette sere Stefano fece l'esercizio che Aurelio gli aveva lasciato. Prima della riga della sera scriveva il QuDiVi; accanto, fra parentesi, le ore di lavoro o il numero di cose spuntate dalla lista.
 
 La domenica sera le guardò tutte insieme.
 
@@ -1263,7 +1263,7 @@ Sotto, scrisse due righe che non si aspettava di scrivere:
 
 *lavorare di più non mi fa vivere meglio. lo sapevo già? forse sì. non l'avevo mai visto scritto.*
 
-Poi chiuse il quaderno. Fuori, il faro girava. Elio gli aveva detto, salutandolo, che nel prossimo incontro gli avrebbe parlato di una cosa che di solito si tace, e che invece conveniva sapere fin dall'inizio.
+Poi chiuse il quaderno. Fuori, il faro girava. Aurelio gli aveva detto, salutandolo, che nel prossimo incontro gli avrebbe parlato di una cosa che di solito si tace, e che invece conveniva sapere fin dall'inizio.
 
 «Prima o poi smetterà» gli aveva detto. «E le spiegherò che cosa fare quel giorno.»
 
@@ -1297,17 +1297,17 @@ Era martedì.
 
 ---
 
-Andò al molo il giorno dopo con l'aria di uno scolaro che non ha fatto i compiti. Elio stava raschiando la chiglia del *Lucilio*, tirato in secca, con una spatola.
+Andò al molo il giorno dopo con l'aria di uno scolaro che non ha fatto i compiti. Aurelio stava raschiando la chiglia del *Lucilio*, tirato in secca, con una spatola.
 
 «Ho smesso» disse Stefano, senza salutare. «Undici giorni. Glielo avevo detto che non sarebbe successo, e invece.»
 
-Elio non smise di raschiare.
+Aurelio non smise di raschiare.
 
 «Era previsto.»
 
 «Lo so. Me l'aveva detto. Ma io pensavo…»
 
-«Pensava che a lei non sarebbe successo. Lo pensano tutti.» Elio posò la spatola e si pulì le mani su uno straccio. «Non è questione di *se*, ma di *quando*. Una settimana storta, un viaggio, un'influenza, un parente in ospedale, e un mattino ti accorgi che non scrivi la riga da undici giorni. O da due mesi. Te lo dicono all'inizio, quando ci credi, perché quando succede tu abbia già in tasca la risposta. Chi non se lo aspetta conclude che il metodo non fa per lui. Chi se lo aspetta riprende il quaderno, e basta.»
+«Pensava che a lei non sarebbe successo. Lo pensano tutti.» Aurelio posò la spatola e si pulì le mani su uno straccio. «Non è questione di *se*, ma di *quando*. Una settimana storta, un viaggio, un'influenza, un parente in ospedale, e un mattino ti accorgi che non scrivi la riga da undici giorni. O da due mesi. Te lo dicono all'inizio, quando ci credi, perché quando succede tu abbia già in tasca la risposta. Chi non se lo aspetta conclude che il metodo non fa per lui. Chi se lo aspetta riprende il quaderno, e basta.»
 
 «Io stavo per aspettare lunedì.»
 
@@ -1317,23 +1317,23 @@ Si sedettero sul bordo dello scivolo, con i piedi quasi nell'acqua.
 
 ---
 
-«Conviene capire perché succede» disse Elio. «Perché la spiegazione più diffusa è sbagliata.»
+«Conviene capire perché succede» disse Aurelio. «Perché la spiegazione più diffusa è sbagliata.»
 
 «La mia spiegazione è che sono incostante. Ho smesso di fumare tre volte, ho abbandonato la palestra, la dieta, l'inglese.»
 
 «Ecco, appunto. Pensi a quante volte ha abbandonato un diario, un'agenda, un'applicazione. Quasi mai perché non funzionassero. Ma perché dopo dieci giorni non aveva più il tempo per aprirli. Il problema non era lei. Era lo strumento, che chiedeva troppo.»
 
-Elio raccontò di un ricercatore di Stanford, BJ Fogg, che studiava il comportamento da vent'anni e aveva fatto passare decine di migliaia di persone dal suo programma.
+Aurelio raccontò di un ricercatore di Stanford, BJ Fogg, che studiava il comportamento da vent'anni e aveva fatto passare decine di migliaia di persone dal suo programma.
 
 «Nel 2019 ha raccolto tutto in un libro, *Tiny Habits*. Abitudini minuscole. La conclusione è semplice: perché un'abitudine attecchisca non conta quanto l'azione è ambiziosa, ma quanto è piccola e quanto poco attrito produce. Un'abitudine ridicolmente piccola, tipo due piegamenti sulle braccia, sopravvive più a lungo di un proposito ambizioso, perché richiede così poca motivazione che la fai anche nei giorni peggiori. Uno schema da due minuti sopravvive a un lunedì mattina difficile molto più spesso di uno da venti.»
 
 «Allora perché io ho smesso, se è così piccolo?»
 
-«Perché era agganciato alla moka, e la moka per undici giorni l'ha fatta sua moglie. E il quaderno era in una stanza dove non poteva entrare.» Elio sorrise. «Non le è mancata la volontà. Le sono mancati l'appiglio e il quaderno. È ingegneria, non carattere.»
+«Perché era agganciato alla moka, e la moka per undici giorni l'ha fatta sua moglie. E il quaderno era in una stanza dove non poteva entrare.» Aurelio sorrise. «Non le è mancata la volontà. Le sono mancati l'appiglio e il quaderno. È ingegneria, non carattere.»
 
 Stefano rimase in silenzio. Gli sembrava una spiegazione troppo semplice. Poi gli sembrò semplicemente vera.
 
-«Se lo ricordi ogni volta che sarà tentato di fare di più tutto in una volta» disse Elio. «Fare di più è spesso il modo più elegante di prepararsi a fallire.»
+«Se lo ricordi ogni volta che sarà tentato di fare di più tutto in una volta» disse Aurelio. «Fare di più è spesso il modo più elegante di prepararsi a fallire.»
 
 ---
 
@@ -1343,9 +1343,9 @@ Si chiamava Rosa Amato, lavorava in medicina, aveva un figlio grande a Bologna. 
 
 «Due righe al giorno. Bello. Io questa settimana ho fatto due notti, un pomeriggio, una mattina e un'altra notte. Il mio mattino è alle sei di sera, certi giorni. Tutti quei libri che ti dicono *alzati alle cinque e scrivi* io li butterei dalla finestra.»
 
-Stefano ci ripensò per tutta la sera. Il giorno dopo glielo raccontò a Elio.
+Stefano ci ripensò per tutta la sera. Il giorno dopo glielo raccontò a Aurelio.
 
-«Ha ragione, l'infermiera» disse Elio. «Qualunque metodo pensato per chi lavora dalle nove alle sei, per lei è inapplicabile. Per questo il metodo non chiede mai un orario. Le chiede un piccolo impegno appena si sveglia, prima di controllare il telefono, qualunque ora sia. Che siano le sei del mattino o le sei di sera. Sulla carta è una differenza minima. Nella pratica è quella che permette al metodo di adattarsi alla vita, invece di pretendere che sia la vita ad adattarsi al metodo.»
+«Ha ragione, l'infermiera» disse Aurelio. «Qualunque metodo pensato per chi lavora dalle nove alle sei, per lei è inapplicabile. Per questo il metodo non chiede mai un orario. Le chiede un piccolo impegno appena si sveglia, prima di controllare il telefono, qualunque ora sia. Che siano le sei del mattino o le sei di sera. Sulla carta è una differenza minima. Nella pratica è quella che permette al metodo di adattarsi alla vita, invece di pretendere che sia la vita ad adattarsi al metodo.»
 
 «Glielo dico, se la rivedo.»
 
@@ -1353,7 +1353,7 @@ Stefano ci ripensò per tutta la sera. Il giorno dopo glielo raccontò a Elio.
 
 ---
 
-«Prima del giorno in cui smetti» disse Elio, «c'è un caso intermedio. Più frequente di quanto immagini. Non smetti, ma davanti al foglio non sai cosa scrivere. Oppure la prima cosa che ti viene in mente ti sembra troppo piccola per essere scritta.»
+«Prima del giorno in cui smetti» disse Aurelio, «c'è un caso intermedio. Più frequente di quanto immagini. Non smetti, ma davanti al foglio non sai cosa scrivere. Oppure la prima cosa che ti viene in mente ti sembra troppo piccola per essere scritta.»
 
 «Mi è successo. Una mattina avevo in testa solo *comprare le lamette*.»
 
@@ -1361,11 +1361,11 @@ Stefano ci ripensò per tutta la sera. Il giorno dopo glielo raccontò a Elio.
 
 «No. Mi vergognavo. Non ho scritto niente.»
 
-«Avrebbe dovuto scriverlo. Il valore del metodo non sta nella qualità della singola riga. Sta nella sua presenza costante, comunque ti senti. È proprio nei giorni grigi, quelli in cui non hai voglia di scrivere niente, che la riga scritta comunque conta di più. È lì che si vede la differenza fra un metodo che dipende dal tuo umore e uno che riesce ad attraversarlo.» Elio aprì il taccuino nero, e Stefano vide pagine e pagine di righe brevi, scritte a matita. «Ne ho raccolte cento, negli anni, di righe del mattino. Righe vere, di persone vere. Per le mattine in cui non viene niente. Gliele copio, se vuole.»
+«Avrebbe dovuto scriverlo. Il valore del metodo non sta nella qualità della singola riga. Sta nella sua presenza costante, comunque ti senti. È proprio nei giorni grigi, quelli in cui non hai voglia di scrivere niente, che la riga scritta comunque conta di più. È lì che si vede la differenza fra un metodo che dipende dal tuo umore e uno che riesce ad attraversarlo.» Aurelio aprì il taccuino nero, e Stefano vide pagine e pagine di righe brevi, scritte a matita. «Ne ho raccolte cento, negli anni, di righe del mattino. Righe vere, di persone vere. Per le mattine in cui non viene niente. Gliele copio, se vuole.»
 
 ---
 
-Poi Elio gli diede la cosa per cui, gli disse, quel capitolo della sua vita esisteva.
+Poi Aurelio gli diede la cosa per cui, gli disse, quel capitolo della sua vita esisteva.
 
 «Il protocollo di rientro. Tre regole. Trenta secondi.»
 
@@ -1383,17 +1383,17 @@ Le scrisse su un foglietto, che Stefano avrebbe tenuto nel quaderno per anni.
 
 «Quella domanda, fatta nel momento del rientro, diventa in tre secondi un processo a se stessi. E il processo finisce con il quaderno chiuso. Prima si scrive una riga. Alla causa ci pensa fra una settimana, quando avrà di nuovo qualcosa da rileggere.»
 
-Elio ripiegò il foglietto e glielo diede.
+Aurelio ripiegò il foglietto e glielo diede.
 
 «E si ricordi anche questo: saltare un giorno non compromette la formazione di un'abitudine. Non glielo dico per consolarla. C'è una ricerca che l'ha verificato, e un giorno gliela racconto per intero. Chi salta un'occasione ma riprende subito arriva lo stesso all'automatismo. Il metodo non si rompe quando smetti. Si rompe soltanto se smetti di tornare.»
 
 ---
 
-«Nelle prime settimane, prima che l'automatismo si formi, ci sono due alleati» disse Elio mentre Stefano si alzava. «Il primo è un appiglio esterno. Un promemoria sul telefono, sempre alla stessa ora. Un foglietto attaccato dove si fa il caffè. Col tempo diventa inutile, perché la riga trova il suo posto. Ma all'inizio serve.»
+«Nelle prime settimane, prima che l'automatismo si formi, ci sono due alleati» disse Aurelio mentre Stefano si alzava. «Il primo è un appiglio esterno. Un promemoria sul telefono, sempre alla stessa ora. Un foglietto attaccato dove si fa il caffè. Col tempo diventa inutile, perché la riga trova il suo posto. Ma all'inizio serve.»
 
 «E il secondo?»
 
-«Il secondo funziona meglio di tutti, e quasi nessuno lo usa. Dirlo a qualcuno.» Elio alzò una mano, prevenendo l'obiezione. «Non deve annunciarlo sui social, né far leggere a qualcuno quello che scrive. Le righe restano sue. Basta molto meno. Dica a una persona che la conosce che per le prossime due settimane scriverà due righe al giorno, e le chieda di domandarglielo ogni tanto. Non serve che capisca il metodo, né che lo faccia anche lei. Serve solo che qualcuno sappia.»
+«Il secondo funziona meglio di tutti, e quasi nessuno lo usa. Dirlo a qualcuno.» Aurelio alzò una mano, prevenendo l'obiezione. «Non deve annunciarlo sui social, né far leggere a qualcuno quello che scrive. Le righe restano sue. Basta molto meno. Dica a una persona che la conosce che per le prossime due settimane scriverà due righe al giorno, e le chieda di domandarglielo ogni tanto. Non serve che capisca il metodo, né che lo faccia anche lei. Serve solo che qualcuno sappia.»
 
 «E se lo vuole fare anche lei?»
 
@@ -1445,35 +1445,35 @@ Sul telefono, sul comodino, arrivò un messaggio di Giulia, dalla stanza accanto
 
 ---
 
-«Oggi parliamo soltanto del mattino» disse Elio. «È il gesto più piccolo del metodo, ed è quello che decide la giornata.»
+«Oggi parliamo soltanto del mattino» disse Aurelio. «È il gesto più piccolo del metodo, ed è quello che decide la giornata.»
 
 Erano usciti in barca all'alba, a metà luglio, prima che il caldo diventasse insopportabile. Stefano si era alzato alle cinque per la prima volta senza soffrire troppo: il gufo che c'era in lui protestava, ma la promessa di un'ora di mare liscio era più forte. Aveva scritto la riga in cucina, al buio, con la moka sul fuoco e il post-it giallo davanti agli occhi.
 
-Elio teneva il timone e guardava la bussola, una vecchia bussola di ottone fissata vicino alla barra.
+Aurelio teneva il timone e guardava la bussola, una vecchia bussola di ottone fissata vicino alla barra.
 
 «La domanda è una sola» disse. «*Qual è la cosa più importante che voglio vedere realizzata oggi, prima che la giornata finisca?* La risposta è una riga. Non un progetto, non un elenco. Una cosa sola. Pensata per essere scritta in piedi, prima ancora di sedersi o di guardare il telefono.»
 
 «Ventuno giorni, e diventa un'abitudine, no?» disse Stefano. «L'ho letto da qualche parte.»
 
-Elio sorrise come chi aspetta una battuta che conosce a memoria.
+Aurelio sorrise come chi aspetta una battuta che conosce a memoria.
 
 «Quel numero ha una storia curiosa. Non viene dalla ricerca sulle abitudini. Viene da un chirurgo plastico americano, Maxwell Maltz, che nel 1960 scrisse un libro, *Psycho-Cybernetics*. Aveva notato che i suoi pazienti ci mettevano circa tre settimane ad abituarsi al loro nuovo aspetto dopo un intervento. Tutto qui. Da lì il numero è passato di libro in libro, fino a diventare una legge che nessuno aveva mai verificato.» Corresse la rotta di un paio di gradi. «Un giorno le racconto che cosa ha trovato chi ha voluto misurarlo davvero. Per ora le dico quello che ho visto io. Per onestà: è un'impressione raccolta sul campo, non una misura scientifica. Nessuno l'ha quantificata, né confrontata con un gruppo di controllo. Ma chi si dava il compito di scrivere mezza pagina ogni mattina, di solito, smetteva entro la seconda settimana. Chi si limitava a una riga tendeva a continuare. E col tempo la catena di giornate che partivano con un'aspirazione scelta si allungava da sola. Non per obbligo: per abitudine.»
 
 ---
 
-«Lei che cosa ha scritto stamattina?» chiese Elio.
+«Lei che cosa ha scritto stamattina?» chiese Aurelio.
 
 Stefano esitò. Poi aprì il quaderno, che ormai si portava dietro in una tasca della giacca a vento.
 
 *mandare il curriculum a Lorenzo per la collaborazione + chiamare la banca di credito cooperativo + finire il corso online di Excel + parlare con Matteo + sistemare il cancello per papà*
 
-Elio lesse e non disse niente per un po'.
+Aurelio lesse e non disse niente per un po'.
 
 «Sono cinque cose.»
 
 «Sono tutte importanti.»
 
-«Allora non ha ancora scelto quella importante.» Elio lo disse con dolcezza. «Se ne scrive cinque, stasera ne avrà fatte due e mezza e potrà dire di aver fatto qualcosa. Una sola la obbliga a decidere. Ed è per questo che costa.»
+«Allora non ha ancora scelto quella importante.» Aurelio lo disse con dolcezza. «Se ne scrive cinque, stasera ne avrà fatte due e mezza e potrà dire di aver fatto qualcosa. Una sola la obbliga a decidere. Ed è per questo che costa.»
 
 Stefano guardò la lista. Ognuna gli sembrava indispensabile. Poi si accorse che una sola gli faceva stringere lo stomaco, quando la leggeva.
 
@@ -1485,7 +1485,7 @@ Da quando suo figlio era arrivato a Torraca, si erano detti forse duecento parol
 
 ---
 
-«Le faccio un esempio» disse Elio. «Un genitore che, fra scuola, lavoro e imprevisti, fa fatica a trovare dieci minuti per sé. Per lui la riga del mattino potrebbe non riguardare affatto il lavoro: *oggi voglio leggere dieci pagine di un libro che mi piace*. Oppure *oggi telefono a un'amica che non sento da tempo*. Non c'è niente di sbagliato in un'aspirazione così, anche se sulla carta è modesta. Il metodo non giudica la grandezza dell'obiettivo. Si chiede soltanto se quell'obiettivo, oggi, le sta davvero a cuore.»
+«Le faccio un esempio» disse Aurelio. «Un genitore che, fra scuola, lavoro e imprevisti, fa fatica a trovare dieci minuti per sé. Per lui la riga del mattino potrebbe non riguardare affatto il lavoro: *oggi voglio leggere dieci pagine di un libro che mi piace*. Oppure *oggi telefono a un'amica che non sento da tempo*. Non c'è niente di sbagliato in un'aspirazione così, anche se sulla carta è modesta. Il metodo non giudica la grandezza dell'obiettivo. Si chiede soltanto se quell'obiettivo, oggi, le sta davvero a cuore.»
 
 «E chi ha appena perso il lavoro?» chiese Stefano. Lo chiese per sé, e tutti e due lo sapevano.
 
@@ -1495,7 +1495,7 @@ Da quando suo figlio era arrivato a Torraca, si erano detti forse duecento parol
 
 Il sole era sorto dietro le montagne della Basilicata, e la luce scivolava sull'acqua.
 
-«C'è un gesto in più che le chiedo» disse Elio. «Uno solo. Costa tre secondi, e senza di esso il metodo resta un archivio invece di diventare un sistema. Prima di scrivere la riga del mattino, rilegga quella di ieri sera.»
+«C'è un gesto in più che le chiedo» disse Aurelio. «Uno solo. Costa tre secondi, e senza di esso il metodo resta un archivio invece di diventare un sistema. Prima di scrivere la riga del mattino, rilegga quella di ieri sera.»
 
 «E poi?»
 
@@ -1503,7 +1503,7 @@ Il sole era sorto dietro le montagne della Basilicata, e la luce scivolava sull'
 
 «Mi sembra un dettaglio.»
 
-«È il dettaglio che chiude il circuito. È il motivo per cui, quasi sempre, la prima piccola soddisfazione arriva già il secondo giorno e non dopo una settimana. Dico quasi sempre perché è quello che ho visto, non un dato scientifico.» Elio pensò un momento. «Immagini come può andare. Ieri sera ha scritto che una riunione arrivata senza preavviso l'ha ostacolata. Stamattina la rilegge, e la riga che scrive non è più quella che avrebbe scritto a freddo. Diventa: *oggi blocco la prima ora, prima che qualcuno me la prenda.* Non ha aspettato la domenica per capirlo. Il suo ieri ha cambiato il suo oggi, a dodici ore di distanza.»
+«È il dettaglio che chiude il circuito. È il motivo per cui, quasi sempre, la prima piccola soddisfazione arriva già il secondo giorno e non dopo una settimana. Dico quasi sempre perché è quello che ho visto, non un dato scientifico.» Aurelio pensò un momento. «Immagini come può andare. Ieri sera ha scritto che una riunione arrivata senza preavviso l'ha ostacolata. Stamattina la rilegge, e la riga che scrive non è più quella che avrebbe scritto a freddo. Diventa: *oggi blocco la prima ora, prima che qualcuno me la prenda.* Non ha aspettato la domenica per capirlo. Il suo ieri ha cambiato il suo oggi, a dodici ore di distanza.»
 
 Stefano aprì il quaderno alla riga della sera prima.
 
@@ -1513,11 +1513,11 @@ La rilesse, e guardò la riga del mattino appena corretta: *parlare con Matteo*.
 
 *parlare con Matteo. NON della scuola. chiedergli che pezzo suonava ieri sera.*
 
-Elio sbirciò e annuì.
+Aurelio sbirciò e annuì.
 
 ---
 
-«Un'altra cosa pratica, che fa una differenza enorme» disse Elio. «Il momento esatto. Molte persone pensano di scrivere la riga quando avranno un attimo libero durante la giornata. Quell'attimo non arriva. O arriva troppo tardi, quando la giornata è già stata vissuta senza direzione. Per questo le chiedo di scriverla prima di aprire qualunque altra cosa. Prima delle notifiche, della posta, delle richieste degli altri. Nel momento in cui apre il telefono senza aver scritto la riga, ha già lasciato che sia il mondo, e non lei, a scegliere la priorità della giornata.»
+«Un'altra cosa pratica, che fa una differenza enorme» disse Aurelio. «Il momento esatto. Molte persone pensano di scrivere la riga quando avranno un attimo libero durante la giornata. Quell'attimo non arriva. O arriva troppo tardi, quando la giornata è già stata vissuta senza direzione. Per questo le chiedo di scriverla prima di aprire qualunque altra cosa. Prima delle notifiche, della posta, delle richieste degli altri. Nel momento in cui apre il telefono senza aver scritto la riga, ha già lasciato che sia il mondo, e non lei, a scegliere la priorità della giornata.»
 
 «E se uno scrive sul telefono?»
 
@@ -1527,17 +1527,17 @@ Elio sbirciò e annuì.
 
 «Mi lasci fare l'avvocato del diavolo» disse Stefano. «In banca, per metà delle mie giornate, la cosa più importante non dipendeva da me. Riunioni decise da altri. Scadenze imposte. Un cliente che si presentava furioso alle nove.»
 
-«È un'obiezione giusta, e la sento spesso.» Elio non sembrava turbato. «Anche in una giornata quasi tutta dettata dall'esterno resta un margine di scelta. Non su quello che accadrà. Su come vorrà viverlo. Se sa che l'aspetta una giornata di riunioni imposte, la riga può essere: *voglio arrivare a ogni riunione con almeno una domanda utile pronta*. Oppure: *voglio restare calmo anche se sarà pesante*. Non controlla gli eventi. Sceglie l'atteggiamento con cui li affronta. Ed è un margine molto più ampio di quanto sembri.»
+«È un'obiezione giusta, e la sento spesso.» Aurelio non sembrava turbato. «Anche in una giornata quasi tutta dettata dall'esterno resta un margine di scelta. Non su quello che accadrà. Su come vorrà viverlo. Se sa che l'aspetta una giornata di riunioni imposte, la riga può essere: *voglio arrivare a ogni riunione con almeno una domanda utile pronta*. Oppure: *voglio restare calmo anche se sarà pesante*. Non controlla gli eventi. Sceglie l'atteggiamento con cui li affronta. Ed è un margine molto più ampio di quanto sembri.»
 
 ---
 
-Mentre rientravano, Elio parlò di un'ultima distinzione.
+Mentre rientravano, Aurelio parlò di un'ultima distinzione.
 
 «La domanda chiede la cosa importante, non quella urgente. Su questo un giorno faremo un discorso lungo. Per ora le basti questo: una mail a cui rispondere entro sera è quasi sempre urgente e raramente importante. Una telefonata che rimanda da settimane a una persona che conta per lei è quasi sempre importante e non sembra mai urgente, perché nessuno gliela chiede con una scadenza.»
 
 «E se le cose obbligatorie sono due? Davvero due?»
 
-«Succede. Certe giornate hanno due scadenze vere, e fingere il contrario sarebbe sleale. Allora le scrive tutte e due e mette un segno accanto alla data. Non ha infranto nessuna regola.» Elio alzò un dito. «Ma se il segno compare tre giorni su cinque, il problema non sono le giornate. È che non sta scegliendo, e l'emergenza è diventata la scusa per non farlo. Il segno serve proprio ad accorgersene quando rilegge.»
+«Succede. Certe giornate hanno due scadenze vere, e fingere il contrario sarebbe sleale. Allora le scrive tutte e due e mette un segno accanto alla data. Non ha infranto nessuna regola.» Aurelio alzò un dito. «Ma se il segno compare tre giorni su cinque, il problema non sono le giornate. È che non sta scegliendo, e l'emergenza è diventata la scusa per non farlo. Il segno serve proprio ad accorgersene quando rilegge.»
 
 «E se rileggendo scopro che scrivo sempre la stessa cosa?»
 
@@ -1601,21 +1601,21 @@ Chiuse il quaderno di scatto. La mattina dopo non riuscì ad aprirlo.
 
 ---
 
-«Mi faccia indovinare» disse Elio. «Ha scritto una sentenza.»
+«Mi faccia indovinare» disse Aurelio. «Ha scritto una sentenza.»
 
-Erano seduti al Bar Approdo, sul lungomare, sotto l'ombrellone più lontano dalla strada. Stefano aveva raccontato del rifiuto, non della riga. Ma Elio aveva capito lo stesso.
+Erano seduti al Bar Approdo, sul lungomare, sotto l'ombrellone più lontano dalla strada. Stefano aveva raccontato del rifiuto, non della riga. Ma Aurelio aveva capito lo stesso.
 
 «Come fa a saperlo?»
 
 «Perché è la prima cosa che fanno tutti, la prima volta che arriva una giornata davvero storta. E perché stamattina non ha scritto la riga del mattino. Ha la faccia di chi ha il quaderno in tasca e non lo vuole aprire.»
 
-Stefano non rispose. Elio ordinò due granite al limone.
+Stefano non rispose. Aurelio ordinò due granite al limone.
 
 «La domanda della sera chiude il cerchio» disse. «Quella del mattino mette a fuoco l'Aspirazione. Quella della sera fa emergere il Problema che hai incontrato durante il giorno, e prepara il Progetto del giorno dopo, senza che tu debba pensarci troppo. Ma funziona soltanto se non diventa un tribunale.»
 
 ---
 
-«È una cosa antica, sa?» Elio prese il cucchiaino e cominciò a rompere la granita. «La citazione di Seneca che le ho mandato ieri sera viene da un libro sull'ira. Seneca racconta di aver preso l'abitudine da un filosofo, Sestio. Ogni sera, prima di dormire, Sestio si interrogava: quale tuo male hai curato oggi? A quale vizio hai resistito? In che cosa sei migliore? E Seneca dice: ripasso per intero la mia giornata, e torno a misurare ciò che ho detto e fatto.»
+«È una cosa antica, sa?» Aurelio prese il cucchiaino e cominciò a rompere la granita. «La citazione di Seneca che le ho mandato ieri sera viene da un libro sull'ira. Seneca racconta di aver preso l'abitudine da un filosofo, Sestio. Ogni sera, prima di dormire, Sestio si interrogava: quale tuo male hai curato oggi? A quale vizio hai resistito? In che cosa sei migliore? E Seneca dice: ripasso per intero la mia giornata, e torno a misurare ciò che ho detto e fatto.»
 
 «Duemila anni fa.»
 
@@ -1623,7 +1623,7 @@ Stefano non rispose. Elio ordinò due granite al limone.
 
 «Quindi lei ha copiato Franklin.»
 
-Elio rise.
+Aurelio rise.
 
 «È la stessa struttura. Una domanda che apre, una che chiude, un foglio in mezzo, una revisione periodica. Non è un caso che sistemi nati a secoli di distanza arrivino alla stessa forma. Funziona perché è la struttura più piccola capace di produrre ancora informazioni utili.» Si fece serio. «Ma una differenza c'è, e gliela dico per onestà. Franklin segnava i propri difetti. Io non le chiedo di farlo. Le chiedo di annotare che cosa l'ha ostacolata, che è un'altra cosa. L'ostacolo è un segnale. Il difetto è una sentenza. Il primo ti dice dove aggiustare il tiro. La seconda ti convince che è inutile provarci.»
 
@@ -1631,27 +1631,27 @@ Stefano pensò alla sua riga di mercoledì notte. *Sono un incapace. Me lo merit
 
 ---
 
-«Ci sono due modi di porre la domanda della sera» continuò Elio. «Due porte che portano nella stessa stanza. La prima è quella che ho usato per anni: *che cosa ho imparato, oggi?* Conviene a chi tende a essere severo con se stesso, perché guarda avanti e cerca un guadagno anche in una giornata storta. La seconda è più specifica: *che cosa mi ha ostacolato, oggi?* Conviene a chi vuole risultati più in fretta, perché punta dritta all'ostacolo.»
+«Ci sono due modi di porre la domanda della sera» continuò Aurelio. «Due porte che portano nella stessa stanza. La prima è quella che ho usato per anni: *che cosa ho imparato, oggi?* Conviene a chi tende a essere severo con se stesso, perché guarda avanti e cerca un guadagno anche in una giornata storta. La seconda è più specifica: *che cosa mi ha ostacolato, oggi?* Conviene a chi vuole risultati più in fretta, perché punta dritta all'ostacolo.»
 
 «Io finora ho usato la seconda.»
 
-«Le provi tutte e due. Una settimana ciascuna. Poi ne sceglie una e la tiene.» Elio insistette su questo punto con un'energia che Stefano non gli aveva ancora visto. «È l'errore che vedo fare più spesso. Se uno oscilla, un giorno l'una e un giorno l'altra, quando rilegge la settimana si ritrova con sette righe che rispondono a due domande diverse. Non sono confrontabili, e lo schema non emerge. Annoti la scelta sulla prima pagina del quaderno. Non esiste quella giusta in assoluto. Esiste quella a cui risponde con meno fatica, e che continuerà a fare fra sei mesi.»
+«Le provi tutte e due. Una settimana ciascuna. Poi ne sceglie una e la tiene.» Aurelio insistette su questo punto con un'energia che Stefano non gli aveva ancora visto. «È l'errore che vedo fare più spesso. Se uno oscilla, un giorno l'una e un giorno l'altra, quando rilegge la settimana si ritrova con sette righe che rispondono a due domande diverse. Non sono confrontabili, e lo schema non emerge. Annoti la scelta sulla prima pagina del quaderno. Non esiste quella giusta in assoluto. Esiste quella a cui risponde con meno fatica, e che continuerà a fare fra sei mesi.»
 
 ---
 
-«C'è anche un motivo psicologico dietro questa pratica» disse Elio, mentre la granita si scioglieva nei bicchieri. «E voglio che lo conosca, con una precisazione.»
+«C'è anche un motivo psicologico dietro questa pratica» disse Aurelio, mentre la granita si scioglieva nei bicchieri. «E voglio che lo conosca, con una precisazione.»
 
 Raccontò di uno psicologo americano, Robert Cialdini, che nel 1984 aveva scritto un libro famoso, *Le armi della persuasione*.
 
-«Cialdini ha descritto il principio di coerenza. Quando una persona si impegna con una dichiarazione, anche minima, tende a comportarsi in modo coerente nei giorni dopo. Lo usano i venditori, lo usano le campagne pubblicitarie. Nel metodo lo usiamo in un modo solo: su noi stessi. Come auto-persuasione, mai come leva sugli altri.» Elio picchiettò il cucchiaino sul tavolo. «Scrivere ogni sera una riga su che cosa l'ha ostacolata è un piccolo impegno che prende con se stesso. Aumenta la probabilità di aggiustare il tiro il giorno dopo, senza bisogno di forza di volontà in più.»
+«Cialdini ha descritto il principio di coerenza. Quando una persona si impegna con una dichiarazione, anche minima, tende a comportarsi in modo coerente nei giorni dopo. Lo usano i venditori, lo usano le campagne pubblicitarie. Nel metodo lo usiamo in un modo solo: su noi stessi. Come auto-persuasione, mai come leva sugli altri.» Aurelio picchiettò il cucchiaino sul tavolo. «Scrivere ogni sera una riga su che cosa l'ha ostacolata è un piccolo impegno che prende con se stesso. Aumenta la probabilità di aggiustare il tiro il giorno dopo, senza bisogno di forza di volontà in più.»
 
 ---
 
-«Il valore della domanda» disse Elio, «si vede quando la ripeti. Sera dopo sera.»
+«Il valore della domanda» disse Aurelio, «si vede quando la ripeti. Sera dopo sera.»
 
 Gli raccontò di un uomo che aveva seguito anni prima. Gestiva una piccola squadra di tecnici in un'azienda di impianti a Sapri, sei persone. Ogni sera arrivava a casa esausto senza capire perché.
 
-«Nelle prime settimane le sue righe erano generiche. *Troppe cose da fare. Giornata caotica.* Verso la quarta settimana, rileggendole in fila, è venuta fuori la parola che tornava più spesso. Non era *troppo lavoro*. Era *interrotto*. Non lo stancava la quantità di compiti. Lo stancavano le interruzioni continue che gli impedivano di finire una cosa prima di passare alla successiva. Una volta visto, la soluzione era evidente: un'ora al giorno senza notifiche e con la porta chiusa.» Elio allargò le mani. «Non gliel'ha mostrato una sera. Gliel'ha mostrato la rilettura di ventotto sere in fila. Senza quelle righe, quella parola sarebbe rimasta invisibile, dispersa in una stanchezza generica.»
+«Nelle prime settimane le sue righe erano generiche. *Troppe cose da fare. Giornata caotica.* Verso la quarta settimana, rileggendole in fila, è venuta fuori la parola che tornava più spesso. Non era *troppo lavoro*. Era *interrotto*. Non lo stancava la quantità di compiti. Lo stancavano le interruzioni continue che gli impedivano di finire una cosa prima di passare alla successiva. Una volta visto, la soluzione era evidente: un'ora al giorno senza notifiche e con la porta chiusa.» Aurelio allargò le mani. «Non gliel'ha mostrato una sera. Gliel'ha mostrato la rilettura di ventotto sere in fila. Senza quelle righe, quella parola sarebbe rimasta invisibile, dispersa in una stanchezza generica.»
 
 «Io la scrivo a mezzanotte, la riga» disse Stefano. «A volte sono già mezzo addormentato.»
 
@@ -1659,11 +1659,11 @@ Gli raccontò di un uomo che aveva seguito anni prima. Gestiva una piccola squad
 
 ---
 
-Stefano tirò fuori il quaderno, finalmente, e lo aprì alla pagina di mercoledì. Non la mostrò a Elio, ma la guardò lui, alla luce piena del giorno.
+Stefano tirò fuori il quaderno, finalmente, e lo aprì alla pagina di mercoledì. Non la mostrò a Aurelio, ma la guardò lui, alla luce piena del giorno.
 
 «Ho scritto che sono un incapace.»
 
-Elio annuì, senza sorpresa.
+Aurelio annuì, senza sorpresa.
 
 «Quasi tutti, all'inizio, hanno lo stesso timore: che concentrarsi ogni sera su quello che li ha rallentati diventi un esercizio di autocritica. È comprensibile. Ma nasce da un equivoco sul tono. Lei non si sta chiedendo *che cosa ho sbagliato oggi?*, che è una domanda da giudice. Si sta chiedendo *che cosa mi ha ostacolato?*, che è una domanda da meccanico. Quando la macchina fa un rumore strano, il meccanico non dà la colpa all'automobile. Cerca la causa. Un ostacolo non è una colpa. È un dato da osservare e, quando si può, correggere.»
 
@@ -1677,13 +1677,13 @@ Elio annuì, senza sorpresa.
 
 ---
 
-Elio gli diede tre segnali per capire se stava usando bene la riga della sera. Stefano li scrisse sotto le regole del mattino.
+Aurelio gli diede tre segnali per capire se stava usando bene la riga della sera. Stefano li scrisse sotto le regole del mattino.
 
 *Precisione: un ostacolo specifico, non «giornata pesante».*
 *Neutralità: un'osservazione, non un'accusa.*
 *Utilità futura: fra una settimana, capisco ancora che cosa volevo dire.*
 
-«E c'è un'abitudine da aggiungere» disse Elio, «quando l'ostacolo è una persona. Qualcuno che non ha fatto una cosa da cui dipendeva il suo lavoro. Prima di chiudere la riga, aggiunga tre parole su quello che avrebbe potuto fare lei prima. *Non l'avevo sollecitato. Non ero stato chiaro. Lo sapevo e ho sperato.* Non è autocritica. È l'unico pezzo della storia su cui potrà intervenire domani. È il modo pratico di esercitare quella responsabilità di cui abbiamo parlato in barca.»
+«E c'è un'abitudine da aggiungere» disse Aurelio, «quando l'ostacolo è una persona. Qualcuno che non ha fatto una cosa da cui dipendeva il suo lavoro. Prima di chiudere la riga, aggiunga tre parole su quello che avrebbe potuto fare lei prima. *Non l'avevo sollecitato. Non ero stato chiaro. Lo sapevo e ho sperato.* Non è autocritica. È l'unico pezzo della storia su cui potrà intervenire domani. È il modo pratico di esercitare quella responsabilità di cui abbiamo parlato in barca.»
 
 ---
 
@@ -1697,7 +1697,7 @@ Due settimane dopo, rileggendo le quattordici righe divise in due colonne, si ac
 
 Mattino e sera, insieme, cominciavano a sembrargli un piccolo ciclo che si ripeteva ogni ventiquattro ore. La mattina apriva una direzione; la sera la verificava e preparava la correzione. Non due esercizi separati, ma un respiro solo. Alle due righe mancava ancora una cosa, il numero, e Stefano aveva capito di non averlo ancora capito.
 
-Elio gli aveva promesso che la volta dopo glielo avrebbe spiegato per bene.
+Aurelio gli aveva promesso che la volta dopo glielo avrebbe spiegato per bene.
 
 Quella sera, prima di dormire, scrisse:
 
@@ -1713,19 +1713,19 @@ Quella sera, prima di dormire, scrisse:
 
 A fine luglio Stefano si accorse di aver corretto un numero.
 
-Era successo la settimana prima. Martedì sera aveva scritto *4*: una giornata grigia, passata a cercare annunci, con un mal di testa che non passava. Mercoledì mattina, rileggendo la riga della sera come gli aveva insegnato Elio, aveva pensato che 4 fosse troppo severo. In fondo martedì aveva anche aggiustato il cancello di suo padre, e Matteo gli aveva chiesto un passaggio per Sapri, che era quasi una dichiarazione d'affetto. Così aveva preso la penna e trasformato il 4 in un 5. Il ricciolo del 5 si vedeva ancora, sopra il 4.
+Era successo la settimana prima. Martedì sera aveva scritto *4*: una giornata grigia, passata a cercare annunci, con un mal di testa che non passava. Mercoledì mattina, rileggendo la riga della sera come gli aveva insegnato Aurelio, aveva pensato che 4 fosse troppo severo. In fondo martedì aveva anche aggiustato il cancello di suo padre, e Matteo gli aveva chiesto un passaggio per Sapri, che era quasi una dichiarazione d'affetto. Così aveva preso la penna e trasformato il 4 in un 5. Il ricciolo del 5 si vedeva ancora, sopra il 4.
 
-Glielo confessò a Elio quasi ridendo, come una marachella.
+Glielo confessò a Aurelio quasi ridendo, come una marachella.
 
-Elio non rise.
+Aurelio non rise.
 
 «Ecco» disse. «Allora oggi parliamo del numero. Come si assegna, e perché quel 5 non vale niente.»
 
 ---
 
-Erano nella cucina di Elio, perché fuori c'era il maestrale e il golfo era pieno di creste bianche. Sul tavolo, il solito blocco di fogli.
+Erano nella cucina di Aurelio, perché fuori c'era il maestrale e il golfo era pieno di creste bianche. Sul tavolo, il solito blocco di fogli.
 
-«Fin qui il suo impegno quotidiano sono due righe» disse Elio. «Il terzo elemento è piccolissimo, e le completa. Il QuDiVi, la Qualità di Vita. Non l'ho chiamato indice di produttività, e la differenza non è da poco.»
+«Fin qui il suo impegno quotidiano sono due righe» disse Aurelio. «Il terzo elemento è piccolissimo, e le completa. Il QuDiVi, la Qualità di Vita. Non l'ho chiamato indice di produttività, e la differenza non è da poco.»
 
 Scrisse la domanda in cima al foglio: *Quanto è stata degna di essere vissuta questa giornata?*
 
@@ -1739,7 +1739,7 @@ Quella sera aveva scritto *9*. Non aveva fatto niente di produttivo.
 
 ---
 
-«Per assegnare il numero non serve una scala complicata» disse Elio. «Bastano quattro fasce, abbastanza larghe da non farle perdere tempo a scegliere fra un 6 e un 7.»
+«Per assegnare il numero non serve una scala complicata» disse Aurelio. «Bastano quattro fasce, abbastanza larghe da non farle perdere tempo a scegliere fra un 6 e un 7.»
 
 Le scrisse una sotto l'altra.
 
@@ -1751,29 +1751,29 @@ Le scrisse una sotto l'altra.
 
 *10: una giornata piena. Capita di rado. Quando capita, annota che cosa l'ha resa tale: ti servirà come riferimento.*
 
-«Prima si sceglie la fascia, poi il numero» disse Elio. «È più facile di quanto sembri.»
+«Prima si sceglie la fascia, poi il numero» disse Aurelio. «È più facile di quanto sembri.»
 
 ---
 
 «E le regole?» chiese Stefano. «Perché ho capito che il mio 5 ne ha violata almeno una.»
 
-«Ne ha violate due. Sono quattro.» Elio le scrisse, una per riga, lentamente.
+«Ne ha violate due. Sono quattro.» Aurelio le scrisse, una per riga, lentamente.
 
 «Prima regola: si assegna il numero *prima* di scrivere la riga della sera. Se lo fa dopo, rischia di aggiustarlo per farlo coincidere con quello che ha scritto. Se ha appena scritto una riga cupa, il numero scende; se ha scritto una riga brillante, sale. Il numero deve venire prima delle parole, perché le parole sono brave a convincere.»
 
-«Seconda regola: non è un voto sulla sua persona. È un dato su una giornata. Un 3 di oggi non dice niente sul suo valore. Dice soltanto che oggi è stata una giornata subita.» Elio lo guardò. «Mercoledì, quando è arrivato il rifiuto, ha dato un 2. Giusto. Ma poi ha scritto che era un incapace. Il 2 era della giornata, non suo.»
+«Seconda regola: non è un voto sulla sua persona. È un dato su una giornata. Un 3 di oggi non dice niente sul suo valore. Dice soltanto che oggi è stata una giornata subita.» Aurelio lo guardò. «Mercoledì, quando è arrivato il rifiuto, ha dato un 2. Giusto. Ma poi ha scritto che era un incapace. Il 2 era della giornata, non suo.»
 
 «Terza regola: il metro sono le quattro fasce, non la giornata ideale. È la regola che mantiene lo stesso metro nel tempo. Se valuta ogni giornata rispetto alla giornata ideale, il 7 di gennaio e il 7 di giugno vorranno dire due cose diverse, perché l'ideale cambia di continuo. Il protocollo è un altro: colloca la giornata in una fascia. Se è in dubbio fra due numeri vicini, usa ieri come termine di paragone. Soltanto così il suo sistema di misura conserva valore nel tempo.»
 
 «E la quarta?»
 
-«Non lo corregga il giorno dopo.» Elio picchiettò con la penna sul foglio. «Un dato modificato a posteriori, per farlo sembrare migliore o peggiore di come l'aveva valutato, smette di essere un dato e diventa un racconto. Il QuDiVi serve proprio a evitare che la sua vita diventi un racconto che si aggiusta da solo.»
+«Non lo corregga il giorno dopo.» Aurelio picchiettò con la penna sul foglio. «Un dato modificato a posteriori, per farlo sembrare migliore o peggiore di come l'aveva valutato, smette di essere un dato e diventa un racconto. Il QuDiVi serve proprio a evitare che la sua vita diventi un racconto che si aggiusta da solo.»
 
 Stefano guardò il ricciolo del 5 sopra il 4. Era esattamente quello: un racconto. La sera di martedì si era sentito da 4. La mattina dopo, con il sole e il caffè, aveva deciso che martedì meritava di più. Aveva corretto la realtà per farla somigliare a quello che avrebbe voluto.
 
 ---
 
-«C'è uno studio» disse Elio, «che spiega meglio di qualunque discorso perché conviene misurare la qualità e non la quantità.»
+«C'è uno studio» disse Aurelio, «che spiega meglio di qualunque discorso perché conviene misurare la qualità e non la quantità.»
 
 Si alzò, prese dalla libreria un raccoglitore di cartone pieno di fotocopie, e ne tirò fuori un articolo con le pagine ingiallite.
 
@@ -1781,11 +1781,11 @@ Si alzò, prese dalla libreria un raccoglitore di cartone pieno di fotocopie, e 
 
 «Su quante persone?»
 
-«Novecentonove donne lavoratrici del Texas.» Elio sfogliò l'articolo. «In cima alla classifica del benessere c'erano le relazioni intime. Poi lo stare in compagnia, il riposo e, poco più sotto, il mangiare. In fondo, ultimo fra sedici tipi di attività, il tragitto casa-lavoro. E il lavoro stava appena sopra.»
+«Novecentonove donne lavoratrici del Texas.» Aurelio sfogliò l'articolo. «In cima alla classifica del benessere c'erano le relazioni intime. Poi lo stare in compagnia, il riposo e, poco più sotto, il mangiare. In fondo, ultimo fra sedici tipi di attività, il tragitto casa-lavoro. E il lavoro stava appena sopra.»
 
 «Non mi stupisce.»
 
-«Aspetti. Accanto alla classifica, i ricercatori misurarono il tempo. Il lavoro occupava circa il quaranta per cento della giornata da sveglie. Gli spostamenti, cioè l'attività peggiore della lista, un altro dieci per cento abbondante. Le relazioni intime, prime in classifica, meno del due per cento.» Elio posò l'articolo. «Metà della giornata di quelle donne era assorbita dalle due attività che le facevano sentire peggio. Non perché fossero disorganizzate. Perché così sono fatte le giornate di moltissime persone.»
+«Aspetti. Accanto alla classifica, i ricercatori misurarono il tempo. Il lavoro occupava circa il quaranta per cento della giornata da sveglie. Gli spostamenti, cioè l'attività peggiore della lista, un altro dieci per cento abbondante. Le relazioni intime, prime in classifica, meno del due per cento.» Aurelio posò l'articolo. «Metà della giornata di quelle donne era assorbita dalle due attività che le facevano sentire peggio. Non perché fossero disorganizzate. Perché così sono fatte le giornate di moltissime persone.»
 
 Stefano fece il conto della sua vita in banca. Un'ora di macchina all'andata, quaranta minuti al ritorno, quando andava bene. Dieci ore di filiale. La cena, quando arrivava in tempo. Matteo che dormiva.
 
@@ -1795,7 +1795,7 @@ Stefano fece il conto della sua vita in banca. Un'ora di macchina all'andata, qu
 
 ---
 
-Il maestrale sbatteva una persiana. Elio si alzò a chiuderla.
+Il maestrale sbatteva una persiana. Aurelio si alzò a chiuderla.
 
 «Preso da solo, un singolo QuDiVi non dice quasi niente» disse, tornando al tavolo. «È un numero isolato, e ha lo stesso limite di ogni giornata osservata senza contesto. Preso su quattro settimane, invece, comincia a mostrare quello che nessuna giornata potrebbe rivelare. Si accorgerà che i suoi 8 e i suoi 9 cadono spesso negli stessi giorni della settimana, dopo le stesse azioni, con le stesse persone. E che i suoi 3 e i suoi 4 si raccolgono intorno a schemi altrettanto riconoscibili.»
 
@@ -1805,7 +1805,7 @@ Il maestrale sbatteva una persiana. Elio si alzò a chiuderla.
 
 Stefano, che di fogli di calcolo ne aveva costruiti centinaia, sentì una specie di sollievo.
 
-«Le dico un'ultima cosa sul numero» disse Elio. «Dice qualcosa sul metodo stesso. Il QuDiVi non c'era nella prima versione di APPO. È nato dopo, dall'uso. Quando le persone che seguivo hanno cominciato a chiedermi come distinguere una giornata piena da una giornata piena di cose.» Sorrise. «È la dimostrazione che anche uno strumento solido può accogliere un miglioramento. Purché resti fedele alla leggerezza che regge tutto il resto. Nessuna pagina in più: un numero accanto alla riga della sera.»
+«Le dico un'ultima cosa sul numero» disse Aurelio. «Dice qualcosa sul metodo stesso. Il QuDiVi non c'era nella prima versione di APPO. È nato dopo, dall'uso. Quando le persone che seguivo hanno cominciato a chiedermi come distinguere una giornata piena da una giornata piena di cose.» Sorrise. «È la dimostrazione che anche uno strumento solido può accogliere un miglioramento. Purché resti fedele alla leggerezza che regge tutto il resto. Nessuna pagina in più: un numero accanto alla riga della sera.»
 
 ---
 
@@ -1813,9 +1813,9 @@ Quella sera, prima di scrivere, Stefano rilesse i numeri dell'ultimo mese. Li co
 
 Il 5 corretto lo lasciò com'era, con il 4 sotto. Accanto ci scrisse a matita: *era un 4. la mattina dopo mi sono raccontato una storia.*
 
-Poi provò a fare quello che Elio gli aveva chiesto: cercare che cosa avevano in comune i giorni con i voti più alti e quelli con i più bassi.
+Poi provò a fare quello che Aurelio gli aveva chiesto: cercare che cosa avevano in comune i giorni con i voti più alti e quelli con i più bassi.
 
-I 7, gli 8 e il 9 erano: la collana di sua madre. Il caffè con Lorenzo ad Agropoli. La sera in cui Matteo aveva suonato il suo pezzo. La pesca. Un pomeriggio in barca con Elio.
+I 7, gli 8 e il 9 erano: la collana di sua madre. Il caffè con Lorenzo ad Agropoli. La sera in cui Matteo aveva suonato il suo pezzo. La pesca. Un pomeriggio in barca con Aurelio.
 
 I 2, i 3 e i 4 erano: il giorno delle diciassette cose spuntate. Il rifiuto della banca di Battipaglia. Due giornate passate quasi interamente su portali di candidature. Il giorno del pronto soccorso.
 
@@ -1852,11 +1852,11 @@ La compilò per intero il primo giorno: diciotto minuti. Il secondo giorno, dodi
 
 ---
 
-«Ogni campo in più è un campo che, prima o poi, resterà vuoto» disse Elio, sfogliando la scheda con un'espressione a metà fra il divertito e il compassionevole. «E una scheda con campi vuoti è la prima cosa che si smette di compilare. La percepisce come incompleta, anche quando la risposta che contava l'ha già data. Meno campi vuol dire meno sensi di colpa. E meno sensi di colpa vuol dire più giorni di fila.»
+«Ogni campo in più è un campo che, prima o poi, resterà vuoto» disse Aurelio, sfogliando la scheda con un'espressione a metà fra il divertito e il compassionevole. «E una scheda con campi vuoti è la prima cosa che si smette di compilare. La percepisce come incompleta, anche quando la risposta che contava l'ha già data. Meno campi vuol dire meno sensi di colpa. E meno sensi di colpa vuol dire più giorni di fila.»
 
 «In banca avevamo una scheda di autovalutazione con dodici campi» ammise Stefano. «Obiettivi, priorità, competenze, punti di miglioramento. Un mese, e la compilavamo tutti a gennaio e a dicembre, copiando quella dell'anno prima.»
 
-«Sono pensate con le migliori intenzioni, e vengono quasi sempre abbandonate. Il tempo necessario per compilarle con attenzione supera quello che chiunque, realisticamente, è disposto a darci ogni giorno.» Elio chiuse il quaderno color tabacco. «Noi facciamo l'opposto. Togliamo tutto tranne l'essenziale, perché l'essenziale venga scritto davvero.»
+«Sono pensate con le migliori intenzioni, e vengono quasi sempre abbandonate. Il tempo necessario per compilarle con attenzione supera quello che chiunque, realisticamente, è disposto a darci ogni giorno.» Aurelio chiuse il quaderno color tabacco. «Noi facciamo l'opposto. Togliamo tutto tranne l'essenziale, perché l'essenziale venga scritto davvero.»
 
 Prese un foglio e disegnò la scheda com'era nella sua testa. Ci mise cinque secondi.
 
@@ -1869,13 +1869,13 @@ Prese un foglio e disegnò la scheda com'era nella sua testa. Ci mise cinque sec
 
 Due giorni dopo, al supermercato di Sapri, Stefano rimase cinque minuti davanti al banco dello yogurt senza riuscire a scegliere. C'erano almeno quaranta tipi diversi: magro, intero, greco, con i cereali, senza lattosio, alla vaniglia, ai frutti di bosco, proteico. Alla fine non ne prese nessuno.
 
-Glielo raccontò a Elio ridendo, e Elio annuì come se fosse la prova di un teorema.
+Glielo raccontò a Aurelio ridendo, e Aurelio annuì come se fosse la prova di un teorema.
 
 «C'è un esperimento del 2000 che parla proprio di questo» disse. «Due psicologi, Sheena Iyengar e Mark Lepper, lo pubblicarono sul *Journal of Personality and Social Psychology*. Allestirono in un supermercato della California un banco di degustazione di marmellate. In alcuni giorni il banco esponeva ventiquattro varietà, in altri soltanto sei. Il banco con più scelta attirava più curiosi. Ma al momento di comprare succedeva il contrario di quello che ci si aspetterebbe. Fra chi si fermava davanti alle ventiquattro varietà, solo il tre per cento ne comprava una. Fra chi ne trovava sei, il trenta per cento. Dieci volte tanto.»
 
 «Troppa scelta paralizza.»
 
-«Così si è detto per anni. Ma devo aggiungere una precisazione, per onestà.» Elio alzò un dito, e Stefano ormai riconosceva il gesto. «Negli anni successivi molti ricercatori hanno provato a ripetere esperimenti simili. Nel 2010 Benjamin Scheibehenne, Rainer Greifeneder e Peter Todd li hanno riuniti in una meta-analisi, sul *Journal of Consumer Research*. Mettendo insieme tutti gli esperimenti, l'effetto medio si avvicinava a zero. Però, guardando i singoli casi, la difficoltà aumentava in modo netto quando la scelta era faticosa o complessa.» Batté la mano sulla scheda color tabacco. «Una scheda da compilare ogni sera, stanchi, è proprio una scelta di quel tipo. Una scheda con troppi campi funziona come il banco con ventiquattro marmellate. Attira. Ma scoraggia.»
+«Così si è detto per anni. Ma devo aggiungere una precisazione, per onestà.» Aurelio alzò un dito, e Stefano ormai riconosceva il gesto. «Negli anni successivi molti ricercatori hanno provato a ripetere esperimenti simili. Nel 2010 Benjamin Scheibehenne, Rainer Greifeneder e Peter Todd li hanno riuniti in una meta-analisi, sul *Journal of Consumer Research*. Mettendo insieme tutti gli esperimenti, l'effetto medio si avvicinava a zero. Però, guardando i singoli casi, la difficoltà aumentava in modo netto quando la scelta era faticosa o complessa.» Batté la mano sulla scheda color tabacco. «Una scheda da compilare ogni sera, stanchi, è proprio una scelta di quel tipo. Una scheda con troppi campi funziona come il banco con ventiquattro marmellate. Attira. Ma scoraggia.»
 
 ---
 
@@ -1883,7 +1883,7 @@ Quella sera Vincenzo cercava le chiavi della cantina. Le cercò per dieci minuti
 
 Vincenzo le provò una a una nella serratura della cantina, e alla nona trovò quella giusta.
 
-Stefano lo guardava, e pensava a quello che Elio gli aveva detto il pomeriggio.
+Stefano lo guardava, e pensava a quello che Aurelio gli aveva detto il pomeriggio.
 
 *Più uno strumento è semplice, più è facile portarselo dietro.*
 
@@ -1899,7 +1899,7 @@ Il giorno dopo, Vincenzo aprì la cantina al primo colpo, senza guardare, e non 
 
 ---
 
-«La chiave singola» disse Elio, quando Stefano glielo raccontò. «Suo padre è un uomo saggio, e lei comincia ad assomigliargli.»
+«La chiave singola» disse Aurelio, quando Stefano glielo raccontò. «Suo padre è un uomo saggio, e lei comincia ad assomigliargli.»
 
 Spiegò che una scheda complessa tende a restare a casa, sulla scrivania, disponibile solo in certi momenti. E uno strumento che non hai con te quando serve, per quanto ben progettato, finisce per essere usato sempre meno.
 
@@ -1915,7 +1915,7 @@ Spiegò che una scheda complessa tende a restare a casa, sulla scrivania, dispon
 
 «Basta una parola. Non è l'ideale, ma basta a non interrompere la sequenza. Una parola scritta di corsa fra un impegno e l'altro vale molto più di una pagina bianca, perché tiene intatta la sensazione di non aver interrotto. Ed è una sensazione potente.»
 
-Poi Elio parlò di due questioni pratiche che, disse, contavano più di quanto sembrassero.
+Poi Aurelio parlò di due questioni pratiche che, disse, contavano più di quanto sembrassero.
 
 La prima era la riservatezza. E fu proprio quella sera che Stefano capì che cosa intendesse.
 
@@ -1929,25 +1929,25 @@ Stefano sentì il sangue gelarsi. Glielo tolse di mano più bruscamente di quant
 
 Matteo alzò le spalle e tornò al telefono. Ma Stefano, per tutta la sera, si chiese che cosa avesse visto suo figlio. E capì che se avesse saputo che qualcuno poteva leggere quelle righe, non le avrebbe mai scritte così.
 
-«È questo il punto» disse Elio il giorno dopo. «Scrive con onestà anche gli ostacoli, le debolezze, le paure. Deve sapere che nessuno le leggerà senza il suo consenso. Se usa il telefono, un'applicazione di note protetta da una password, separata dalle cartelle condivise. Se usa la carta, un taccuino in un cassetto o in una tasca che usa soltanto lei. Non serve una sicurezza sofisticata. Serve una certezza. È quella che le permette di scrivere senza addolcire le risposte per un pubblico immaginario.»
+«È questo il punto» disse Aurelio il giorno dopo. «Scrive con onestà anche gli ostacoli, le debolezze, le paure. Deve sapere che nessuno le leggerà senza il suo consenso. Se usa il telefono, un'applicazione di note protetta da una password, separata dalle cartelle condivise. Se usa la carta, un taccuino in un cassetto o in una tasca che usa soltanto lei. Non serve una sicurezza sofisticata. Serve una certezza. È quella che le permette di scrivere senza addolcire le risposte per un pubblico immaginario.»
 
-La seconda questione era lo spazio. Due righe al giorno occupano pochissimo, disse Elio: un taccuino tascabile contiene diversi mesi. Non serve un quaderno voluminoso, che oltretutto è scomodo da portare. Per scegliere bastano tre criteri: la portabilità, perché deve stare in tasca; la riservatezza, perché solo lei deve poterlo leggere; l'immediatezza, perché lo apre e sa subito che cosa fare.
+La seconda questione era lo spazio. Due righe al giorno occupano pochissimo, disse Aurelio: un taccuino tascabile contiene diversi mesi. Non serve un quaderno voluminoso, che oltretutto è scomodo da portare. Per scegliere bastano tre criteri: la portabilità, perché deve stare in tasca; la riservatezza, perché solo lei deve poterlo leggere; l'immediatezza, perché lo apre e sa subito che cosa fare.
 
 Il quaderno color tabacco non passava il primo. E nemmeno il terzo, con tutte quelle caselle.
 
 ---
 
-«Le dico anche i modi in cui si sbaglia» disse Elio. «Riconoscere un errore mentre lo sta facendo vale più di qualunque istruzione. I più frequenti sono quattro.»
+«Le dico anche i modi in cui si sbaglia» disse Aurelio. «Riconoscere un errore mentre lo sta facendo vale più di qualunque istruzione. I più frequenti sono quattro.»
 
 Stefano li riconobbe tutti e quattro, uno dopo l'altro.
 
 Scrivere tre righe invece di una: l'aveva fatto il giorno delle cinque cose. Usare la riga della sera per farsi il processo: *sono un incapace, me lo merito*. Aspettare di avere qualcosa di interessante da scrivere: la mattina delle lamette. E il quarto, che gli sembrò il più sottile.
 
-«Riscrivere le righe per renderle presentabili» disse Elio. «Succede a chi scrive bene. Rilegge, la formulazione non gli piace, la sistema. Nel momento in cui una riga diventa un testo, ha smesso di raccogliere informazioni e ha cominciato a costruire un'immagine di sé. Quelle righe non le legge nessuno. Possono, anzi devono, essere brutte.»
+«Riscrivere le righe per renderle presentabili» disse Aurelio. «Succede a chi scrive bene. Rilegge, la formulazione non gli piace, la sistema. Nel momento in cui una riga diventa un testo, ha smesso di raccogliere informazioni e ha cominciato a costruire un'immagine di sé. Quelle righe non le legge nessuno. Possono, anzi devono, essere brutte.»
 
 Stefano pensò alle ultime righe nel quaderno color tabacco, scritte con la stilografica che si era regalato insieme al quaderno, con le maiuscole al posto giusto e i punti e virgola. Sembravano frasi da relazione trimestrale.
 
-«Le faccio vedere le righe vere» disse Elio, e gli mostrò una pagina del suo taccuino nero. «Quelle che le ho fatto vedere finora erano scritte bene. *Oggi voglio leggere dieci pagine di un libro che mi piace.* Nessuno lo scrive così alle sette del mattino, in piedi, con il caffè in mano. Le righe vere sono queste.»
+«Le faccio vedere le righe vere» disse Aurelio, e gli mostrò una pagina del suo taccuino nero. «Quelle che le ho fatto vedere finora erano scritte bene. *Oggi voglio leggere dieci pagine di un libro che mi piace.* Nessuno lo scrive così alle sette del mattino, in piedi, con il caffè in mano. Le righe vere sono queste.»
 
 Erano righe raccolte negli anni, gli disse, da persone che gliele avevano lasciate copiare. Storte, abbreviate, senza verbi.
 
@@ -1969,7 +1969,7 @@ Erano righe raccolte negli anni, gli disse, da persone che gliele avevano lascia
 
 ---
 
-Prima che se ne andasse, Elio gli propose l'esercizio che, disse, era il più rivelatore di tutti.
+Prima che se ne andasse, Aurelio gli propose l'esercizio che, disse, era il più rivelatore di tutti.
 
 «Due minuti. Prenda un foglio e ricostruisca a memoria le ultime sette giornate prima che cominciasse a scrivere. Una riga ciascuna. Qual era la cosa importante di quel giorno? Che cosa l'ha rallentata? Senza guardare il calendario.»
 
@@ -1977,7 +1977,7 @@ Stefano ci provò, lì sulla terrazza, su un tovagliolo di carta. Scelse la sett
 
 Ventidue anni di vita erano fatti di settimane così. Le aveva vissute tutte, erano sue, ed erano andate.
 
-«Non glielo faccio notare per farla star male» disse Elio. «È la prova più onesta che posso darle del motivo per cui scrivere due righe al giorno cambia qualcosa. Non deve credermi sulla parola. Ha appena visto, sul suo tovagliolo, quanto poco resta di una settimana non scritta. Le prossime sette possono finire allo stesso modo. Oppure no.»
+«Non glielo faccio notare per farla star male» disse Aurelio. «È la prova più onesta che posso darle del motivo per cui scrivere due righe al giorno cambia qualcosa. Non deve credermi sulla parola. Ha appena visto, sul suo tovagliolo, quanto poco resta di una settimana non scritta. Le prossime sette possono finire allo stesso modo. Oppure no.»
 
 ---
 
@@ -2003,37 +2003,37 @@ Era una riga brutta, storta, senza maiuscole. Non la sistemò.
 
 ---
 
-«Domenica sera» disse Elio, «facciamo una cosa che le ho annunciato più volte. La faccia da solo, però. Io le spiego come, e poi lei la fa senza di me.»
+«Domenica sera» disse Aurelio, «facciamo una cosa che le ho annunciato più volte. La faccia da solo, però. Io le spiego come, e poi lei la fa senza di me.»
 
 «Che cos'è?»
 
 «L'ho chiamato rito di amarsi.»
 
-Stefano fece una smorfia involontaria, e Elio la vide.
+Stefano fece una smorfia involontaria, e Aurelio la vide.
 
 «Lo so. Suona come una cosa da biglietto dei baci. L'ho chiamato così apposta, e non revisione settimanale, per una ragione che riguarda il tono. Non è un controllo da fare in fretta. È tempo che dedica a sé con la stessa cura che riserverebbe a una persona a cui vuole bene.» Fece una pausa. «Ed è esattamente quello che sta facendo.»
 
 ---
 
-Erano sulla terrazza, il venerdì sera, con la luce arancione del tramonto che arrivava di sbieco sotto il pergolato. Elio aveva portato un bicchiere di vino bianco per ciascuno, e una cartellina di fotocopie, la solita.
+Erano sulla terrazza, il venerdì sera, con la luce arancione del tramonto che arrivava di sbieco sotto il pergolato. Aurelio aveva portato un bicchiere di vino bianco per ciascuno, e una cartellina di fotocopie, la solita.
 
 «Lei avrà sentito dire che la pratica rende perfetti.»
 
 «Mio padre lo diceva sempre. Con la pialla.»
 
-«Ha ragione a metà. E la metà che manca è la più interessante.» Elio tirò fuori un foglio. «Nel 2014 quattro ricercatori, Giada Di Stefano, Francesca Gino, Gary Pisano e Bradley Staats, pubblicarono uno studio come documento di lavoro della Harvard Business School. L'avevano condotto sui neoassunti di un grande call center in India, durante la formazione. Un gruppo dedicava gli ultimi quindici minuti della giornata a scrivere una breve riflessione su quello che aveva imparato. Un altro gruppo usava quei quindici minuti per continuare a esercitarsi.»
+«Ha ragione a metà. E la metà che manca è la più interessante.» Aurelio tirò fuori un foglio. «Nel 2014 quattro ricercatori, Giada Di Stefano, Francesca Gino, Gary Pisano e Bradley Staats, pubblicarono uno studio come documento di lavoro della Harvard Business School. L'avevano condotto sui neoassunti di un grande call center in India, durante la formazione. Un gruppo dedicava gli ultimi quindici minuti della giornata a scrivere una breve riflessione su quello che aveva imparato. Un altro gruppo usava quei quindici minuti per continuare a esercitarsi.»
 
 «E ha vinto chi si esercitava di più.»
 
-«Ha vinto chi scriveva. Alla fine della formazione, nel test finale, il gruppo della riflessione scritta ottenne risultati migliori di circa il ventitré per cento. A parità di ore.» Elio posò il foglio. «Lavorare di più non aveva portato risultati migliori. Fermarsi a scrivere sì.»
+«Ha vinto chi scriveva. Alla fine della formazione, nel test finale, il gruppo della riflessione scritta ottenne risultati migliori di circa il ventitré per cento. A parità di ore.» Aurelio posò il foglio. «Lavorare di più non aveva portato risultati migliori. Fermarsi a scrivere sì.»
 
 Stefano ci pensò. Ventidue anni a lavorare di più.
 
-«I ricercatori pensano che la riflessione scritta funzioni perché costringe la mente a passare dall'esperienza grezza, l'accumulo confuso degli eventi, a una rappresentazione ordinata della stessa esperienza. Scrivere non si limita a registrare. Crea una struttura. E una struttura rende visibili schemi che altrimenti resterebbero nascosti.» Elio indicò il taccuino nero nella tasca della giacca di Stefano. «Le sue righe, prese una per volta, sono dati grezzi. Rileggerle tutte insieme le trasforma in qualcosa che può usare. Il rito serve a questo.»
+«I ricercatori pensano che la riflessione scritta funzioni perché costringe la mente a passare dall'esperienza grezza, l'accumulo confuso degli eventi, a una rappresentazione ordinata della stessa esperienza. Scrivere non si limita a registrare. Crea una struttura. E una struttura rende visibili schemi che altrimenti resterebbero nascosti.» Aurelio indicò il taccuino nero nella tasca della giacca di Stefano. «Le sue righe, prese una per volta, sono dati grezzi. Rileggerle tutte insieme le trasforma in qualcosa che può usare. Il rito serve a questo.»
 
 ---
 
-Il rito aveva quattro passaggi e chiedeva cinque minuti. Elio glieli spiegò, e Stefano li scrisse sul taccuino, in fondo, nelle ultime pagine, dove aveva deciso di tenere le istruzioni.
+Il rito aveva quattro passaggi e chiedeva cinque minuti. Aurelio glieli spiegò, e Stefano li scrisse sul taccuino, in fondo, nelle ultime pagine, dove aveva deciso di tenere le istruzioni.
 
 *Primo: rileggi.* Le sette righe del mattino e le sette della sera, tutte in fila, in un colpo solo.
 
@@ -2045,7 +2045,7 @@ Il rito aveva quattro passaggi e chiedeva cinque minuti. Elio glieli spiegò, e 
 
 ---
 
-La domenica sera Matteo uscì con i ragazzi del paese, Vincenzo si addormentò davanti alla televisione, e Stefano si sedette sul balcone con il taccuino nero, una matita e un posacenere. Erano le dieci. Lo aveva deciso apposta: la domenica sera, quando per abitudine c'è già un certo raccoglimento, prima che cominci la settimana. Elio gli aveva detto che il momento non contava, purché fosse sempre lo stesso.
+La domenica sera Matteo uscì con i ragazzi del paese, Vincenzo si addormentò davanti alla televisione, e Stefano si sedette sul balcone con il taccuino nero, una matita e un posacenere. Erano le dieci. Lo aveva deciso apposta: la domenica sera, quando per abitudine c'è già un certo raccoglimento, prima che cominci la settimana. Aurelio gli aveva detto che il momento non contava, purché fosse sempre lo stesso.
 
 Rilesse le quattordici righe.
 
@@ -2073,7 +2073,7 @@ Poi rimase a lungo con la matita sospesa sul quarto passaggio. *Trasforma.* Un e
 
 *Questa settimana, quando mi accorgo che sto aspettando una risposta, faccio la cosa successiva della lista invece di guardare il telefono. E se la risposta mi serve, la chiedo io con una scadenza.*
 
-Gli sembrò ridicolmente piccolo. Elio gli aveva detto che doveva esserlo.
+Gli sembrò ridicolmente piccolo. Aurelio gli aveva detto che doveva esserlo.
 
 ---
 
@@ -2087,23 +2087,23 @@ Il quarto venerdì, sul molo, glielo disse con una certa frustrazione.
 
 «Faccio tutto. Scrivo ogni giorno. Il rito lo faccio. E il numero è fermo. Quattro, cinque, quattro.»
 
-«È il caso più frustrante di tutti» disse Elio, «e se ne parla poco. Pratichi il metodo con costanza, e la media non si muove.» Si sedette sulla bitta. «Quando il numero resta fermo mentre lei lavora, la causa è quasi sempre una di due.»
+«È il caso più frustrante di tutti» disse Aurelio, «e se ne parla poco. Pratichi il metodo con costanza, e la media non si muove.» Si sedette sulla bitta. «Quando il numero resta fermo mentre lei lavora, la causa è quasi sempre una di due.»
 
 «Quali?»
 
-«La prima: sta risolvendo il problema sbagliato. Il Problema che scrive è ancora quello di comodo: la mancanza di tempo, gli altri, le circostanze. Per verificarlo, si chieda se l'ostacolo che scrive dipende in qualche misura da lei. Se non ne dipende affatto, non è ancora il suo ostacolo vero.» Elio sorrise appena. «È la persona con l'ulcera che continua a farsi prescrivere qualcosa per il mal di stomaco, e ogni mese si stupisce di stare come prima. La cura sarebbe giusta, per il mal di stomaco. È la descrizione del problema a essere sbagliata.»
+«La prima: sta risolvendo il problema sbagliato. Il Problema che scrive è ancora quello di comodo: la mancanza di tempo, gli altri, le circostanze. Per verificarlo, si chieda se l'ostacolo che scrive dipende in qualche misura da lei. Se non ne dipende affatto, non è ancora il suo ostacolo vero.» Aurelio sorrise appena. «È la persona con l'ulcera che continua a farsi prescrivere qualcosa per il mal di stomaco, e ogni mese si stupisce di stare come prima. La cura sarebbe giusta, per il mal di stomaco. È la descrizione del problema a essere sbagliata.»
 
 «E la seconda?»
 
 «La seconda: l'Aspirazione non è sua. L'ha scelta perché sembrava quella giusta, non perché le sta a cuore. Si riconosce da un segno preciso. Quando la scrive, non sente niente. Un'aspirazione autentica, anche buttata giù di fretta, non lascia indifferenti.»
 
-Stefano tirò fuori il taccuino e lo sfogliò. La sua aspirazione di fondo, quella che aveva scritto dopo la lezione nella cucina di Elio e che ripeteva ogni settimana nel rito, era sempre la stessa: *trovare un posto in un'altra banca entro settembre*. La lesse. Cercò di sentire qualcosa.
+Stefano tirò fuori il taccuino e lo sfogliò. La sua aspirazione di fondo, quella che aveva scritto dopo la lezione nella cucina di Aurelio e che ripeteva ogni settimana nel rito, era sempre la stessa: *trovare un posto in un'altra banca entro settembre*. La lesse. Cercò di sentire qualcosa.
 
 Niente. Come leggere la ragione sociale di un'azienda.
 
 «La seconda» disse piano.
 
-«In entrambi i casi, la mossa non è aumentare l'impegno» disse Elio. «È cambiare la direzione. Si prenda una settimana e riscriva l'Aspirazione da capo, come se nessuno dovesse leggerla.» Si strinse nelle spalle. «Del resto, nessuno la leggerà.»
+«In entrambi i casi, la mossa non è aumentare l'impegno» disse Aurelio. «È cambiare la direzione. Si prenda una settimana e riscriva l'Aspirazione da capo, come se nessuno dovesse leggerla.» Si strinse nelle spalle. «Del resto, nessuno la leggerà.»
 
 ---
 
@@ -2121,19 +2121,19 @@ Niente. Come leggere la ragione sociale di un'azienda.
 
 ---
 
-C'era un ultimo passaggio, e Elio gliel'aveva lasciato per la fine, quel primo venerdì, apposta.
+C'era un ultimo passaggio, e Aurelio gliel'aveva lasciato per la fine, quel primo venerdì, apposta.
 
 «Il rito si chiude con una riga sola. La più importante, rispetto al tempo che chiede. Una riga di grazie. Per una persona precisa, per un motivo preciso.»
 
 «Tipo: grazie per la bella settimana?»
 
-«No. Quel tipo di gratitudine si scrive senza sforzo, ed è per questo che lascia poca traccia. Scriva un nome e un fatto: grazie a questa persona, per questa cosa. Il vincolo di indicarne una sola la costringe a ricordare un episodio specifico invece di una sensazione vaga. È la specificità, più del sentimento, a far funzionare l'esercizio.» Elio lo guardò. «E se poi trova il modo di dirglielo davvero, non con un messaggio, ma guardandola negli occhi, questa riga settimanale, ripetuta per mesi, potrà cambiare le sue relazioni più di quanto immagina.»
+«No. Quel tipo di gratitudine si scrive senza sforzo, ed è per questo che lascia poca traccia. Scriva un nome e un fatto: grazie a questa persona, per questa cosa. Il vincolo di indicarne una sola la costringe a ricordare un episodio specifico invece di una sensazione vaga. È la specificità, più del sentimento, a far funzionare l'esercizio.» Aurelio lo guardò. «E se poi trova il modo di dirglielo davvero, non con un messaggio, ma guardandola negli occhi, questa riga settimanale, ripetuta per mesi, potrà cambiare le sue relazioni più di quanto immagina.»
 
 ---
 
 Quella prima domenica, sul balcone, dopo aver scritto l'esperimento sull'aspettare, Stefano scrisse la riga di grazie.
 
-Ci mise più che per tutto il resto. Gli vennero in mente Giulia, Elio, perfino Lorenzo Avallone. Alla fine scrisse:
+Ci mise più che per tutto il resto. Gli vennero in mente Giulia, Aurelio, perfino Lorenzo Avallone. Alla fine scrisse:
 
 *grazie a papà, per aver detto la verità al dottor Fontanesi quando gliel'ho chiesto. mi ha insegnato una cosa che io non so ancora fare.*
 
@@ -2167,7 +2167,7 @@ L'ultimo giorno di agosto Stefano andò al fiume.
 
 Il Bussento sfocia nel golfo a Torraca, a pochi chilometri da Torraca, dopo un viaggio lungo e strano: nasce sui monti, sparisce in un inghiottitoio, scorre per chilometri sotto la roccia, e poi riemerge a Morigerati, in una grotta, come se avesse cambiato idea. Da ragazzo, Stefano ci andava a fare il bagno con Gino e gli altri, nei laghetti verdi sotto le cascate. Non ci tornava da trent'anni.
 
-Ci andò da solo, la mattina presto, con il taccuino nero e quattro pagine di appunti. Elio gli aveva detto che era il giorno del primo momento mensile, e che conveniva farlo in un posto diverso dal solito.
+Ci andò da solo, la mattina presto, con il taccuino nero e quattro pagine di appunti. Aurelio gli aveva detto che era il giorno del primo momento mensile, e che conveniva farlo in un posto diverso dal solito.
 
 «Il rito settimanale serve a correggere la rotta nell'immediato» gli aveva detto il venerdì. «Il momento mensile serve a un'altra cosa, più lenta e più importante: farle vedere la forma di quello che sta costruendo. È la differenza fra guardare un'onda e guardare la marea. L'onda dice poco. La marea dice dove sta andando il mare.»
 
@@ -2185,11 +2185,11 @@ Rilesse gli appunti dei quattro riti settimanali di agosto. Non le righe giornal
 
 *Settimana 2. Parola: aspettare (ancora), poi schermo. Media 5,1. Esperimento: niente portali dopo le 18. Grazie: Giulia, per il «fatto» di ogni sera, anche quando è stanca.*
 
-*Settimana 3. Parola: Matteo. Media 5,3. Esperimento: una domanda al giorno a Matteo che non riguardi la scuola. Grazie: Elio, per la storia della parrucchiera.*
+*Settimana 3. Parola: Matteo. Media 5,3. Esperimento: una domanda al giorno a Matteo che non riguardi la scuola. Grazie: Aurelio, per la storia della parrucchiera.*
 
 *Settimana 4. Parola: Sandro / conti. Media 6,1. Esperimento: rispondere a Sandro quando chiama, invece di rimandare. Grazie: Lorenzo, per avermi portato dal cliente.*
 
-Poi aprì il taccuino a una pagina nuova e scrisse le tre domande che Elio gli aveva dato. Erano sempre quelle, gli aveva detto: non servono grafici né tabelle. Serve la sua onestà davanti a tre domande, dieci minuti, una volta ogni trenta giorni.
+Poi aprì il taccuino a una pagina nuova e scrisse le tre domande che Aurelio gli aveva dato. Erano sempre quelle, gli aveva detto: non servono grafici né tabelle. Serve la sua onestà davanti a tre domande, dieci minuti, una volta ogni trenta giorni.
 
 *Quale Aspirazione è rimasta costante per tutto il mese?*
 
@@ -2201,9 +2201,9 @@ Poi aprì il taccuino a una pagina nuova e scrisse le tre domande che Elio gli a
 
 Alla prima domanda rispose subito, e la risposta lo sorprese.
 
-L'Aspirazione che aveva scritto e riscritto per tutto agosto, *trovare un posto in un'altra banca entro settembre*, non si era mai ripresentata nelle righe del mattino. Neanche una volta. Nelle righe del mattino c'erano Matteo, suo padre, Lorenzo, Sandro, una volta perfino Elio. C'erano candidature, sì, ma sempre come una cosa da sbrigare. Non c'era mai stato un mattino in cui avesse scritto, sentendolo: *oggi voglio avvicinarmi a un posto in banca*.
+L'Aspirazione che aveva scritto e riscritto per tutto agosto, *trovare un posto in un'altra banca entro settembre*, non si era mai ripresentata nelle righe del mattino. Neanche una volta. Nelle righe del mattino c'erano Matteo, suo padre, Lorenzo, Sandro, una volta perfino Aurelio. C'erano candidature, sì, ma sempre come una cosa da sbrigare. Non c'era mai stato un mattino in cui avesse scritto, sentendolo: *oggi voglio avvicinarmi a un posto in banca*.
 
-Si ricordò di quello che Elio gli aveva detto: il mese non deve per forza dire che va tutto bene. A volte, rileggendo trenta giorni insieme, emerge con chiarezza che un'aspirazione scelta all'inizio non era così importante come sembrava, perché non si è mai ripresentata con costanza. Anche questa è un'informazione, gli aveva detto. Forse la più preziosa. Ti fa sapere con un mese di anticipo che è ora di cambiare direzione, invece di insistere per inerzia su un obiettivo che non conta più.
+Si ricordò di quello che Aurelio gli aveva detto: il mese non deve per forza dire che va tutto bene. A volte, rileggendo trenta giorni insieme, emerge con chiarezza che un'aspirazione scelta all'inizio non era così importante come sembrava, perché non si è mai ripresentata con costanza. Anche questa è un'informazione, gli aveva detto. Forse la più preziosa. Ti fa sapere con un mese di anticipo che è ora di cambiare direzione, invece di insistere per inerzia su un obiettivo che non conta più.
 
 Scrisse:
 
@@ -2215,7 +2215,7 @@ Alla seconda domanda ci mise di più.
 
 Il Problema che tornava, settimana dopo settimana, era l'aspettare. L'esperimento della prima settimana aveva funzionato per i portali e per il sindacato. Ma l'aspettare era tornato in un'altra forma, più sottile. Aspettava di avere le idee chiare prima di parlarne con Giulia. Aspettava che Lorenzo gli proponesse qualcosa di concreto, invece di proporlo lui. Aspettava il momento giusto per dire a suo padre che non sapeva se sarebbe tornato in banca.
 
-Ricordò l'altra cosa che Elio gli aveva detto. C'è il caso, che confonde molti, in cui l'Aspirazione resta costante, ed è un buon segno, ma lo stesso Problema si ripresenta sempre, senza progressi. Non è un fallimento. Vuol dire che l'ostacolo è più radicato di quanto pensavi, e che probabilmente va rivisto il Progetto, non l'Aspirazione. Avere quattro parole distinte serve proprio a questo: intervenire con precisione sul punto che non funziona, invece di sentirsi bloccati in generale.
+Ricordò l'altra cosa che Aurelio gli aveva detto. C'è il caso, che confonde molti, in cui l'Aspirazione resta costante, ed è un buon segno, ma lo stesso Problema si ripresenta sempre, senza progressi. Non è un fallimento. Vuol dire che l'ostacolo è più radicato di quanto pensavi, e che probabilmente va rivisto il Progetto, non l'Aspirazione. Avere quattro parole distinte serve proprio a questo: intervenire con precisione sul punto che non funziona, invece di sentirsi bloccati in generale.
 
 Scrisse:
 
@@ -2225,15 +2225,15 @@ Guardò la frase. Gli sembrò la cosa più vera che avesse scritto in tre mesi.
 
 ---
 
-«C'è una ragione solida dietro questo momento» gli aveva detto Elio il venerdì, sul molo, mentre gli spiegava il mese. «Viene da due psicologi, Edwin Locke e Gary Latham. Hanno costruito quella che è considerata una delle teorie più robuste su come si raggiungono gli obiettivi. Nel 1990 ne hanno riassunto decenni di studi in un libro, *A Theory of Goal Setting and Task Performance*.»
+«C'è una ragione solida dietro questo momento» gli aveva detto Aurelio il venerdì, sul molo, mentre gli spiegava il mese. «Viene da due psicologi, Edwin Locke e Gary Latham. Hanno costruito quella che è considerata una delle teorie più robuste su come si raggiungono gli obiettivi. Nel 1990 ne hanno riassunto decenni di studi in un libro, *A Theory of Goal Setting and Task Performance*.»
 
 «E che cosa dicono?»
 
-«Tante cose. Una è questa: un obiettivo specifico batte un obiettivo vago. E lo batte molto di più se è accompagnato da un riscontro regolare su quanto ci si sta avvicinando. Senza quel riscontro, anche l'obiettivo meglio definito perde forza nel tempo.» Elio aveva sorriso. «Questo ribalta un luogo comune. Nel mondo della crescita personale si dà un'importanza enorme a come si formula un obiettivo: quanto dev'essere specifico, ambizioso, misurabile. Su quello che succede dopo averlo fissato, quasi niente. Eppure un obiettivo, per quanto ben scritto, si spegne se nessuno ti dice a che punto sei.»
+«Tante cose. Una è questa: un obiettivo specifico batte un obiettivo vago. E lo batte molto di più se è accompagnato da un riscontro regolare su quanto ci si sta avvicinando. Senza quel riscontro, anche l'obiettivo meglio definito perde forza nel tempo.» Aurelio aveva sorriso. «Questo ribalta un luogo comune. Nel mondo della crescita personale si dà un'importanza enorme a come si formula un obiettivo: quanto dev'essere specifico, ambizioso, misurabile. Su quello che succede dopo averlo fissato, quasi niente. Eppure un obiettivo, per quanto ben scritto, si spegne se nessuno ti dice a che punto sei.»
 
 «Come guidare senza navigatore.»
 
-«Come guidare verso una destinazione precisa senza mai controllare la posizione lungo il percorso. Anche con la meta chiara in testa, senza controlli periodici si devia un poco alla volta.» Elio aveva fatto una pausa. «E non te ne accorgi. Il momento mensile è quel controllo. Non ridefinisce la meta. Verifica che la rotta ti stia portando dove volevi andare.»
+«Come guidare verso una destinazione precisa senza mai controllare la posizione lungo il percorso. Anche con la meta chiara in testa, senza controlli periodici si devia un poco alla volta.» Aurelio aveva fatto una pausa. «E non te ne accorgi. Il momento mensile è quel controllo. Non ridefinisce la meta. Verifica che la rotta ti stia portando dove volevi andare.»
 
 ---
 
@@ -2249,7 +2249,7 @@ Scrisse:
 
 ---
 
-Elio gli aveva chiesto di aggiungere, alle tre domande, due annotazioni sugli imprevisti.
+Aurelio gli aveva chiesto di aggiungere, alle tre domande, due annotazioni sugli imprevisti.
 
 «Un mese che contiene soltanto quello che avevi pianificato ti racconta una vita che non esiste» gli aveva detto. «La perdita di un cliente importante, un incontro casuale, una diagnosi, un'offerta di un vecchio collega. Nessuno di questi eventi è in programma. Eppure è quasi sempre roba del genere a spostare il cammino, nel bene o nel male.»
 
@@ -2257,19 +2257,19 @@ La prima annotazione riguardava *ciò che gli era arrivato addosso*, e che cosa 
 
 *Arrivato addosso: la caduta della mamma di Giulia. Giulia da sola con tutto. Meno fragile: avere già pensato, prima, a chi chiamare. Una lista di nomi e numeri. Non ce l'avevamo.*
 
-La seconda riguardava *ciò che gli si era aperto davanti*: le porte che stava tenendo socchiuse. Contatti coltivati senza uno scopo immediato, competenze in costruzione, possibilità che aveva scelto di non chiudere. Gli imprevisti favorevoli non si programmano, gli aveva detto Elio, ma atterrano quasi sempre su un terreno preparato.
+La seconda riguardava *ciò che gli si era aperto davanti*: le porte che stava tenendo socchiuse. Contatti coltivati senza uno scopo immediato, competenze in costruzione, possibilità che aveva scelto di non chiudere. Gli imprevisti favorevoli non si programmano, gli aveva detto Aurelio, ma atterrano quasi sempre su un terreno preparato.
 
 *Aperto davanti: Lorenzo. Il panificio. Rosa, l'infermiera, che mi ha chiesto di spiegarle il metodo. Il corso di Excel finito (non serviva a niente, forse).*
 
 ---
 
-Elio gli aveva fatto notare un'ultima cosa, quella che considerava la più elegante di tutto il metodo.
+Aurelio gli aveva fatto notare un'ultima cosa, quella che considerava la più elegante di tutto il metodo.
 
 «Adesso che vede l'architettura per intero. Salendo di livello, la quantità di scrittura diminuisce invece di aumentare. Due righe al giorno. Qualche parola ogni sette giorni. Tre risposte una volta al mese. È una piramide, non una scala. È costruita apposta perché la scrittura non cresca mai, mentre la visione cresce eccome. È l'esatto contrario di quasi tutti gli strumenti di produttività, che salendo di livello diventano più complicati invece che più semplici.»
 
 Stefano guardò le pagine. Trenta giorni di vita, quattro settimane, un mese: e alla fine, tre risposte e due annotazioni. Una mezza pagina. Eppure non aveva mai visto la sua vita così chiaramente.
 
-L'ultima cosa da fare era una frase sola. Elio gliel'aveva data nella forma esatta: *Il mese prossimo cambio…*, scegliendo se cambiare l'Aspirazione, il Problema o il Progetto. E se non serviva cambiare niente, scriverlo, perché anche quello era un dato.
+L'ultima cosa da fare era una frase sola. Aurelio gliel'aveva data nella forma esatta: *Il mese prossimo cambio…*, scegliendo se cambiare l'Aspirazione, il Problema o il Progetto. E se non serviva cambiare niente, scriverlo, perché anche quello era un dato.
 
 Scrisse:
 
@@ -2307,13 +2307,13 @@ Stefano rise forte, per la prima volta in tutta l'estate. Il fiume, sotto il pae
 
 Sul corso di Sapri, dove per quarant'anni c'era stato il negozio di stoffe De Luca, adesso c'era una bigiotteria. Insegna al neon rosa, vetrina piena di orecchini a cerchio, collane di plastica dorata, braccialetti a tre euro su un espositore girevole.
 
-Elio si fermò davanti alla vetrina. Era il primo martedì di settembre, e Stefano lo aveva accompagnato in centro a ritirare degli occhiali.
+Aurelio si fermò davanti alla vetrina. Era il primo martedì di settembre, e Stefano lo aveva accompagnato in centro a ritirare degli occhiali.
 
-«Guardi bene» disse Elio. «Terzo ripiano, a sinistra.»
+«Guardi bene» disse Aurelio. «Terzo ripiano, a sinistra.»
 
 Stefano guardò. In mezzo a bracciali di plastica e di argento placcato, appoggiato su un cuscinetto di velluto finto, c'era un bracciale sottile, a maglie, giallo opaco. Non si distingueva dagli altri. Il cartellino diceva *15 euro*.
 
-«È oro» disse Elio. «Diciotto carati. L'ho riconosciuto dalla chiusura. Qualcuno l'ha venduto insieme a un lotto di bigiotteria, e la ragazza del negozio non se n'è accorta.»
+«È oro» disse Aurelio. «Diciotto carati. L'ho riconosciuto dalla chiusura. Qualcuno l'ha venduto insieme a un lotto di bigiotteria, e la ragazza del negozio non se n'è accorta.»
 
 «Sta scherzando.»
 
@@ -2321,21 +2321,21 @@ Stefano guardò. In mezzo a bracciali di plastica e di argento placcato, appoggi
 
 Stefano guardò il bracciale. Non era cambiato: era oro, e lo sarebbe stato anche domani. Ma in quella vetrina nessuno ne vedeva il valore. Chi passava lo guardava con lo stesso occhio con cui guardava tutto il resto. Chi entrava trattava sul prezzo come se fosse un bracciale qualunque.
 
-«Il posto in cui stai» disse Elio, «non cambia quello che sei. Cambia quello che riesci a diventare.»
+«Il posto in cui stai» disse Aurelio, «non cambia quello che sei. Cambia quello che riesci a diventare.»
 
 ---
 
-Entrarono. Elio comprò il bracciale per quindici euro, sotto lo sguardo perplesso della commessa, e uscendo se lo infilò in tasca senza commenti. Poi si sedettero al bar della piazza.
+Entrarono. Aurelio comprò il bracciale per quindici euro, sotto lo sguardo perplesso della commessa, e uscendo se lo infilò in tasca senza commenti. Poi si sedettero al bar della piazza.
 
 «Avrà sentito la frase di Jim Rohn, quella secondo cui siamo la media delle cinque persone che frequentiamo di più.»
 
 «In banca la ripetevano ai corsi di leadership.»
 
-«Glielo dico subito: è un aforisma, non il risultato di una ricerca. Nessuno ha mai misurato quel numero cinque. E chi la presenta come una legge scientifica sta facendo esattamente quello che le insegno a riconoscere.» Elio mescolò lo zucchero nel caffè. «Ma qualcosa di vero c'è, ed è più sottile. Non si diventa pigri per contagio. Succede qualcosa di più silenzioso: si spostano le aspettative.»
+«Glielo dico subito: è un aforisma, non il risultato di una ricerca. Nessuno ha mai misurato quel numero cinque. E chi la presenta come una legge scientifica sta facendo esattamente quello che le insegno a riconoscere.» Aurelio mescolò lo zucchero nel caffè. «Ma qualcosa di vero c'è, ed è più sottile. Non si diventa pigri per contagio. Succede qualcosa di più silenzioso: si spostano le aspettative.»
 
 «Cioè?»
 
-«Ciò che consideri normale. Ciò che ti sembra ambizioso. Quanto tempo ti pare accettabile perdere in una giornata. Quanto ti sembra ragionevole aspettare prima di provare una cosa nuova. Nessuna di queste misure la decidi da solo. Le tari, ogni giorno e senza accorgertene, su quello che vedi fare alle persone che hai intorno. Se nella tua cerchia nessuno si è mosso da dieci anni, il tuo normale diventa non muoverti. Se nessuno ha un obiettivo, averne uno comincia a sembrarti una stranezza. E poi una presunzione.» Elio bevve il caffè. «Non sono cattive persone. È il loro passo che diventa il tuo metro.»
+«Ciò che consideri normale. Ciò che ti sembra ambizioso. Quanto tempo ti pare accettabile perdere in una giornata. Quanto ti sembra ragionevole aspettare prima di provare una cosa nuova. Nessuna di queste misure la decidi da solo. Le tari, ogni giorno e senza accorgertene, su quello che vedi fare alle persone che hai intorno. Se nella tua cerchia nessuno si è mosso da dieci anni, il tuo normale diventa non muoverti. Se nessuno ha un obiettivo, averne uno comincia a sembrarti una stranezza. E poi una presunzione.» Aurelio bevve il caffè. «Non sono cattive persone. È il loro passo che diventa il tuo metro.»
 
 ---
 
@@ -2345,11 +2345,11 @@ Prese il telefono e guardò dove andava il suo tempo, non in ore, ma in persone.
 
 Sommò a spanne. Quasi un'ora al giorno. Sette ore alla settimana.
 
-«Non è tempo rubato da nemici» gli aveva detto Elio al bar. «È tempo che regaliamo per non restare soli. È questa la parte scomoda. Molti dei rapporti che ci portiamo dietro non li manteniamo perché ci danno qualcosa, ma perché riempiono un vuoto che ci fa paura.»
+«Non è tempo rubato da nemici» gli aveva detto Aurelio al bar. «È tempo che regaliamo per non restare soli. È questa la parte scomoda. Molti dei rapporti che ci portiamo dietro non li manteniamo perché ci danno qualcosa, ma perché riempiono un vuoto che ci fa paura.»
 
 ---
 
-Elio gli aveva descritto anche i ruoli. Non una categoria di persone, gli aveva detto, ma ruoli: una stessa persona può interpretarne due o tre a seconda della giornata. Ognuno si tradisce con una frase.
+Aurelio gli aveva descritto anche i ruoli. Non una categoria di persone, gli aveva detto, ma ruoli: una stessa persona può interpretarne due o tre a seconda della giornata. Ognuno si tradisce con una frase.
 
 Stefano li scrisse sul taccuino, e accanto, senza volerlo, cominciarono a comparire dei nomi.
 
@@ -2369,7 +2369,7 @@ Stefano li scrisse sul taccuino, e accanto, senza volerlo, cominciarono a compar
 
 *I portatori di drammi.* «Hai sentito che cosa è successo? Tu da che parte stai?» Ogni settimana un nuovo nemico, e ogni settimana ti chiedono di schierarti. Accanto: *Fabrizio.*
 
-Poi si fermò. Guardò l'elenco. E fece quello che Elio gli aveva chiesto di fare, e che era la parte più difficile.
+Poi si fermò. Guardò l'elenco. E fece quello che Aurelio gli aveva chiesto di fare, e che era la parte più difficile.
 
 «In almeno uno di questi ruoli, prima o poi, ci siamo stati tutti» gli aveva detto. «Lei e io compresi. Chi riconosce un ruolo anche in sé smette di giudicare gli altri e comincia a vedere lo schema. Ed è lo schema, non la persona, che sta cercando.»
 
@@ -2379,7 +2379,7 @@ Accanto a *I cercatori di pubblico* scrisse: *io, con Giulia, per tutto giugno. 
 
 ---
 
-«Quasi tutti questi ruoli si tradiscono in un momento preciso» gli aveva detto Elio. «Quando ti va bene.»
+«Quasi tutti questi ruoli si tradiscono in un momento preciso» gli aveva detto Aurelio. «Quando ti va bene.»
 
 Gli aveva raccontato di una psicologa americana, Shelly Gable, che nel 2004, insieme a Harry Reis, Emily Impett ed Evan Asher, aveva pubblicato sul *Journal of Personality and Social Psychology* uno studio su una cosa all'apparenza minuscola: che cosa fa una persona quando le porti una buona notizia.
 
@@ -2397,13 +2397,13 @@ A suo padre, a cena. Vincenzo aveva detto: «Bravo», e aveva continuato a mangi
 
 E a Giulia. Giulia aveva posato il telefono che teneva in mano, si era seduta sul letto e gli aveva chiesto: «Racconta. Dall'inizio. Che cosa avevano? Che cosa gli hai detto? E loro come ti hanno guardato?». Erano rimasti a parlare un'ora.
 
-Poi Stefano si fece la domanda che Elio gli aveva lasciato come ultima, quella che pesava davvero. *C'è una persona a cui, ormai, le cose belle non le racconti più?*
+Poi Stefano si fece la domanda che Aurelio gli aveva lasciato come ultima, quella che pesava davvero. *C'è una persona a cui, ormai, le cose belle non le racconti più?*
 
 Sì. Fabrizio. Da anni. Senza essersene mai accorto, aveva smesso di raccontargli le cose belle perché aveva imparato che tornavano indietro rovinate.
 
 ---
 
-Il giorno dopo, mentre camminavano sul lungomare di Sapri, Elio si fermò davanti a un muro di pietra a secco che sosteneva un giardino. Dalle crepe fra le pietre uscivano cespugli di capperi, con i fiori bianchi e i lunghi stami viola.
+Il giorno dopo, mentre camminavano sul lungomare di Sapri, Aurelio si fermò davanti a un muro di pietra a secco che sosteneva un giardino. Dalle crepe fra le pietre uscivano cespugli di capperi, con i fiori bianchi e i lunghi stami viola.
 
 «Nessuno li ha piantati» disse. «Nessuno li guarda. Non sono meno fiori per questo.»
 
@@ -2413,31 +2413,31 @@ Si chinò, ne toccò uno con un dito.
 
 Ripresero a camminare.
 
-«Tagliare i rami secchi non è un atto di superbia» disse Elio. «Non sta dicendo di valere più di loro. Non sta emettendo sentenze su nessuno. Sta facendo una cosa molto più semplice: smette di svalutarsi.»
+«Tagliare i rami secchi non è un atto di superbia» disse Aurelio. «Non sta dicendo di valere più di loro. Non sta emettendo sentenze su nessuno. Sta facendo una cosa molto più semplice: smette di svalutarsi.»
 
 «Mi sembra egoismo.»
 
-«Ci hanno cresciuti perché suonasse così. Prima gli altri, poi tu, e se avanza qualcosa.» Elio si fermò di nuovo. «Ma ci rifletta. Nessuno ha mai dormito al posto suo. Nessuno ha avuto fame per lei, o preso la sua febbre, o pianto le sue lacrime. È l'unico che abita la sua vita da dentro, ventiquattro ore al giorno, da quando è nato. Anche le persone che la amano di più la guardano da fuori. La domanda non è se deve volersi bene. È se è disposto a trattarsi almeno come tratta gli altri.»
+«Ci hanno cresciuti perché suonasse così. Prima gli altri, poi tu, e se avanza qualcosa.» Aurelio si fermò di nuovo. «Ma ci rifletta. Nessuno ha mai dormito al posto suo. Nessuno ha avuto fame per lei, o preso la sua febbre, o pianto le sue lacrime. È l'unico che abita la sua vita da dentro, ventiquattro ore al giorno, da quando è nato. Anche le persone che la amano di più la guardano da fuori. La domanda non è se deve volersi bene. È se è disposto a trattarsi almeno come tratta gli altri.»
 
 Stefano pensò alla riga di luglio: *sono un incapace, me lo merito*.
 
-«Quello che fa con se stesso, di solito, non lo farebbe mai a un amico» disse Elio. «A un amico non direbbe *sei un disastro* dopo un errore. Non terrebbe il conto dei suoi sbagli per anni. Non lo lascerebbe in una vetrina dove nessuno lo vede, solo perché uscirne è scomodo. Volersi bene, qui, non vuol dire concedersi tutto. Vuol dire una cosa più sobria e più difficile: smettere di essere l'unica persona con cui non è mai gentile.»
+«Quello che fa con se stesso, di solito, non lo farebbe mai a un amico» disse Aurelio. «A un amico non direbbe *sei un disastro* dopo un errore. Non terrebbe il conto dei suoi sbagli per anni. Non lo lascerebbe in una vetrina dove nessuno lo vede, solo perché uscirne è scomodo. Volersi bene, qui, non vuol dire concedersi tutto. Vuol dire una cosa più sobria e più difficile: smettere di essere l'unica persona con cui non è mai gentile.»
 
 ---
 
-«Ma la cosa si può fare male» disse Elio, al bar. «E per questo le do due avvertenze.»
+«Ma la cosa si può fare male» disse Aurelio, al bar. «E per questo le do due avvertenze.»
 
 «La prima: una risposta fredda non fa un falso amico. Chi la liquida una sera può essere stanco, o attraversare qualcosa che non le ha raccontato. Chi sta male ha poche energie, e la prima a mancare è proprio quella che serve per gioire di qualcun altro. Quella persona non va tagliata. Le va chiesto come sta. Conta lo schema, non l'episodio.»
 
 Stefano pensò a Rosa, l'infermiera, che la settimana prima gli aveva risposto a monosillabi al telefono. Il giorno dopo aveva scoperto che usciva da tre notti di fila.
 
-«La seconda è quella a cui tengo di più. Prima di potare, verifichi di non allontanare una persona che semplicemente funziona in un altro modo.» Elio abbassò la voce, come se parlasse di qualcuno presente. «Alcune persone sono neurodivergenti: il loro cervello elabora le cose in modo diverso. Spesso non lo sanno nemmeno loro, perché molti adulti lo scoprono tardi. Viste da fuori possono somigliare moltissimo a un ramo secco. Non rispondono ai messaggi se non le solleciti con insistenza. Spariscono per settimane e poi ricompaiono come se niente fosse. Non partecipano ai rituali sociali, né buongiorno né auguri. E quando racconti una cosa bella non si illuminano affatto: ti rispondono con una domanda tecnica.»
+«La seconda è quella a cui tengo di più. Prima di potare, verifichi di non allontanare una persona che semplicemente funziona in un altro modo.» Aurelio abbassò la voce, come se parlasse di qualcuno presente. «Alcune persone sono neurodivergenti: il loro cervello elabora le cose in modo diverso. Spesso non lo sanno nemmeno loro, perché molti adulti lo scoprono tardi. Viste da fuori possono somigliare moltissimo a un ramo secco. Non rispondono ai messaggi se non le solleciti con insistenza. Spariscono per settimane e poi ricompaiono come se niente fosse. Non partecipano ai rituali sociali, né buongiorno né auguri. E quando racconti una cosa bella non si illuminano affatto: ti rispondono con una domanda tecnica.»
 
 Stefano pensò subito a una persona precisa.
 
-Si chiamava Ivo Lamanna, aveva ventinove anni, ed era il nipote di un vecchio amico di Elio. Faceva lo sviluppatore per un'azienda di Milano, da remoto, da una casa sopra Sapri. Elio glielo aveva presentato ad agosto, perché Ivo sapeva tutto di fogli di calcolo e di intelligenza artificiale, e Stefano aveva bisogno di un aiuto con un modello per il panificio. Ivo gli aveva dato il numero. Stefano gli aveva scritto quattro messaggi in tre settimane. Nessuna risposta. Letti tutti e quattro. Stefano aveva concluso che era uno dei tanti: un irraggiungibile.
+Si chiamava Ivo Lamanna, aveva ventinove anni, ed era il nipote di un vecchio amico di Aurelio. Faceva lo sviluppatore per un'azienda di Milano, da remoto, da una casa sopra Sapri. Aurelio glielo aveva presentato ad agosto, perché Ivo sapeva tutto di fogli di calcolo e di intelligenza artificiale, e Stefano aveva bisogno di un aiuto con un modello per il panificio. Ivo gli aveva dato il numero. Stefano gli aveva scritto quattro messaggi in tre settimane. Nessuna risposta. Letti tutti e quattro. Stefano aveva concluso che era uno dei tanti: un irraggiungibile.
 
-«Il segno distintivo» disse Elio, quando Stefano glielo raccontò, «è proprio quello che le ho dato. L'irraggiungibile risponde subito quando gli serve qualcosa. La persona neurodivergente, spesso, non risponde nemmeno allora, perché per lei il messaggio scritto è semplicemente un canale difficile. Ma se le telefoni, risponde. Se la vedi di persona, è completamente lì per te. Se le chiedi una mano, arriva. E se le racconti un problema, ci ragiona sopra per giorni e torna con una soluzione a cui nessuno aveva pensato.»
+«Il segno distintivo» disse Aurelio, quando Stefano glielo raccontò, «è proprio quello che le ho dato. L'irraggiungibile risponde subito quando gli serve qualcosa. La persona neurodivergente, spesso, non risponde nemmeno allora, perché per lei il messaggio scritto è semplicemente un canale difficile. Ma se le telefoni, risponde. Se la vedi di persona, è completamente lì per te. Se le chiedi una mano, arriva. E se le racconti un problema, ci ragiona sopra per giorni e torna con una soluzione a cui nessuno aveva pensato.»
 
 «E come faccio a sapere se…»
 
@@ -2453,17 +2453,17 @@ Aveva ragione.
 
 ---
 
-«Il test della buona notizia misura le risposte, non le persone» disse Elio. «E non trasformi questo discorso in una potatura generale. Il rischio l'ho visto: allontanare in fretta tutti quelli che sembrano rami secchi, e ritrovarsi in poco tempo da soli, che è la condizione peggiore di tutte. Una persona scomoda che però c'è quando serve vale più di dieci entusiasti che spariscono al primo problema.» Sorrise. «Tagli poco, e tagli tardi. Ma smetta da oggi di regalare il suo tempo e le sue notizie a chi non ne fa niente.»
+«Il test della buona notizia misura le risposte, non le persone» disse Aurelio. «E non trasformi questo discorso in una potatura generale. Il rischio l'ho visto: allontanare in fretta tutti quelli che sembrano rami secchi, e ritrovarsi in poco tempo da soli, che è la condizione peggiore di tutte. Una persona scomoda che però c'è quando serve vale più di dieci entusiasti che spariscono al primo problema.» Sorrise. «Tagli poco, e tagli tardi. Ma smetta da oggi di regalare il suo tempo e le sue notizie a chi non ne fa niente.»
 
 Stefano uscì dal gruppo *Ex Banca del Tirreno*. Ci mise un dito e mezzo secondo, dopo averci pensato per tre giorni. Silenziò il gruppo dei cugini. Smise di rispondere alle telefonate di Fabrizio dopo le otto di sera, e quando rispondeva, dopo dieci minuti di guerre d'ufficio, diceva: «Fabri, adesso devo andare». A Raffaele, per la pratica del mutuo, disse di no. Gli costò una notte di sonno e una telefonata di sua sorella. Ma lo disse.
 
 ---
 
-«Togliere da solo non basta» disse Elio il giovedì, sul molo. «Lascia un vuoto. E un vuoto si riempie da sé, di solito con le stesse cose di prima.»
+«Togliere da solo non basta» disse Aurelio il giovedì, sul molo. «Lascia un vuoto. E un vuoto si riempie da sé, di solito con le stesse cose di prima.»
 
 «E allora?»
 
-«C'è una frase che uso spesso. Ama i tuoi cari, ma stai con i tuoi pari.» Elio guardò il golfo. «Non vuol dire abbandonare nessuno. I tuoi cari restano i tuoi cari: tuo padre, tua moglie, l'amico di quando avevi vent'anni. Non li hai scelti, e non devi sceglierli adesso. Li ami, e basta. Ma volere bene a qualcuno non è la stessa cosa che camminare insieme. Puoi amare profondamente una persona e sapere, allo stesso tempo, che con lei non parlerai mai di dove stai andando. Confondere le due cose è all'origine di una parte della solitudine che molti si portano addosso.»
+«C'è una frase che uso spesso. Ama i tuoi cari, ma stai con i tuoi pari.» Aurelio guardò il golfo. «Non vuol dire abbandonare nessuno. I tuoi cari restano i tuoi cari: tuo padre, tua moglie, l'amico di quando avevi vent'anni. Non li hai scelti, e non devi sceglierli adesso. Li ami, e basta. Ma volere bene a qualcuno non è la stessa cosa che camminare insieme. Puoi amare profondamente una persona e sapere, allo stesso tempo, che con lei non parlerai mai di dove stai andando. Confondere le due cose è all'origine di una parte della solitudine che molti si portano addosso.»
 
 Stefano pensò a suo padre. *Bravo*, e continuava a mangiare.
 
@@ -2471,17 +2471,17 @@ Stefano pensò a suo padre. *Bravo*, e continuava a mangiare.
 
 «E dove li trovo?»
 
-«Li cerca.» Elio si voltò verso di lui. «Anni fa li ho chiamati comunità pensanti. Piccoli gruppi di persone che crescono insieme e si sostengono, nei successi come nei fallimenti. Non servono grandi numeri. Bastano tre o quattro persone che si vedono una volta al mese, si raccontano che cosa è emerso dalle loro righe e si dicono la verità. Nessun relatore, nessun programma, nessuna quota. Un'ora, sempre nella stessa data del mese.» Fece una pausa. «Se ne esiste una vicino a te, ci entri. Se non esiste, la apri tu. Non serve essere esperti. Serve essere uno che ci prova, e trovarne altri due che ci provano.»
+«Li cerca.» Aurelio si voltò verso di lui. «Anni fa li ho chiamati comunità pensanti. Piccoli gruppi di persone che crescono insieme e si sostengono, nei successi come nei fallimenti. Non servono grandi numeri. Bastano tre o quattro persone che si vedono una volta al mese, si raccontano che cosa è emerso dalle loro righe e si dicono la verità. Nessun relatore, nessun programma, nessuna quota. Un'ora, sempre nella stessa data del mese.» Fece una pausa. «Se ne esiste una vicino a te, ci entri. Se non esiste, la apri tu. Non serve essere esperti. Serve essere uno che ci prova, e trovarne altri due che ci provano.»
 
 ---
 
 La prima comunità pensante di Sapri si riunì il primo giovedì di ottobre, alle sette di sera, nel retro del Bar Approdo, dove il barista teneva le casse di bibite e un tavolo di formica verde.
 
-Erano in quattro, più Elio, che si sedette in un angolo e disse che quella sera avrebbe soltanto ascoltato.
+Erano in quattro, più Aurelio, che si sedette in un angolo e disse che quella sera avrebbe soltanto ascoltato.
 
-C'era Stefano. C'era Rosa Amato, l'infermiera, che arrivò in divisa perché attaccava il turno di notte alle nove, e che aveva cominciato a scrivere le sue righe ad agosto, *appena sveglia, qualunque ora sia*. C'era Ivo, che arrivò in orario spaccato, si sedette, e per i primi quaranta minuti non disse una parola. E c'era Carmela De Luca, detta Mela, sessantatré anni, i capelli tinti di un rosso coraggioso, che per quarant'anni aveva avuto il negozio di stoffe sul corso di Sapri. Quello che adesso era una bigiotteria. L'aveva chiuso a marzo. Elio la conosceva da sempre. Aveva molto tempo, diceva, e non sapeva più che cosa farne.
+C'era Stefano. C'era Rosa Amato, l'infermiera, che arrivò in divisa perché attaccava il turno di notte alle nove, e che aveva cominciato a scrivere le sue righe ad agosto, *appena sveglia, qualunque ora sia*. C'era Ivo, che arrivò in orario spaccato, si sedette, e per i primi quaranta minuti non disse una parola. E c'era Carmela De Luca, detta Mela, sessantatré anni, i capelli tinti di un rosso coraggioso, che per quarant'anni aveva avuto il negozio di stoffe sul corso di Sapri. Quello che adesso era una bigiotteria. L'aveva chiuso a marzo. Aurelio la conosceva da sempre. Aveva molto tempo, diceva, e non sapeva più che cosa farne.
 
-«Allora» disse Mela, dopo che il barista ebbe portato quattro caffè e una camomilla per Elio. «Chi comincia?»
+«Allora» disse Mela, dopo che il barista ebbe portato quattro caffè e una camomilla per Aurelio. «Chi comincia?»
 
 Nessuno parlò. Poi Ivo, senza alzare gli occhi dal tavolo, disse:
 
@@ -2489,7 +2489,7 @@ Nessuno parlò. Poi Ivo, senza alzare gli occhi dal tavolo, disse:
 
 Rosa scoppiò a ridere. Mela pure. Ivo alzò gli occhi, sorpreso, e dopo un secondo sorrise anche lui.
 
-Stefano li guardò, tutti e quattro sotto la luce al neon del retrobottega, fra le casse di aranciata. Pensò al bracciale d'oro nella vetrina della bigiotteria. Quella sera, in tasca, Elio gliel'aveva dato: «Lo tenga lei. Come promemoria».
+Stefano li guardò, tutti e quattro sotto la luce al neon del retrobottega, fra le casse di aranciata. Pensò al bracciale d'oro nella vetrina della bigiotteria. Quella sera, in tasca, Aurelio gliel'aveva dato: «Lo tenga lei. Come promemoria».
 
 Lo strinse fra le dita. Non era cambiato niente, e lui lo sapeva: era ancora un ex bancario di quarantotto anni senza un lavoro fisso. Ma per la prima volta da maggio era seduto a un tavolo dove qualcuno riconosceva il valore di quello che stava facendo. E dove anche lui lo riconosceva negli altri.
 
@@ -2509,21 +2509,21 @@ Quella sera, nella riga della sera, scrisse soltanto:
 
 A metà ottobre il mare cambiò colore. Diventò più scuro, quasi blu notte anche di giorno, e la mattina presto sul golfo c'era una nebbia leggera che si alzava a ciuffi, come fumo da una pentola.
 
-Elio telefonò alle sei.
+Aurelio telefonò alle sei.
 
 «Esce? Oggi glielo devo.»
 
-Stefano non chiese che cosa. Si vestì al buio e guidò fino a Sapri con i fari accesi. Elio era già sul *Lucilio*, con il motore acceso e il thermos del caffè fra le ginocchia. Uscirono piano dalla darsena e puntarono verso il largo, dove la nebbia era più fitta. Dopo dieci minuti Elio spense il motore. Il silenzio era totale. Non si vedeva la costa.
+Stefano non chiese che cosa. Si vestì al buio e guidò fino a Sapri con i fari accesi. Aurelio era già sul *Lucilio*, con il motore acceso e il thermos del caffè fra le ginocchia. Uscirono piano dalla darsena e puntarono verso il largo, dove la nebbia era più fitta. Dopo dieci minuti Aurelio spense il motore. Il silenzio era totale. Non si vedeva la costa.
 
-«Gli strumenti li ha» disse Elio. «Da qui in avanti le racconto perché sono fatti così. E comincio da quello che le devo da giugno: da dove viene tutto questo. Senza questa storia, quello che le ho dato sarebbe soltanto una tecnica.»
+«Gli strumenti li ha» disse Aurelio. «Da qui in avanti le racconto perché sono fatti così. E comincio da quello che le devo da giugno: da dove viene tutto questo. Senza questa storia, quello che le ho dato sarebbe soltanto una tecnica.»
 
 ---
 
-«C'è una domanda che mi porto dietro da sempre» disse Elio. «Non l'ho scelta io: è lei che torna, e non se ne va. È la più grande che esista. Che senso ha la vita, e che senso ha la mia?»
+«C'è una domanda che mi porto dietro da sempre» disse Aurelio. «Non l'ho scelta io: è lei che torna, e non se ne va. È la più grande che esista. Che senso ha la vita, e che senso ha la mia?»
 
 Stefano non disse niente. Si aspettava qualunque cosa, ma non questo.
 
-«Non me la facevo per vocazione filosofica. Me la facevo perché non riuscivo a stare dentro la vita senza sapere a che cosa servisse. È una domanda che si accende nei momenti più strani. In macchina, fermi a un semaforo. Mentre si spegne la luce. Alla fine di una giornata che pure era andata bene.» Elio versò il caffè. «L'ho cercata dove la cercano tutti. Nei libri, sperando che qualcuno l'avesse già scritta. Nel lavoro, pensando che bastasse costruire qualcosa di importante. Nei risultati. Ogni volta che pensavo di aver trovato la risposta, la domanda tornava a bussare. Come prima.»
+«Non me la facevo per vocazione filosofica. Me la facevo perché non riuscivo a stare dentro la vita senza sapere a che cosa servisse. È una domanda che si accende nei momenti più strani. In macchina, fermi a un semaforo. Mentre si spegne la luce. Alla fine di una giornata che pure era andata bene.» Aurelio versò il caffè. «L'ho cercata dove la cercano tutti. Nei libri, sperando che qualcuno l'avesse già scritta. Nel lavoro, pensando che bastasse costruire qualcosa di importante. Nei risultati. Ogni volta che pensavo di aver trovato la risposta, la domanda tornava a bussare. Come prima.»
 
 «Che lavoro faceva?»
 
@@ -2531,23 +2531,23 @@ Stefano non disse niente. Si aspettava qualunque cosa, ma non questo.
 
 ---
 
-«Sono sempre stato ottimista» continuò Elio. «Ho creduto nella bontà degli altri in modo ingenuo, più volte di quanto mi convenisse. Andavo avanti dividendo le persone in buone e cattive. E c'era sempre qualcuno che non stava in nessuna delle due caselle. Faceva del male senza volerlo, senza ricavarne niente, a volte rimettendoci anche lui.»
+«Sono sempre stato ottimista» continuò Aurelio. «Ho creduto nella bontà degli altri in modo ingenuo, più volte di quanto mi convenisse. Andavo avanti dividendo le persone in buone e cattive. E c'era sempre qualcuno che non stava in nessuna delle due caselle. Faceva del male senza volerlo, senza ricavarne niente, a volte rimettendoci anche lui.»
 
 Stefano pensò a Fabrizio, che lo chiamava per raccontargli le guerre d'ufficio e intanto si stava giocando la promozione con tutti.
 
-«Mi mancava una dimensione. Non basta chiedersi se una persona è buona o cattiva. Bisogna chiedersi anche se, in quel momento preciso, si sta comportando in modo intelligente o stupido. Non nel senso dell'insulto. In un senso tecnico, preciso, che un giorno le spiegherò, quando le parlerò di uno storico dell'economia che si chiamava Carlo Maria Cipolla.» Elio bevve un sorso. «Il giorno in cui ho aggiunto quella dimensione ho smesso di stupirmi. E ho cominciato a fare l'unica cosa che avesse senso: occuparmi di stare io, il più possibile, dalla parte giusta.»
+«Mi mancava una dimensione. Non basta chiedersi se una persona è buona o cattiva. Bisogna chiedersi anche se, in quel momento preciso, si sta comportando in modo intelligente o stupido. Non nel senso dell'insulto. In un senso tecnico, preciso, che un giorno le spiegherò, quando le parlerò di uno storico dell'economia che si chiamava Carlo Maria Cipolla.» Aurelio bevve un sorso. «Il giorno in cui ho aggiunto quella dimensione ho smesso di stupirmi. E ho cominciato a fare l'unica cosa che avesse senso: occuparmi di stare io, il più possibile, dalla parte giusta.»
 
 ---
 
 La nebbia cominciava ad alzarsi. A ovest si vedeva un pezzo di costa, grigia, con le case di Sapri che sembravano disegnate a matita.
 
-Elio rimase zitto a lungo. Quando riprese a parlare, la voce era diversa.
+Aurelio rimase zitto a lungo. Quando riprese a parlare, la voce era diversa.
 
 «Poi è successa la cosa che ha cambiato la domanda stessa.»
 
 Stefano aspettò.
 
-«Si chiamava Pietro. Eravamo cresciuti insieme, a Sapri. Banco insieme al liceo, la prima moto insieme, il primo lavoro quasi insieme. Era la persona più viva che io abbia conosciuto. Rideva fortissimo, con la testa all'indietro.» Elio guardava l'acqua. «Aveva quarantun anni. Un aneurisma, una mattina, mentre si faceva la barba. Lasciava una moglie e un figlio di sei anni, Daniele.»
+«Si chiamava Pietro. Eravamo cresciuti insieme, a Sapri. Banco insieme al liceo, la prima moto insieme, il primo lavoro quasi insieme. Era la persona più viva che io abbia conosciuto. Rideva fortissimo, con la testa all'indietro.» Aurelio guardava l'acqua. «Aveva quarantun anni. Un aneurisma, una mattina, mentre si faceva la barba. Lasciava una moglie e un figlio di sei anni, Daniele.»
 
 Il *Lucilio* oscillava piano sull'acqua ferma.
 
@@ -2555,9 +2555,9 @@ Il *Lucilio* oscillava piano sull'acqua ferma.
 
 «Mi dispiace» disse Stefano, e si accorse che era la cosa più sincera che avesse detto da molto tempo.
 
-«In quel periodo mi capitò fra le mani un testo breve. Comincia con le parole *Se mi ami, non piangere*. È scritto dal punto di vista di chi se n'è andato, che si rivolge a chi resta.» Elio si voltò. «Lo troverà attribuito quasi ovunque a Sant'Agostino. Su internet, nei biglietti dei funerali, perfino in qualche libro. Ma è un errore. L'autore è un gesuita, padre Giacomo Perico, e il testo compare in un suo libro pubblicato nel 2001.»
+«In quel periodo mi capitò fra le mani un testo breve. Comincia con le parole *Se mi ami, non piangere*. È scritto dal punto di vista di chi se n'è andato, che si rivolge a chi resta.» Aurelio si voltò. «Lo troverà attribuito quasi ovunque a Sant'Agostino. Su internet, nei biglietti dei funerali, perfino in qualche libro. Ma è un errore. L'autore è un gesuita, padre Giacomo Perico, e il testo compare in un suo libro pubblicato nel 2001.»
 
-Stefano sorrise appena. Anche lì, anche in mezzo al lutto, Elio aveva controllato la fonte.
+Stefano sorrise appena. Anche lì, anche in mezzo al lutto, Aurelio aveva controllato la fonte.
 
 «Quelle righe mi hanno lasciato un'idea che non mi ha più abbandonato. Gliela racconto con parole mie.»
 
@@ -2571,11 +2571,11 @@ Stefano pensò a sua madre. Lucia, la collana, la voce al telefono la domenica s
 
 Stefano se la ricordava benissimo. Il giorno in cui l'avevano assunto in banca, ventidue anni prima, sua madre aveva pianto in cucina e poi aveva fatto le polpette per tutto il palazzo.
 
-«Adesso provi a immaginarla mentre la guarda oggi. La vede davvero contenta di vederla passare i prossimi vent'anni a fissare il vuoto?» Elio scosse la testa. «Io no. Io me la immagino mentre le fa cenno di andare. E si spazientisce un po', se lei non va.»
+«Adesso provi a immaginarla mentre la guarda oggi. La vede davvero contenta di vederla passare i prossimi vent'anni a fissare il vuoto?» Aurelio scosse la testa. «Io no. Io me la immagino mentre le fa cenno di andare. E si spazientisce un po', se lei non va.»
 
 Stefano dovette guardare da un'altra parte.
 
-«Se toccasse a me» disse Elio, piano, «non vorrei lasciare niente di solenne alle persone a cui voglio bene. Vorrei lasciare una riga sola. *Non fermatevi.* Chi ci ha voluto bene non ci vorrebbe tristi per sempre. E nessuno di noi, sapendo di dover andare, vorrebbe che le persone amate sprecassero gli anni successivi nel rimpianto.»
+«Se toccasse a me» disse Aurelio, piano, «non vorrei lasciare niente di solenne alle persone a cui voglio bene. Vorrei lasciare una riga sola. *Non fermatevi.* Chi ci ha voluto bene non ci vorrebbe tristi per sempre. E nessuno di noi, sapendo di dover andare, vorrebbe che le persone amate sprecassero gli anni successivi nel rimpianto.»
 
 Fece una pausa.
 
@@ -2585,7 +2585,7 @@ Fece una pausa.
 
 Il sole aveva bucato la nebbia. Il golfo, adesso, era tutto azzurro e argento.
 
-«Da lì è nata la domanda che regge tutto quello che le ho insegnato» disse Elio. «*Come faccio a non sprecare nemmeno un giorno del tempo che mi resta?*»
+«Da lì è nata la domanda che regge tutto quello che le ho insegnato» disse Aurelio. «*Come faccio a non sprecare nemmeno un giorno del tempo che mi resta?*»
 
 «E la risposta?»
 
@@ -2595,7 +2595,7 @@ Il sole aveva bucato la nebbia. Il golfo, adesso, era tutto azzurro e argento.
 
 «Sembrava poco anche a me. Poi l'ho guardata da un'altra parte. Se il senso fosse un premio in fondo al percorso, potresti anche non arrivarci mai. Pietro non c'è arrivato. Ma se il senso sta dentro una giornata, ce l'hai a portata di mano adesso. Non devi aspettare le condizioni giuste, l'età giusta, il momento in cui tutto si sistemerà. Nessun giorno è perso, perché ogni giorno può essere quello buono.»
 
-Elio tirò fuori il taccuino nero, lo aprì alla prima pagina. *OSA REALIZZARTI OGGI.*
+Aurelio tirò fuori il taccuino nero, lo aprì alla prima pagina. *OSA REALIZZARTI OGGI.*
 
 «Ecco da dove viene la riga che scrive ogni mattina. Non da una teoria sulla produttività. Da un funerale. E dalla domanda che mi ha lasciato addosso.»
 
@@ -2605,13 +2605,13 @@ Stefano rimase in silenzio a lungo. Poi chiese la cosa che non aveva mai chiesto
 
 «E perché lo insegna? Perché a me? Non mi conosceva.»
 
-Elio ci pensò, come se la domanda meritasse una risposta precisa.
+Aurelio ci pensò, come se la domanda meritasse una risposta precisa.
 
 «Perché una domanda, per quanto grande, non basta. Ho scelto una missione personale. Voglio essere d'aiuto alle persone che desiderano capire meglio il proprio mondo interiore e il mondo che hanno intorno. E voglio farlo con un metodo scientifico: osservando, verificando, cambiando idea quando i fatti lo chiedono. Non con le promesse né con le formule magiche. Con quello che si può controllare.»
 
 «Per questo dice sempre *per onestà*.»
 
-Elio rise.
+Aurelio rise.
 
 «Per questo.» Tornò serio. «Ho visto troppe volte l'energia andare nella direzione sbagliata. Penso ai genitori che hanno faticato ad accettare la diagnosi di un figlio. Quasi mai per egoismo, quasi sempre per paura. Dentro quella paura hanno speso anni a combattere la cosa sbagliata, mentre passava il tempo che contava davvero: quello del figlio. Non lo dico per giudicarli. Accettare è difficile, e nessuno ci insegna a farlo. Lo dico perché è proprio il genere di errore che un po' di lucidità, arrivata in tempo, può evitare.»
 
@@ -2621,15 +2621,15 @@ Guardò Stefano.
 
 ---
 
-Rientrarono in silenzio. Il sole era alto, il porto pieno di gente che preparava le barche. Elio legò la cima con il solito nodo senza guardare.
+Rientrarono in silenzio. Il sole era alto, il porto pieno di gente che preparava le barche. Aurelio legò la cima con il solito nodo senza guardare.
 
 «Daniele, il figlio di Pietro» disse Stefano, mentre scendevano. «Che fine ha fatto?»
 
-«Ha trentasei anni. Fa il medico a Napoli, in pediatria. Ha due figlie.» Elio sorrise. «Mi chiama ogni domenica. Gli ho insegnato io a usare il quaderno, quando aveva sedici anni e non voleva più studiare. È stata la prima persona a cui l'ho insegnato.»
+«Ha trentasei anni. Fa il medico a Napoli, in pediatria. Ha due figlie.» Aurelio sorrise. «Mi chiama ogni domenica. Gli ho insegnato io a usare il quaderno, quando aveva sedici anni e non voleva più studiare. È stata la prima persona a cui l'ho insegnato.»
 
 ---
 
-Quella sera Stefano aprì il taccuino a una pagina nuova e scrisse in cima la domanda di Elio:
+Quella sera Stefano aprì il taccuino a una pagina nuova e scrisse in cima la domanda di Aurelio:
 
 *Come faccio a non sprecare nemmeno un giorno del tempo che mi resta?*
 
@@ -2668,37 +2668,37 @@ Dalla finestra della cucina si sentì una risata. Vincenzo rideva così forte ch
 
 ---
 
-«Glielo giuro, non l'avevo fatto apposta» disse Stefano a Elio il giorno dopo. «Ero così concentrato a sistemare bene la scala che non ho guardato dove la mettevo.»
+«Glielo giuro, non l'avevo fatto apposta» disse Stefano a Aurelio il giorno dopo. «Ero così concentrato a sistemare bene la scala che non ho guardato dove la mettevo.»
 
-Elio rideva quasi quanto Vincenzo.
+Aurelio rideva quasi quanto Vincenzo.
 
 «Lei mi ha appena portato l'immagine di Stephen Covey. Non poteva saperlo.»
 
 Erano seduti sulla terrazza, sotto il pergolato ormai spoglio, con le giacche addosso. Stefano aveva portato un sacchetto di cachi, raccolti al secondo tentativo, con la scala al posto giusto.
 
-«C'è una distinzione che sembra tecnica e invece conta moltissimo» disse Elio. «L'efficacia consiste nel fare le cose giuste. L'efficienza nel farle nel modo giusto, con il minimo spreco. La si deve a Peter Drucker, uno dei padri della teoria del management, che la rese celebre nei suoi libri, a partire da *The Effective Executive*, nel 1967. Sono due cose diverse. Servono entrambe. E in quest'ordine.»
+«C'è una distinzione che sembra tecnica e invece conta moltissimo» disse Aurelio. «L'efficacia consiste nel fare le cose giuste. L'efficienza nel farle nel modo giusto, con il minimo spreco. La si deve a Peter Drucker, uno dei padri della teoria del management, che la rese celebre nei suoi libri, a partire da *The Effective Executive*, nel 1967. Sono due cose diverse. Servono entrambe. E in quest'ordine.»
 
 «Prima la direzione.»
 
-«Prima la direzione. Puoi essere efficientissimo e sbagliare direzione. Puoi correre benissimo, con grande disciplina, verso un obiettivo che non ti appartiene. Magari l'hai ereditato dalle aspettative degli altri, o da un'idea di successo che non hai mai scelto.» Elio indicò il sacchetto di cachi. «È una delle trappole più silenziose che conosca. Persone organizzate, capaci, instancabili, che salgono velocissime su una scala appoggiata al muro sbagliato. L'immagine è di Covey, che la usò nel suo libro più famoso, nel 1989. Non ne conosco una migliore.»
+«Prima la direzione. Puoi essere efficientissimo e sbagliare direzione. Puoi correre benissimo, con grande disciplina, verso un obiettivo che non ti appartiene. Magari l'hai ereditato dalle aspettative degli altri, o da un'idea di successo che non hai mai scelto.» Aurelio indicò il sacchetto di cachi. «È una delle trappole più silenziose che conosca. Persone organizzate, capaci, instancabili, che salgono velocissime su una scala appoggiata al muro sbagliato. L'immagine è di Covey, che la usò nel suo libro più famoso, nel 1989. Non ne conosco una migliore.»
 
 Stefano pensò ai suoi ventidue anni. La scala era stata solidissima. Lui era salito in fretta, con disciplina. E per tutto il tempo non aveva mai guardato a quale muro fosse appoggiata.
 
-«Vale anche il contrario» disse Elio. «Puoi avere in mente l'obiettivo giusto, quello autentico. Ma senza un metodo che ti ci porti con costanza, resta un desiderio bellissimo e inerte, che si spegne sotto il peso delle giornate. L'efficacia senza efficienza è un sogno che non decolla. L'efficienza senza efficacia è una corsa velocissima nella direzione sbagliata. Il metodo serve a tenerle insieme ogni giorno. Prima la direzione giusta. Poi il modo più leggero di percorrerla.»
+«Vale anche il contrario» disse Aurelio. «Puoi avere in mente l'obiettivo giusto, quello autentico. Ma senza un metodo che ti ci porti con costanza, resta un desiderio bellissimo e inerte, che si spegne sotto il peso delle giornate. L'efficacia senza efficienza è un sogno che non decolla. L'efficienza senza efficacia è una corsa velocissima nella direzione sbagliata. Il metodo serve a tenerle insieme ogni giorno. Prima la direzione giusta. Poi il modo più leggero di percorrerla.»
 
 ---
 
 Stefano esitò, poi disse la cosa per cui era venuto.
 
-«Elio, posso dirle una cosa? Mi sembra di aver capito. Le due righe, il numero, il rito, il mese. Le cose funzionano. Il panificio, il caseificio di Laurito che mi ha chiamato. Non so se mi serve sapere tutto il resto. Il perché, la teoria.»
+«Aurelio, posso dirle una cosa? Mi sembra di aver capito. Le due righe, il numero, il rito, il mese. Le cose funzionano. Il panificio, il caseificio di Laurito che mi ha chiamato. Non so se mi serve sapere tutto il resto. Il perché, la teoria.»
 
-Elio non si offese. Annuì, come se se l'aspettasse.
+Aurelio non si offese. Annuì, come se se l'aspettasse.
 
 «È il momento in cui quasi tutti me lo dicono. E le rispondo come rispondo a tutti: non salti la seconda parte.» Si sporse in avanti. «Gli strumenti li ha. È vero. Ma è molto probabile che fra qualche settimana smetterà di usarli. Succede a quasi tutti, con quasi qualunque metodo, e non per colpa loro. Quello che le dirò d'ora in poi spiega il perché. Perché la nostra testa rema contro. Perché l'urgente vince quasi sempre. Perché la volontà si esaurisce. Perché i metodi si abbandonano.»
 
 «E a che cosa mi serve saperlo?»
 
-«A riconoscere il momento in cui sta per mollare. Mentre sta succedendo. Non dopo.» Elio fece una pausa. «Non è teoria da leggere per cultura. È un sistema di allarme.»
+«A riconoscere il momento in cui sta per mollare. Mentre sta succedendo. Non dopo.» Aurelio fece una pausa. «Non è teoria da leggere per cultura. È un sistema di allarme.»
 
 ---
 
@@ -2708,7 +2708,7 @@ Fu una serata difficile. Mela raccontò che le sue righe erano tutte uguali: *ni
 
 Stefano raccontò della scala.
 
-Alla fine, quando il barista cominciava a impilare le sedie, Elio, che per tutta la serata era stato zitto nel suo angolo con la camomilla, si schiarì la voce.
+Alla fine, quando il barista cominciava a impilare le sedie, Aurelio, che per tutta la serata era stato zitto nel suo angolo con la camomilla, si schiarì la voce.
 
 «Prima che andiate via, vi devo dire una cosa vera. Senza filtri. Come la direi se fossi seduto davanti a ciascuno di voi da solo.»
 
@@ -2718,7 +2718,7 @@ Tutti si girarono.
 
 Ci fu un silenzio imbarazzato. Mela fece per ridere, poi non rise. Ivo guardò il tavolo.
 
-«Non nel senso vago con cui si usa questa frase per chiudere una conversazione» continuò Elio. «In un senso concreto, e un po' scomodo. Mi importa abbastanza di voi da aver costruito questo strumento. E da averlo riscritto più volte per renderlo più leggero, alla portata di tutti. So che il tempo che avete è poco, ognuno a modo suo. Non volevo che diventasse un altro peso invece di un alleggerimento.»
+«Non nel senso vago con cui si usa questa frase per chiudere una conversazione» continuò Aurelio. «In un senso concreto, e un po' scomodo. Mi importa abbastanza di voi da aver costruito questo strumento. E da averlo riscritto più volte per renderlo più leggero, alla portata di tutti. So che il tempo che avete è poco, ognuno a modo suo. Non volevo che diventasse un altro peso invece di un alleggerimento.»
 
 Guardò Rosa.
 
@@ -2726,7 +2726,7 @@ Guardò Rosa.
 
 Rosa abbassò gli occhi. Stefano vide che le tremava il mento.
 
-«Non esiste una persona che sia riuscita in qualcosa, in qualunque ambito, senza aver fallito molte volte prima di trovare la sua strada. La differenza non sta nell'assenza di imperfezioni. Sta nella capacità di riconoscerle senza usarle come scusa per fermarsi. E di rimettersi in cammino il giorno dopo, con un po' più di consapevolezza.» Elio si alzò, appoggiandosi al tavolo. «Se questo metodo vi aiuterà anche soltanto a fare questo, a lavorare ogni giorno su voi stessi senza pretendere la perfezione, avrà fatto il suo lavoro.»
+«Non esiste una persona che sia riuscita in qualcosa, in qualunque ambito, senza aver fallito molte volte prima di trovare la sua strada. La differenza non sta nell'assenza di imperfezioni. Sta nella capacità di riconoscerle senza usarle come scusa per fermarsi. E di rimettersi in cammino il giorno dopo, con un po' più di consapevolezza.» Aurelio si alzò, appoggiandosi al tavolo. «Se questo metodo vi aiuterà anche soltanto a fare questo, a lavorare ogni giorno su voi stessi senza pretendere la perfezione, avrà fatto il suo lavoro.»
 
 Prese la giacca.
 
@@ -2738,19 +2738,19 @@ Fuori, sul lungomare, Mela si accese una sigaretta, l'unica della serata, e ne o
 
 «Che tipo strano» disse Mela. «Quarant'anni che lo conosco. Non l'avevo mai sentito dire una cosa così.»
 
-«Perché dice che non è una faccenda privata?» chiese Stefano a Elio, più tardi, mentre lo accompagnava a casa. Elio camminava piano, quella sera, più piano del solito. «La crescita, intendo. Ha detto una volta che non è una faccenda privata.»
+«Perché dice che non è una faccenda privata?» chiese Stefano a Aurelio, più tardi, mentre lo accompagnava a casa. Aurelio camminava piano, quella sera, più piano del solito. «La crescita, intendo. Ha detto una volta che non è una faccenda privata.»
 
-«Perché c'è una convinzione che custodisco con cura. Il mondo cambierebbe, concretamente, se ogni persona si prendesse la responsabilità della propria crescita.» Elio si fermò a riprendere fiato, fingendo di guardare il mare. «Non parlo di un mondo perfetto, senza conflitti e senza fatica. Parlo di un mondo in cui meno persone scaricano sugli altri il peso della propria infelicità irrisolta. Perché hanno smesso di trascurare la propria crescita.»
+«Perché c'è una convinzione che custodisco con cura. Il mondo cambierebbe, concretamente, se ogni persona si prendesse la responsabilità della propria crescita.» Aurelio si fermò a riprendere fiato, fingendo di guardare il mare. «Non parlo di un mondo perfetto, senza conflitti e senza fatica. Parlo di un mondo in cui meno persone scaricano sugli altri il peso della propria infelicità irrisolta. Perché hanno smesso di trascurare la propria crescita.»
 
 Ripresero a camminare.
 
-«Ogni volta che qualcuno impara a dire una cosa difficile senza aggredire» disse Elio, «qualcun altro smette di andare a letto ferito.»
+«Ogni volta che qualcuno impara a dire una cosa difficile senza aggredire» disse Aurelio, «qualcun altro smette di andare a letto ferito.»
 
 Stefano pensò a Matteo. A quella frase di maggio, prima della partenza, che gli era rimasta in gola: *con quella chitarra non andrai da nessuna parte*. Non gliel'aveva mai ritirata.
 
 ---
 
-Davanti al cancello, Elio gli diede l'ultima cosa della serata.
+Davanti al cancello, Aurelio gli diede l'ultima cosa della serata.
 
 «Le lascio quattro pilastri. Sono quelli che reggono tutto quello che le dirò d'ora in poi. Li tenga con sé.»
 
@@ -2764,11 +2764,11 @@ Li disse lentamente, e Stefano, la sera, li scrisse nelle ultime pagine del tacc
 
 *Ogni giorno è una scelta, non un evento.* Ogni riga che scrivi è un piccolo atto di presenza contro la distrazione che ti vorrebbe altrove.
 
-«E poi c'è Epitteto» disse Elio, con la mano sul cancello. «Il suo *Manuale* comincia con una frase. Di tutte le cose, alcune dipendono da noi, altre non dipendono da noi. La crescita appartiene alla prima categoria. È questo che la rende, insieme, una responsabilità e una libertà.»
+«E poi c'è Epitteto» disse Aurelio, con la mano sul cancello. «Il suo *Manuale* comincia con una frase. Di tutte le cose, alcune dipendono da noi, altre non dipendono da noi. La crescita appartiene alla prima categoria. È questo che la rende, insieme, una responsabilità e una libertà.»
 
 ---
 
-Quella sera, a Torraca, Stefano fece l'esercizio che Elio gli aveva lasciato. Divise una pagina in due colonne. In cima a sinistra scrisse *Dipende da me*; a destra, *Non dipende da me*. Poi scrisse le cinque preoccupazioni che gli occupavano di più la testa in quel periodo, ciascuna nella colonna giusta.
+Quella sera, a Torraca, Stefano fece l'esercizio che Aurelio gli aveva lasciato. Divise una pagina in due colonne. In cima a sinistra scrisse *Dipende da me*; a destra, *Non dipende da me*. Poi scrisse le cinque preoccupazioni che gli occupavano di più la testa in quel periodo, ciascuna nella colonna giusta.
 
 *Non dipende da me:* se il caseificio di Laurito firmerà. La salute di papà. La mamma di Giulia.
 
@@ -2814,13 +2814,13 @@ A metà novembre Mela invitò tutti a cena.
 
 Aveva una casa grande sopra Sapri, con una cucina che sembrava un ristorante e un tavolo da dodici persone che non usava più da quando i figli si erano trasferiti a Torino e a Londra. Cucinò per due giorni. Culurgiones, perché sua madre era dell'Ogliastra, in Sardegna, e un arrosto, e una torta di mele che Ivo mangiò in tre fette senza dire niente, e quello, Rosa spiegò poi a Stefano, era il complimento più grande che Ivo sapesse fare.
 
-Elio arrivò per ultimo, con una bottiglia di vino e la solita cartellina.
+Aurelio arrivò per ultimo, con una bottiglia di vino e la solita cartellina.
 
 Al caffè, Mela gli chiese a bruciapelo:
 
-«Elio, tu che sai tutto. Se ti chiedessi che cosa renderà buona la mia vita fra trent'anni, ammesso che ci arrivi, che cosa mi rispondi?»
+«Aurelio, tu che sai tutto. Se ti chiedessi che cosa renderà buona la mia vita fra trent'anni, ammesso che ci arrivi, che cosa mi rispondi?»
 
-Elio non rispose. Rigirò la domanda al tavolo.
+Aurelio non rispose. Rigirò la domanda al tavolo.
 
 «Rispondete voi. Di getto.»
 
@@ -2832,37 +2832,37 @@ Elio non rispose. Rigirò la domanda al tavolo.
 
 Ivo ci pensò più a lungo degli altri. «Non lo so. Probabilmente avere ragione su qualcosa di importante.»
 
-«Sono le risposte che ci hanno insegnato a dare» disse Elio. «Le ho date anch'io per anni. Soldi, successo, sicurezza. Il punto è che qualcuno è andato a verificarle sul serio. E i conti non tornano.»
+«Sono le risposte che ci hanno insegnato a dare» disse Aurelio. «Le ho date anch'io per anni. Soldi, successo, sicurezza. Il punto è che qualcuno è andato a verificarle sul serio. E i conti non tornano.»
 
 ---
 
-«Nel 1938 l'Università di Harvard ha avviato uno studio che, unito poco dopo a una ricerca parallela, ha seguito per tutta la vita 724 uomini» disse Elio. «In parte studenti di Harvard, in parte ragazzi dei quartieri più poveri di Boston. Si chiama *Harvard Study of Adult Development*. Dura da più di ottantacinque anni, e si è allargato a più di mille figli e nipoti dei partecipanti. È la ricerca più lunga mai condotta sulla vita adulta.»
+«Nel 1938 l'Università di Harvard ha avviato uno studio che, unito poco dopo a una ricerca parallela, ha seguito per tutta la vita 724 uomini» disse Aurelio. «In parte studenti di Harvard, in parte ragazzi dei quartieri più poveri di Boston. Si chiama *Harvard Study of Adult Development*. Dura da più di ottantacinque anni, e si è allargato a più di mille figli e nipoti dei partecipanti. È la ricerca più lunga mai condotta sulla vita adulta.»
 
 «Ottantacinque anni» ripeté Mela. «Più di me.»
 
-«I suoi attuali direttori, uno psichiatra, Robert Waldinger, e uno psicologo, Marc Schulz, ne hanno raccolto le conclusioni in un libro, *The Good Life*, nel 2023. Waldinger le riassume in una frase.» Elio fece una pausa. «Le buone relazioni ci rendono più felici e più sani.»
+«I suoi attuali direttori, uno psichiatra, Robert Waldinger, e uno psicologo, Marc Schulz, ne hanno raccolto le conclusioni in un libro, *The Good Life*, nel 2023. Waldinger le riassume in una frase.» Aurelio fece una pausa. «Le buone relazioni ci rendono più felici e più sani.»
 
 Ci fu un breve silenzio.
 
-«Il risultato è più preciso di come lo raccontano di solito. Le persone più soddisfatte delle proprie relazioni a cinquant'anni sono risultate le più sane a ottanta. E la qualità dei legami prediceva una vita lunga e soddisfacente meglio della classe sociale, del quoziente intellettivo e della ricchezza.» Elio indicò la frase che aveva scritto su un tovagliolo e appoggiato vicino alla bottiglia, la citazione di Epicuro. «Epicuro l'aveva scritto più di duemilatrecento anni fa. Senza uno studio, senza un campione, senza un solo dato. Fra tutto quello che rende felice una vita, l'amicizia viene prima.»
+«Il risultato è più preciso di come lo raccontano di solito. Le persone più soddisfatte delle proprie relazioni a cinquant'anni sono risultate le più sane a ottanta. E la qualità dei legami prediceva una vita lunga e soddisfacente meglio della classe sociale, del quoziente intellettivo e della ricchezza.» Aurelio indicò la frase che aveva scritto su un tovagliolo e appoggiato vicino alla bottiglia, la citazione di Epicuro. «Epicuro l'aveva scritto più di duemilatrecento anni fa. Senza uno studio, senza un campione, senza un solo dato. Fra tutto quello che rende felice una vita, l'amicizia viene prima.»
 
 Ivo alzò la mano, come a scuola.
 
 «Il campione erano solo uomini.»
 
-«Esatto» disse Elio, e sembrava contento. «Devo aggiungere una precisazione, per onestà. Il nucleo originale dello studio era composto soltanto da uomini, in gran parte bianchi e americani. È uno schema robusto, osservato in una popolazione specifica. Non è una legge universale.»
+«Esatto» disse Aurelio, e sembrava contento. «Devo aggiungere una precisazione, per onestà. Il nucleo originale dello studio era composto soltanto da uomini, in gran parte bianchi e americani. È uno schema robusto, osservato in una popolazione specifica. Non è una legge universale.»
 
 ---
 
 «E la Sardegna?» chiese Mela. «Mia madre diceva sempre che in Ogliastra si campa cent'anni perché si sta insieme. Ho letto che c'è una zona blu.»
 
-«C'è una seconda indicazione, meno solida ma coerente» disse Elio. «Un giornalista ed esploratore, Dan Buettner, ha reso famose con i suoi reportage per il *National Geographic* le cosiddette Zone Blu: aree del mondo in cui si vivrebbe più a lungo e in salute. Fra queste, una parte della Sardegna. In quei posti la qualità delle relazioni compare, accanto all'alimentazione e al movimento, fra i tratti comuni delle persone più longeve.»
+«C'è una seconda indicazione, meno solida ma coerente» disse Aurelio. «Un giornalista ed esploratore, Dan Buettner, ha reso famose con i suoi reportage per il *National Geographic* le cosiddette Zone Blu: aree del mondo in cui si vivrebbe più a lungo e in salute. Fra queste, una parte della Sardegna. In quei posti la qualità delle relazioni compare, accanto all'alimentazione e al movimento, fra i tratti comuni delle persone più longeve.»
 
 «Lo sapevo» disse Mela, trionfante.
 
 «Però» disse Ivo.
 
-«Però» disse Elio, «anche qui serve cautela. Alcuni demografi, come Saul Justin Newman, contestano l'affidabilità dei registri usati per certificare le età. Su certi centenari il dibattito è aperto. Non è una prova. È un indizio che va nella stessa direzione di Harvard. E quando uno studio solido e un indizio indipendente puntano dalla stessa parte, conviene prestare attenzione.»
+«Però» disse Aurelio, «anche qui serve cautela. Alcuni demografi, come Saul Justin Newman, contestano l'affidabilità dei registri usati per certificare le età. Su certi centenari il dibattito è aperto. Non è una prova. È un indizio che va nella stessa direzione di Harvard. E quando uno studio solido e un indizio indipendente puntano dalla stessa parte, conviene prestare attenzione.»
 
 Mela fece una smorfia, poi rise.
 
@@ -2876,7 +2876,7 @@ Gino era stato il suo migliore amico dalle elementari ai diciotto anni. I laghet
 
 *Le persone più soddisfatte delle proprie relazioni a cinquant'anni sono risultate le più sane a ottanta.*
 
-Stefano aveva quarantotto anni. Si accorse di non avere un solo amico, uno solo, con cui parlare davvero, a parte Giulia e, da qualche mese, Elio.
+Stefano aveva quarantotto anni. Si accorse di non avere un solo amico, uno solo, con cui parlare davvero, a parte Giulia e, da qualche mese, Aurelio.
 
 Arrivato a casa, prima di dormire, si ripromise di chiamare Gino. Domani. Senza scriverlo.
 
@@ -2894,11 +2894,11 @@ Ci pensò la sera, scrivendo la riga, e rimase con la penna sospesa.
 
 ---
 
-«Le nove e mezza» disse Elio, quando Stefano glielo raccontò, la domenica. «Gliel'avrei detto io, ma è meglio che l'abbia scoperto da solo.»
+«Le nove e mezza» disse Aurelio, quando Stefano glielo raccontò, la domenica. «Gliel'avrei detto io, ma è meglio che l'abbia scoperto da solo.»
 
 «Che cosa?»
 
-«Sapere tutto quello che le ho raccontato giovedì non le serve a niente, se non ha un modo per agire. Immagini di aver appena letto che le relazioni contano più del conto in banca. Chiude il libro. La mattina dopo suona la sveglia, e l'aspettano quarantatré mail non lette, una scadenza, il medico da chiamare. Dove finisce, in quella giornata, la consapevolezza della sera prima?» Elio aprì la mano, come per lasciar volare qualcosa. «Da nessuna parte. Evapora entro le nove e mezza.»
+«Sapere tutto quello che le ho raccontato giovedì non le serve a niente, se non ha un modo per agire. Immagini di aver appena letto che le relazioni contano più del conto in banca. Chiude il libro. La mattina dopo suona la sveglia, e l'aspettano quarantatré mail non lette, una scadenza, il medico da chiamare. Dove finisce, in quella giornata, la consapevolezza della sera prima?» Aurelio aprì la mano, come per lasciar volare qualcosa. «Da nessuna parte. Evapora entro le nove e mezza.»
 
 «E allora?»
 
@@ -2926,7 +2926,7 @@ Rosa di nuovo, che si era iscritta a un master in vulnologia, la cura delle feri
 
 Mela.
 
-«In nessuno di questi casi il metodo le dà qualcosa che prima non aveva» disse Elio. «Le restituisce la capacità di agire su quello che già sapeva. E funziona per una ragione precisa: perché è facile. Se le avessi chiesto quaranta minuti di meditazione al giorno, alla terza settimana avrebbe smesso. Non per colpa sua: perché quarantatré mail non lette vincono quasi sempre contro un buon proposito. Una riga, invece, la scrive anche nel giorno peggiore.»
+«In nessuno di questi casi il metodo le dà qualcosa che prima non aveva» disse Aurelio. «Le restituisce la capacità di agire su quello che già sapeva. E funziona per una ragione precisa: perché è facile. Se le avessi chiesto quaranta minuti di meditazione al giorno, alla terza settimana avrebbe smesso. Non per colpa sua: perché quarantatré mail non lette vincono quasi sempre contro un buon proposito. Una riga, invece, la scrive anche nel giorno peggiore.»
 
 Si alzò, prese due libri dalla libreria costruita da Vincenzo, e glieli diede.
 
@@ -2934,7 +2934,7 @@ Si alzò, prese due libri dalla libreria costruita da Vincenzo, e glieli diede.
 
 I libri erano *Il potere di adesso* di Eckhart Tolle e *Principi* di Ray Dalio.
 
-«Questo metodo non nasce nel vuoto» disse Elio. «Fa parte di una conversazione che va avanti da decenni, fra persone che hanno scelto di condividere quello che hanno imparato. Tolle per la sua capacità di riportarti nel presente quando la testa corre altrove. Dalio per il suo modo quasi ingegneristico di trasformare gli errori in principi riutilizzabili, invece che in motivi di vergogna. Non glieli do per farla sognare. Sono persone che, ognuna a modo suo, fanno quello che sto provando a fare io.»
+«Questo metodo non nasce nel vuoto» disse Aurelio. «Fa parte di una conversazione che va avanti da decenni, fra persone che hanno scelto di condividere quello che hanno imparato. Tolle per la sua capacità di riportarti nel presente quando la testa corre altrove. Dalio per il suo modo quasi ingegneristico di trasformare gli errori in principi riutilizzabili, invece che in motivi di vergogna. Non glieli do per farla sognare. Sono persone che, ognuna a modo suo, fanno quello che sto provando a fare io.»
 
 ---
 
@@ -2980,7 +2980,7 @@ Ci fu un silenzio lungo.
 
 «Ma tu non eri così» disse Gino. Ma questa volta lo disse ridendo, in un altro modo.
 
-Quella sera bevvero due birre, poi tre. Parlarono per tre ore. Gino gli raccontò dell'officina che andava male e del figlio che voleva andare in Germania. Stefano gli raccontò della banca, di Elio, del panificio. A un certo punto Gino gli chiese che cosa fosse questa storia delle due righe, e Stefano glielo spiegò, e Gino disse che era una cosa da matti, e poi, a mezzanotte, mentre si salutavano, gli chiese se poteva venire anche lui, una volta, a quel giovedì nel retro del bar.
+Quella sera bevvero due birre, poi tre. Parlarono per tre ore. Gino gli raccontò dell'officina che andava male e del figlio che voleva andare in Germania. Stefano gli raccontò della banca, di Aurelio, del panificio. A un certo punto Gino gli chiese che cosa fosse questa storia delle due righe, e Stefano glielo spiegò, e Gino disse che era una cosa da matti, e poi, a mezzanotte, mentre si salutavano, gli chiese se poteva venire anche lui, una volta, a quel giovedì nel retro del bar.
 
 Accanto alla riga del mattino, Stefano mise un segno pieno. Poi scrisse il QuDiVi, e sotto, nella colonna in cui aveva cominciato ad annotare il gesto verso una persona che trascurava, scrisse: *Gino*.
 
@@ -3024,23 +3024,23 @@ Stefano chiuse la telefonata e rimase seduto sul letto per mezz'ora.
 
 ---
 
-«Mi faccia indovinare» disse Elio. «Si è sentito benissimo per dieci minuti.»
+«Mi faccia indovinare» disse Aurelio. «Si è sentito benissimo per dieci minuti.»
 
-Erano nella cucina di Elio, con la stufa a legna accesa. Fuori pioveva di traverso.
+Erano nella cucina di Aurelio, con la stufa a legna accesa. Fuori pioveva di traverso.
 
 «Per dieci secondi. Poi per tre giorni mi sono sentito un idiota.»
 
-«Non è un idiota. È un uomo con una testa antica in un mondo nuovo.» Elio mise sul tavolo due tazze di tè. «C'è un biologo, Edward O. Wilson, che nel 2009, durante un dibattito pubblico ad Harvard, ha descritto la condizione umana in una frase. Abbiamo emozioni paleolitiche, istituzioni medievali e tecnologia divina.»
+«Non è un idiota. È un uomo con una testa antica in un mondo nuovo.» Aurelio mise sul tavolo due tazze di tè. «C'è un biologo, Edward O. Wilson, che nel 2009, durante un dibattito pubblico ad Harvard, ha descritto la condizione umana in una frase. Abbiamo emozioni paleolitiche, istituzioni medievali e tecnologia divina.»
 
 Stefano ci pensò.
 
-«Tre pezzi di tre epoche diverse, montati dentro la stessa persona» disse Elio. «Quella persona è lei. Le emozioni sono le più antiche: paura, rabbia, desiderio, vergogna. Sono quelle di un essere umano che dormiva vicino al fuoco e ascoltava i rumori nel buio. Le istituzioni in cui vive, il lavoro, la banca, gli uffici, le gerarchie, sono medievali: lente, fatte di ruoli e di gradi, costruite per un mondo che si muoveva al passo di un cavallo. E la tecnologia che ha in tasca è di adesso, anzi più avanti di adesso. In un rettangolo di vetro può raggiungere chiunque, ovunque, in un secondo. Il problema non è nessuno dei tre pezzi. È che devono lavorare insieme.»
+«Tre pezzi di tre epoche diverse, montati dentro la stessa persona» disse Aurelio. «Quella persona è lei. Le emozioni sono le più antiche: paura, rabbia, desiderio, vergogna. Sono quelle di un essere umano che dormiva vicino al fuoco e ascoltava i rumori nel buio. Le istituzioni in cui vive, il lavoro, la banca, gli uffici, le gerarchie, sono medievali: lente, fatte di ruoli e di gradi, costruite per un mondo che si muoveva al passo di un cavallo. E la tecnologia che ha in tasca è di adesso, anzi più avanti di adesso. In un rettangolo di vetro può raggiungere chiunque, ovunque, in un secondo. Il problema non è nessuno dei tre pezzi. È che devono lavorare insieme.»
 
 «E stamattina hanno lavorato insieme benissimo» disse Stefano, amaro. «Rabbia paleolitica, gerarchia medievale, invio in un secondo.»
 
 ---
 
-«Il suo cervello non è stato progettato per la vita che sta facendo» disse Elio. «È stato messo a punto, lungo un tempo lunghissimo, per un mondo in cui i problemi erano immediati e fisici. Un rumore fra i cespugli. Un membro del gruppo che si rivolta contro di te. Il cibo da mettere da parte prima dell'inverno. In quel mondo era avvantaggiato chi reagiva in fretta. Chi si fermava a riflettere davanti a un'ombra che si muoveva nell'erba alta poteva pagare quel lusso molto caro.»
+«Il suo cervello non è stato progettato per la vita che sta facendo» disse Aurelio. «È stato messo a punto, lungo un tempo lunghissimo, per un mondo in cui i problemi erano immediati e fisici. Un rumore fra i cespugli. Un membro del gruppo che si rivolta contro di te. Il cibo da mettere da parte prima dell'inverno. In quel mondo era avvantaggiato chi reagiva in fretta. Chi si fermava a riflettere davanti a un'ombra che si muoveva nell'erba alta poteva pagare quel lusso molto caro.»
 
 Fece una pausa.
 
@@ -3048,11 +3048,11 @@ Fece una pausa.
 
 Stefano rise, suo malgrado.
 
-«Poi, in un tempo brevissimo, è cambiato tutto intorno a noi. Ma non dentro. Il rumore nell'erba è diventato una mail del capo. L'ombra che si muove, un messaggio letto e lasciato senza risposta. Il predatore, una scadenza. O un post su LinkedIn.» Elio bevve un sorso di tè. «Il meccanismo è rimasto identico, e funziona ancora benissimo. Non si è guastato, non si è indebolito. Si accende con la stessa prontezza di decine di migliaia di anni fa. Solo che adesso si accende per le mail.»
+«Poi, in un tempo brevissimo, è cambiato tutto intorno a noi. Ma non dentro. Il rumore nell'erba è diventato una mail del capo. L'ombra che si muove, un messaggio letto e lasciato senza risposta. Il predatore, una scadenza. O un post su LinkedIn.» Aurelio bevve un sorso di tè. «Il meccanismo è rimasto identico, e funziona ancora benissimo. Non si è guastato, non si è indebolito. Si accende con la stessa prontezza di decine di migliaia di anni fa. Solo che adesso si accende per le mail.»
 
 «Stamattina il cuore mi batteva come se avessi visto un lupo.»
 
-«Il corpo si prepara come se dovesse scappare o combattere. Il cuore accelera, i muscoli si contraggono, l'attenzione si concentra su un punto solo e smette di vedere il resto. È la stessa prontezza che in un vicolo buio le avrebbe salvato la vita. E che davanti a una tastiera le fa scrivere la frase che non doveva scrivere.» Elio allargò le mani. «Perché poi non scappa e non combatte. Risponde male a un messaggio. E il danno resta lì per anni.»
+«Il corpo si prepara come se dovesse scappare o combattere. Il cuore accelera, i muscoli si contraggono, l'attenzione si concentra su un punto solo e smette di vedere il resto. È la stessa prontezza che in un vicolo buio le avrebbe salvato la vita. E che davanti a una tastiera le fa scrivere la frase che non doveva scrivere.» Aurelio allargò le mani. «Perché poi non scappa e non combatte. Risponde male a un messaggio. E il danno resta lì per anni.»
 
 Ci pensò un momento, poi sorrise.
 
@@ -3066,13 +3066,13 @@ Ci pensò un momento, poi sorrise.
 
 «E come faccio a sapere, in quel mezzo secondo, se quello che sto per fare è una buona idea?»
 
-Elio sorrise come davanti alla domanda giusta, e prese un tovagliolo di carta dal portatovaglioli.
+Aurelio sorrise come davanti alla domanda giusta, e prese un tovagliolo di carta dal portatovaglioli.
 
 «Un metro esiste. Ed è più semplice di quanto immagini. Me l'ha insegnato quello storico dell'economia di cui le ho parlato in barca a ottobre. Carlo Maria Cipolla.»
 
 ---
 
-«Cipolla scrisse quasi per divertimento, in inglese, un saggio breve e tagliente sulla stupidità umana» disse Elio, mentre disegnava sul tovagliolo. «Lo fece stampare in poche copie da regalare agli amici. Poi il passaparola fece il resto. In Italia uscì nel 1988, nel volumetto *Allegro ma non troppo*, e oggi è conosciuto in tutto il mondo. Sembra uno scherzo, ed è una delle cose più serie che si possano leggere.»
+«Cipolla scrisse quasi per divertimento, in inglese, un saggio breve e tagliente sulla stupidità umana» disse Aurelio, mentre disegnava sul tovagliolo. «Lo fece stampare in poche copie da regalare agli amici. Poi il passaparola fece il resto. In Italia uscì nel 1988, nel volumetto *Allegro ma non troppo*, e oggi è conosciuto in tutto il mondo. Sembra uno scherzo, ed è una delle cose più serie che si possano leggere.»
 
 «Me lo ricordo. Lo regalavano ai corsi aziendali.»
 
@@ -3088,11 +3088,11 @@ Indicò la casella in alto a destra.
 
 «E Cipolla dice che il bandito è più pericoloso.»
 
-«Dice il contrario. Lo stupido è più pericoloso del bandito. Dal bandito ci si può difendere, perché segue un interesse: sai che cosa vuole, e quindi sai da dove arriverà. Dall'azione che non conviene a nessuno, nemmeno a chi la compie, non c'è difesa, perché non ha logica e non è prevedibile.» Elio posò la penna. «E spesso chi la compie non si accorge di averla compiuta.»
+«Dice il contrario. Lo stupido è più pericoloso del bandito. Dal bandito ci si può difendere, perché segue un interesse: sai che cosa vuole, e quindi sai da dove arriverà. Dall'azione che non conviene a nessuno, nemmeno a chi la compie, non c'è difesa, perché non ha logica e non è prevedibile.» Aurelio posò la penna. «E spesso chi la compie non si accorge di averla compiuta.»
 
 ---
 
-Stefano guardò il tovagliolo. Non c'era bisogno che Elio glielo chiedesse.
+Stefano guardò il tovagliolo. Non c'era bisogno che Aurelio glielo chiedesse.
 
 «La mail a Ferri» disse.
 
@@ -3102,11 +3102,11 @@ Stefano ci pensò onestamente. Che cosa ci aveva guadagnato? Dieci minuti di sol
 
 Mise il dito sulla casella in basso a sinistra.
 
-«Ecco» disse Elio. «Le chiedo di fare con questo quadrato una cosa che quasi nessuno fa. Non lo usi per giudicare gli altri. Lo usi per collocare le sue azioni. Usate così, quelle quattro parole non sono insulti. Sono descrizioni.»
+«Ecco» disse Aurelio. «Le chiedo di fare con questo quadrato una cosa che quasi nessuno fa. Non lo usi per giudicare gli altri. Lo usi per collocare le sue azioni. Usate così, quelle quattro parole non sono insulti. Sono descrizioni.»
 
 Gli chiese di ripensare alle cose peggiori che aveva fatto negli ultimi anni. Non agli errori tecnici: a quelle di cui si era pentito. Stefano le elencò a voce bassa, quasi per se stesso. La frase sulla chitarra a Matteo. Il silenzio di tre mesi con sua sorella, anni prima, per una questione di eredità da quattromila euro, che aveva fatto soffrire lei e anche lui. La volta in cui aveva vinto una discussione per principio con un cliente, un commerciante di Battipaglia, che poi aveva chiuso il conto e portato via anche i fratelli.
 
-«In nessuna di queste c'è un guadagno» disse Elio. «Danneggiano gli altri e danneggiano lei, nello stesso momento. Secondo Cipolla stanno tutte nella stessa casella. E qui arriva la scoperta scomoda.» Elio lo guardò. «Le azioni che finiscono lì non le fanno gli sciocchi. Le fanno le persone intelligenti nel momento sbagliato. Non manca il quoziente intellettivo. Manca il gradino fra l'impulso e l'azione. E il momento, quasi sempre, è quello in cui abbiamo reagito d'impulso.»
+«In nessuna di queste c'è un guadagno» disse Aurelio. «Danneggiano gli altri e danneggiano lei, nello stesso momento. Secondo Cipolla stanno tutte nella stessa casella. E qui arriva la scoperta scomoda.» Aurelio lo guardò. «Le azioni che finiscono lì non le fanno gli sciocchi. Le fanno le persone intelligenti nel momento sbagliato. Non manca il quoziente intellettivo. Manca il gradino fra l'impulso e l'azione. E il momento, quasi sempre, è quello in cui abbiamo reagito d'impulso.»
 
 Picchiettò sul tovagliolo.
 
@@ -3114,15 +3114,15 @@ Picchiettò sul tovagliolo.
 
 ---
 
-«C'è una buona notizia, però» disse Elio, mentre Stefano si infilava la giacca. «Ed è quella che rende tutto questo sopportabile.»
+«C'è una buona notizia, però» disse Aurelio, mentre Stefano si infilava la giacca. «Ed è quella che rende tutto questo sopportabile.»
 
 «Quale?»
 
-«Per Cipolla l'intelligenza non è il quoziente intellettivo. Non c'entra con i titoli di studio, né con la parlantina, né con l'abilità nei rebus. Intelligente è chi compie azioni da cui guadagnano tutti. È una definizione che spiazza, perché sposta l'intelligenza da una qualità che si ha o non si ha a una cosa che si fa o non si fa, situazione per situazione.» Elio sorrise. «E se è una cosa che si fa, si può imparare a farla più spesso.»
+«Per Cipolla l'intelligenza non è il quoziente intellettivo. Non c'entra con i titoli di studio, né con la parlantina, né con l'abilità nei rebus. Intelligente è chi compie azioni da cui guadagnano tutti. È una definizione che spiazza, perché sposta l'intelligenza da una qualità che si ha o non si ha a una cosa che si fa o non si fa, situazione per situazione.» Aurelio sorrise. «E se è una cosa che si fa, si può imparare a farla più spesso.»
 
 «E come si impara?»
 
-«Le caselle le dicono dove sta andando a finire. Non ancora come fermarsi in tempo. Per quello serve uno spazio. Ed è molto più corto di quanto immagini.» Elio aprì la porta sulla pioggia. «Gliene parlo la prossima volta. Intanto, per una settimana, faccia una cosa.»
+«Le caselle le dicono dove sta andando a finire. Non ancora come fermarsi in tempo. Per quello serve uno spazio. Ed è molto più corto di quanto immagini.» Aurelio aprì la porta sulla pioggia. «Gliene parlo la prossima volta. Intanto, per una settimana, faccia una cosa.»
 
 ---
 
@@ -3146,9 +3146,9 @@ Lo sottolineò due volte. Era il suo rumore nell'erba. Adesso sapeva come suonav
 
 «Mezzo secondo di che cosa?» chiese Stefano.
 
-Era la domanda che si portava dietro da una settimana, dal tovagliolo di Cipolla. Elio gli aveva detto che serviva uno spazio, e che era più corto di quanto immaginasse.
+Era la domanda che si portava dietro da una settimana, dal tovagliolo di Cipolla. Aurelio gli aveva detto che serviva uno spazio, e che era più corto di quanto immaginasse.
 
-«Di spazio» disse Elio. «Quasi tutti i danni che ci facciamo da soli nascono in un istante. La risposta secca data un secondo prima di pensarci. L'acquisto d'impulso. Il messaggio mandato da arrabbiati. Le dimissioni date per orgoglio. Il silenzio tenuto per ripicca che poi è durato tre anni.»
+«Di spazio» disse Aurelio. «Quasi tutti i danni che ci facciamo da soli nascono in un istante. La risposta secca data un secondo prima di pensarci. L'acquisto d'impulso. Il messaggio mandato da arrabbiati. Le dimissioni date per orgoglio. Il silenzio tenuto per ripicca che poi è durato tre anni.»
 
 Stefano pensò a sua sorella. Tre anni, appunto.
 
@@ -3156,7 +3156,7 @@ Stefano pensò a sua sorella. Tre anni, appunto.
 
 Erano sul molo, a metà dicembre, con il vento di tramontana che tagliava la faccia. Il *Lucilio* era tirato in secca per l'inverno, coperto da un telo azzurro.
 
-«Le quattro parole» disse Elio, «usate in quel momento, diventano le quattro domande che l'impulso non si fa mai.»
+«Le quattro parole» disse Aurelio, «usate in quel momento, diventano le quattro domande che l'impulso non si fa mai.»
 
 Le disse lentamente, e Stefano le copiò nel taccuino, appoggiato alla bitta, con le dita intirizzite.
 
@@ -3168,7 +3168,7 @@ Le disse lentamente, e Stefano le copiò nel taccuino, appoggiato alla bitta, co
 
 *Opportunità: che cosa si è aperto, per me e per gli altri?* «La allena a cercare un vantaggio comune proprio dove sembra esserci soltanto un danno.»
 
-«Messe insieme, queste domande producono un effetto preciso» disse Elio. «Chi se le fa prima di agire ha molte più probabilità di finire nella casella dell'intelligenza, sul tovagliolo di Cipolla. Non perché sia diventato più sveglio. Perché ha guardato il proprio interesse e quello dell'altro nello stesso istante, e le azioni che danneggiano tutti e due vengono scartate quasi da sole. Non deve diventare una persona migliore per usarle.»
+«Messe insieme, queste domande producono un effetto preciso» disse Aurelio. «Chi se le fa prima di agire ha molte più probabilità di finire nella casella dell'intelligenza, sul tovagliolo di Cipolla. Non perché sia diventato più sveglio. Perché ha guardato il proprio interesse e quello dell'altro nello stesso istante, e le azioni che danneggiano tutti e due vengono scartate quasi da sole. Non deve diventare una persona migliore per usarle.»
 
 Si strinse nel giaccone.
 
@@ -3176,15 +3176,15 @@ Si strinse nel giaccone.
 
 ---
 
-«Le racconto una storia» disse Elio, mentre camminavano verso il bar per scaldarsi. «Una storia vera, documentata. In cui fermarsi a riflettere ha contato più che in quasi qualunque altro momento della storia recente.»
+«Le racconto una storia» disse Aurelio, mentre camminavano verso il bar per scaldarsi. «Una storia vera, documentata. In cui fermarsi a riflettere ha contato più che in quasi qualunque altro momento della storia recente.»
 
-Si sedettero vicino alla stufa del Bar Approdo. Elio ordinò due caffè corretti, e per sé una camomilla, che poi corresse lo stesso.
+Si sedettero vicino alla stufa del Bar Approdo. Aurelio ordinò due caffè corretti, e per sé una camomilla, che poi corresse lo stesso.
 
 «Poco dopo la mezzanotte del 26 settembre 1983, in un bunker vicino a Mosca, il tenente colonnello sovietico Stanislav Petrov era l'ufficiale di turno al sistema di allerta satellitare. Erano gli anni più tesi della Guerra Fredda. Il sistema segnalò il lancio di un missile intercontinentale dagli Stati Uniti. Pochi minuti dopo ne segnalò altri quattro.»
 
 Stefano aveva sentito vagamente quella storia, una volta, in un documentario visto a metà.
 
-«Il protocollo era chiaro. Trasmettere l'allarme ai superiori come attacco in corso, immediatamente. Petrov non lo fece. Riferì ai superiori che, con ogni probabilità, si trattava di un malfunzionamento.» Elio girò il cucchiaino nella tazza. «Ragionò che un attacco vero difficilmente sarebbe cominciato con cinque soli missili. E sapeva che quel sistema satellitare era nuovo e poco collaudato. Classificò l'allarme come un guasto. E aspettò.»
+«Il protocollo era chiaro. Trasmettere l'allarme ai superiori come attacco in corso, immediatamente. Petrov non lo fece. Riferì ai superiori che, con ogni probabilità, si trattava di un malfunzionamento.» Aurelio girò il cucchiaino nella tazza. «Ragionò che un attacco vero difficilmente sarebbe cominciato con cinque soli missili. E sapeva che quel sistema satellitare era nuovo e poco collaudato. Classificò l'allarme come un guasto. E aspettò.»
 
 «E aveva ragione.»
 
@@ -3192,21 +3192,21 @@ Stefano aveva sentito vagamente quella storia, una volta, in un documentario vis
 
 Stefano rimase in silenzio. Pensò a un uomo in un bunker, di notte, con un pannello che lampeggiava.
 
-«Conviene guardare bene che cosa fece» disse Elio. «Perché non è quello che si racconta di solito. Non compì un gesto eroico. Non ebbe un'intuizione geniale. Mise qualche minuto fra l'allarme e la reazione. E in quei minuti fece entrare due domande. *È plausibile quello che sto vedendo? Che cosa so dello strumento che me lo sta dicendo?*»
+«Conviene guardare bene che cosa fece» disse Aurelio. «Perché non è quello che si racconta di solito. Non compì un gesto eroico. Non ebbe un'intuizione geniale. Mise qualche minuto fra l'allarme e la reazione. E in quei minuti fece entrare due domande. *È plausibile quello che sto vedendo? Che cosa so dello strumento che me lo sta dicendo?*»
 
 «Io non ho un pannello che lampeggia *lancio*.»
 
-«No. Ha un messaggio che la fa ribollire. Una frase detta in riunione. Una risposta di suo figlio. Un post su LinkedIn.» Elio lo guardò. «La differenza di scala è enorme. Ma il meccanismo è identico. Qualcosa le segnala che il pericolo è reale e che va affrontato adesso. E, come per Petrov, quasi sempre conviene chiedersi prima se quello che vede è davvero quello che sembra.»
+«No. Ha un messaggio che la fa ribollire. Una frase detta in riunione. Una risposta di suo figlio. Un post su LinkedIn.» Aurelio lo guardò. «La differenza di scala è enorme. Ma il meccanismo è identico. Qualcosa le segnala che il pericolo è reale e che va affrontato adesso. E, come per Petrov, quasi sempre conviene chiedersi prima se quello che vede è davvero quello che sembra.»
 
 ---
 
 La comunità pensante di dicembre, spostata al secondo giovedì per il ponte dell'Immacolata, fu diversa dalle altre. Rosa aveva chiesto di tenere lei la prima mezz'ora. Arrivò con una borsa enorme da cui tirò fuori un manichino da rianimazione, un busto di plastica senza braccia, con la faccia impassibile.
 
-«Elio mi ha chiesto di fare questa cosa» disse, un po' imbarazzata. «Io la insegno in ospedale ai tirocinanti. Dice che serve per spiegare una cosa del metodo. Io non ho capito quale, ma la faccio.»
+«Aurelio mi ha chiesto di fare questa cosa» disse, un po' imbarazzata. «Io la insegno in ospedale ai tirocinanti. Dice che serve per spiegare una cosa del metodo. Io non ho capito quale, ma la faccio.»
 
 Insegnò a tutti la sequenza del primo soccorso. Controllare se la persona risponde. Chiamare i soccorsi, il 112. Verificare il respiro. Cominciare le compressioni, al centro del petto, forte, veloce. Sempre gli stessi passi, sempre nello stesso ordine. Mela le fece sbagliando il ritmo, Ivo con una precisione da metronomo, Gino, che era venuto per la prima volta e non sapeva dove mettere le mani, ridendo di nervoso. Stefano le fece con il cuore che gli batteva, anche se era un manichino.
 
-Alla fine Elio si alzò dal suo angolo.
+Alla fine Aurelio si alzò dal suo angolo.
 
 «Metta due persone davanti alla stessa emergenza» disse. «Una persona per terra, al supermercato. La prima non ha mai fatto un corso. Si blocca, si guarda intorno, perde minuti preziosi. La seconda ha il protocollo in testa. Ha la stessa paura, il cuore le batte allo stesso modo. Ma sa che cosa fare adesso.»
 
@@ -3214,7 +3214,7 @@ Rosa annuì.
 
 «È così. Ai tirocinanti lo dico sempre. La paura non passa. Ma se sai i passi, la paura ti fa le mani tremare, non la testa.»
 
-«È questa la differenza che il metodo vuole darvi» disse Elio. «Lo stress non nasce soltanto dai problemi. Nasce anche dal non sapere da dove cominciare. Senza una procedura, la mente fa due lavori insieme: affrontare il problema e inventare come affrontarlo. Ed è il secondo a sfinirci. Chi ha un protocollo ne fa uno solo.» Indicò il manichino. «APPO è il vostro primo soccorso per la vita di tutti i giorni. Non serve essere calmi per usarlo. Serve conoscerlo abbastanza da non doverlo inventare mentre le cose stanno già succedendo.»
+«È questa la differenza che il metodo vuole darvi» disse Aurelio. «Lo stress non nasce soltanto dai problemi. Nasce anche dal non sapere da dove cominciare. Senza una procedura, la mente fa due lavori insieme: affrontare il problema e inventare come affrontarlo. Ed è il secondo a sfinirci. Chi ha un protocollo ne fa uno solo.» Indicò il manichino. «APPO è il vostro primo soccorso per la vita di tutti i giorni. Non serve essere calmi per usarlo. Serve conoscerlo abbastanza da non doverlo inventare mentre le cose stanno già succedendo.»
 
 ---
 
@@ -3264,7 +3264,7 @@ Nella riga della sera, quel giorno, Stefano scrisse una *I*.
 
 ---
 
-«Le dico un'ultima cosa, sulle parole» disse Elio, la volta dopo, quando Stefano gli raccontò di Raffaele. «Perché le parole contano.»
+«Le dico un'ultima cosa, sulle parole» disse Aurelio, la volta dopo, quando Stefano gli raccontò di Raffaele. «Perché le parole contano.»
 
 Erano sul molo, e il sole di dicembre, basso, faceva brillare il telo azzurro del *Lucilio*.
 
@@ -3274,17 +3274,17 @@ Erano sul molo, e il sole di dicembre, basso, faceva brillare il telo azzurro de
 
 «Le chiedo di dare pieno valore alla persona che è già, secondo le sue inclinazioni. Con una sola condizione, che per me non è negoziabile. Che quelle inclinazioni vadano a vantaggio anche di chi le sta intorno. Una realizzazione personale che lascia danni dietro di sé non è realizzazione. È soltanto un altro modo di stare nella casella sbagliata.»
 
-Stefano guardò il golfo. Pensò a Raffaele, a Mimmo che sarebbe diventato un cliente, a Carla che rideva. Pensò ad Aristotele, che Elio gli aveva citato al bar: chiunque può adirarsi, è facile. Ma adirarsi nel modo giusto, con la persona giusta, al momento giusto, non è da tutti.
+Stefano guardò il golfo. Pensò a Raffaele, a Mimmo che sarebbe diventato un cliente, a Carla che rideva. Pensò ad Aristotele, che Aurelio gli aveva citato al bar: chiunque può adirarsi, è facile. Ma adirarsi nel modo giusto, con la persona giusta, al momento giusto, non è da tutti.
 
 «Una domanda» disse. «Se bastano quattro domande, perché quasi nessuno se le fa?»
 
-Elio sorrise.
+Aurelio sorrise.
 
 «La risposta non ha niente a che vedere con la pigrizia» disse. «E gliela do la prossima volta. Le anticipo solo una cosa: c'entra l'ora del giorno in cui le cose vanno storte.»
 
 ---
 
-Quella settimana, a freddo, quando non gli costava niente, Stefano fece l'ultimo esercizio che Elio gli aveva lasciato. Pensò alla situazione che lo aspettava e che temeva di più: il pranzo di Natale a Salerno, con tutta la famiglia di Giulia, la cognata, il cugino Sandro con le sue previsioni catastrofiche, e qualcuno che prima o poi gli avrebbe chiesto, davanti a tutti, *ma allora, questo lavoro?*
+Quella settimana, a freddo, quando non gli costava niente, Stefano fece l'ultimo esercizio che Aurelio gli aveva lasciato. Pensò alla situazione che lo aspettava e che temeva di più: il pranzo di Natale a Salerno, con tutta la famiglia di Giulia, la cognata, il cugino Sandro con le sue previsioni catastrofiche, e qualcuno che prima o poi gli avrebbe chiesto, davanti a tutti, *ma allora, questo lavoro?*
 
 Scrisse sul taccuino le sue risposte alle quattro domande per quella situazione. Le rilesse la mattina di Natale, in bagno, prima di sedersi a tavola.
 
@@ -3310,21 +3310,21 @@ Ogni sera, alle nove, Stefano fumava la sigaretta che non voleva fumare.
 
 Lo aveva scoperto rileggendo le righe di dicembre. Ogni mattina, almeno tre volte alla settimana, scriveva qualcosa che riguardava il fumo: *oggi max 8*, *oggi niente dopo cena*, *oggi provo a non fumare in macchina*. Il mattino ci credeva davvero. Alle dieci reggeva, all'ora di pranzo pure. Alle cinque cominciava a cedere. E alle nove di sera, dopo cena, sul balcone di Torraca o su quello di Salerno, accendeva la sigaretta che si era promesso di non accendere, e la fumava con una specie di rabbia rassegnata.
 
-«Medea» disse Elio, quando Stefano glielo raccontò. «Nelle *Metamorfosi* di Ovidio, a dire quella frase è lei. *Vedo il meglio e l'approvo, ma seguo il peggio.* Una donna che sa perfettamente che cosa dovrebbe fare, e fa l'esatto contrario. Sono passati duemila anni, e il problema non è cambiato.»
+«Medea» disse Aurelio, quando Stefano glielo raccontò. «Nelle *Metamorfosi* di Ovidio, a dire quella frase è lei. *Vedo il meglio e l'approvo, ma seguo il peggio.* Una donna che sa perfettamente che cosa dovrebbe fare, e fa l'esatto contrario. Sono passati duemila anni, e il problema non è cambiato.»
 
-Era il tre gennaio. Erano nella cucina di Elio, con la stufa accesa, e Elio aveva una tosse che non passava da Natale, e che liquidava con un gesto quando Stefano gliene chiedeva.
+Era il tre gennaio. Erano nella cucina di Aurelio, con la stufa accesa, e Aurelio aveva una tosse che non passava da Natale, e che liquidava con un gesto quando Stefano gliene chiedeva.
 
-«I buoni propositi muoiono quasi sempre di sera» disse Elio. «E c'è una ragione precisa. Che è anche il motivo per cui questo metodo pesa così poco.»
+«I buoni propositi muoiono quasi sempre di sera» disse Aurelio. «E c'è una ragione precisa. Che è anche il motivo per cui questo metodo pesa così poco.»
 
 ---
 
-«Pensi alla volontà come alla batteria del telefono.» Elio prese il suo, un vecchio modello con lo schermo scheggiato. «La mattina è carica. Poi arrivano le decisioni. Che cosa rispondere a quel messaggio. Come gestire quel cliente. Se ribattere o lasciar perdere. Che cosa comprare, che cosa rimandare. Ogni decisione sembra consumare una tacca. E alle nove di sera è all'otto per cento, proprio nel momento in cui si era ripromesso di fare la cosa importante.»
+«Pensi alla volontà come alla batteria del telefono.» Aurelio prese il suo, un vecchio modello con lo schermo scheggiato. «La mattina è carica. Poi arrivano le decisioni. Che cosa rispondere a quel messaggio. Come gestire quel cliente. Se ribattere o lasciar perdere. Che cosa comprare, che cosa rimandare. Ogni decisione sembra consumare una tacca. E alle nove di sera è all'otto per cento, proprio nel momento in cui si era ripromesso di fare la cosa importante.»
 
 «Quindi non sono debole.»
 
-«Alle nove di sera la batteria è scarica per tutti.» Elio posò il telefono. «Però devo aggiungere una precisazione, per onestà, perché il patto è dirle la verità anche quando è meno comoda di un titolo di giornale. La batteria è un'immagine utile. Non è una descrizione della fisiologia.»
+«Alle nove di sera la batteria è scarica per tutti.» Aurelio posò il telefono. «Però devo aggiungere una precisazione, per onestà, perché il patto è dirle la verità anche quando è meno comoda di un titolo di giornale. La batteria è un'immagine utile. Non è una descrizione della fisiologia.»
 
-Stefano ormai sapeva che, quando Elio diceva *per onestà*, stava per smontare qualcosa.
+Stefano ormai sapeva che, quando Aurelio diceva *per onestà*, stava per smontare qualcosa.
 
 «L'idea che l'autocontrollo si consumi come un serbatoio si chiama esaurimento dell'io. L'ha sostenuta per anni uno psicologo molto noto, Roy Baumeister. Poi è stata sottoposta a grandi esperimenti di replica. Nel 2016 un progetto coordinato da Martin Hagger in ventitré laboratori. Nel 2021 un secondo, guidato da Kathleen Vohs, in trentasei. Hanno trovato un effetto vicino allo zero.»
 
@@ -3334,7 +3334,7 @@ Stefano ormai sapeva che, quando Elio diceva *per onestà*, stava per smontare q
 
 ---
 
-«C'è poi lo studio che ha reso famosa questa idea» continuò Elio. «E merita di essere raccontato insieme al suo seguito, perché il seguito è la parte più istruttiva.»
+«C'è poi lo studio che ha reso famosa questa idea» continuò Aurelio. «E merita di essere raccontato insieme al suo seguito, perché il seguito è la parte più istruttiva.»
 
 Prese la cartellina.
 
@@ -3342,15 +3342,15 @@ Prese la cartellina.
 
 «La giustizia dipende da che cosa ha mangiato il giudice.»
 
-«È esattamente il titolo con cui finì sui giornali di mezzo mondo.» Elio girò pagina. «Quasi subito, però, due studiosi, Keren Weinshall-Margel e John Shapard, fecero notare sulla stessa rivista che l'ordine dei casi non era casuale. Gli avvocati tendevano a far esaminare i loro clienti all'inizio delle sessioni. Le richieste dei detenuti senza avvocato, che vengono accolte più di rado in qualunque momento, finivano di solito in coda. Una parte del calo, quindi, dipendeva dal tipo di casi esaminati prima della pausa, non dalla stanchezza dei giudici. Gli autori originali risposero che, anche tenendo conto di questo, una parte dell'effetto restava. Il dibattito non è chiuso. L'effetto forse esiste, ma è molto più piccolo di quello che raccontavano i giornali.»
+«È esattamente il titolo con cui finì sui giornali di mezzo mondo.» Aurelio girò pagina. «Quasi subito, però, due studiosi, Keren Weinshall-Margel e John Shapard, fecero notare sulla stessa rivista che l'ordine dei casi non era casuale. Gli avvocati tendevano a far esaminare i loro clienti all'inizio delle sessioni. Le richieste dei detenuti senza avvocato, che vengono accolte più di rado in qualunque momento, finivano di solito in coda. Una parte del calo, quindi, dipendeva dal tipo di casi esaminati prima della pausa, non dalla stanchezza dei giudici. Gli autori originali risposero che, anche tenendo conto di questo, una parte dell'effetto restava. Il dibattito non è chiuso. L'effetto forse esiste, ma è molto più piccolo di quello che raccontavano i giornali.»
 
 «E allora perché me lo racconta?»
 
-«Per due ragioni. La prima: perché le insegna a non fidarsi dei titoli, nemmeno dei miei. La seconda: perché un punto è rimasto fuori discussione. Decidere, ripetutamente, costa. Dopo molte decisioni la mente tende alla risposta che costa meno. In un tribunale è lasciare le cose come stanno. Nella nostra vita è rimandare a domani. O accendere la sigaretta delle nove.» Elio chiuse la cartellina. «Se può succedere a giudici esperti nel loro mestiere, è ragionevole aspettarsi che succeda anche a lei, alle nove di sera.»
+«Per due ragioni. La prima: perché le insegna a non fidarsi dei titoli, nemmeno dei miei. La seconda: perché un punto è rimasto fuori discussione. Decidere, ripetutamente, costa. Dopo molte decisioni la mente tende alla risposta che costa meno. In un tribunale è lasciare le cose come stanno. Nella nostra vita è rimandare a domani. O accendere la sigaretta delle nove.» Aurelio chiuse la cartellina. «Se può succedere a giudici esperti nel loro mestiere, è ragionevole aspettarsi che succeda anche a lei, alle nove di sera.»
 
 ---
 
-«Da questa osservazione viene tutta l'architettura del metodo» disse Elio. «Un metodo che funziona soltanto a batteria piena non è un metodo. È un lusso. Per questo non le ho mai chiesto un'ora di pianificazione settimanale, né schede in dieci punti, né tre quarti d'ora al giorno. Non perché quelle cose non funzionino: funzionano, per chi quell'ora ce l'ha. Ma se la giornata reale non ce l'ha, un sistema che la pretende non la sta aiutando.»
+«Da questa osservazione viene tutta l'architettura del metodo» disse Aurelio. «Un metodo che funziona soltanto a batteria piena non è un metodo. È un lusso. Per questo non le ho mai chiesto un'ora di pianificazione settimanale, né schede in dieci punti, né tre quarti d'ora al giorno. Non perché quelle cose non funzionino: funzionano, per chi quell'ora ce l'ha. Ma se la giornata reale non ce l'ha, un sistema che la pretende non la sta aiutando.»
 
 Tossì, a lungo. Poi riprese.
 
@@ -3358,7 +3358,7 @@ Tossì, a lungo. Poi riprese.
 
 ---
 
-«C'è un punto che le devo spiegare bene, perché è il centro di tutto» disse Elio. «APPO non le chiede di avere più volontà. Le chiede di averne bisogno di meno. E ci sono quattro ragioni per cui funziona così.»
+«C'è un punto che le devo spiegare bene, perché è il centro di tutto» disse Aurelio. «APPO non le chiede di avere più volontà. Le chiede di averne bisogno di meno. E ci sono quattro ragioni per cui funziona così.»
 
 Le contò sulle dita. Stefano, che ormai le aspettava, prese il taccuino.
 
@@ -3368,17 +3368,17 @@ Stefano guardò le sue righe di dicembre. *Oggi niente dopo cena.* Era un'intenz
 
 «La seconda: il gesto è troppo piccolo per valere la pena di rifiutarlo. La volontà serve a vincere una resistenza. Ma trenta secondi non generano resistenza. Non c'è niente da vincere, e la mente non apre nemmeno la trattativa. Per questo non le chiedo dieci minuti di diario, anche se dieci minuti sarebbero meglio. Dieci minuti li può rifiutare. Trenta secondi, molto più difficilmente.»
 
-«La terza: la ripetizione fa il lavoro che la volontà non riesce a fare.» Elio sorrise. «E qui le racconto finalmente lo studio che le avevo promesso a luglio, quando aveva smesso per undici giorni. Nel 2010 Phillippa Lally e i suoi colleghi dell'University College di Londra pubblicarono sull'*European Journal of Social Psychology* uno studio su novantasei volontari, seguiti per dodici settimane. Ciascuno aveva scelto un gesto semplice da ripetere ogni giorno, sempre agganciato allo stesso momento. Per esempio dopo colazione.»
+«La terza: la ripetizione fa il lavoro che la volontà non riesce a fare.» Aurelio sorrise. «E qui le racconto finalmente lo studio che le avevo promesso a luglio, quando aveva smesso per undici giorni. Nel 2010 Phillippa Lally e i suoi colleghi dell'University College di Londra pubblicarono sull'*European Journal of Social Psychology* uno studio su novantasei volontari, seguiti per dodici settimane. Ciascuno aveva scelto un gesto semplice da ripetere ogni giorno, sempre agganciato allo stesso momento. Per esempio dopo colazione.»
 
 «E quanto ci volevano? Ventuno giorni?»
 
-«Lo studio mostrò due cose. La prima: il tempo perché un gesto diventi automatico varia enormemente da persona a persona. Qualcuno ci arrivò in diciotto giorni. Qualcun altro avrebbe avuto bisogno di più di otto mesi. I famosi sessantasei giorni che trova in giro sono una mediana, non una scadenza.» Elio alzò il secondo dito. «La seconda è quella che le chiedo di non dimenticare mai. Saltare un'occasione non comprometteva il processo. Chi saltava un giorno e riprendeva il giorno dopo arrivava comunque all'automatismo. Quando a luglio le ho detto che avrebbe saltato dei giorni e che era previsto, non era una consolazione. Era un dato.»
+«Lo studio mostrò due cose. La prima: il tempo perché un gesto diventi automatico varia enormemente da persona a persona. Qualcuno ci arrivò in diciotto giorni. Qualcun altro avrebbe avuto bisogno di più di otto mesi. I famosi sessantasei giorni che trova in giro sono una mediana, non una scadenza.» Aurelio alzò il secondo dito. «La seconda è quella che le chiedo di non dimenticare mai. Saltare un'occasione non comprometteva il processo. Chi saltava un giorno e riprendeva il giorno dopo arrivava comunque all'automatismo. Quando a luglio le ho detto che avrebbe saltato dei giorni e che era previsto, non era una consolazione. Era un dato.»
 
 «E c'è un dettaglio ancora più utile» aggiunse. «Il gesto funzionava quando era agganciato sempre allo stesso *momento*, non allo stesso *orario*. Ecco perché le ho chiesto di scrivere dopo aver messo la moka sul fuoco, e non alle sette e un quarto.»
 
 «E la quarta?»
 
-«La quarta è la più consolante. Chi riesce non resiste di più. Ha soltanto meno tentazioni.» Elio indicò il pacchetto di sigarette che sporgeva dalla tasca della giacca di Stefano, appesa alla sedia. «Nel 2015 Brian Galla e Angela Duckworth hanno mostrato, sul *Journal of Personality and Social Psychology*, che le persone con un buon autocontrollo non passano le giornate a combattere le tentazioni. Si sono costruite abitudini e ambienti in cui la cosa giusta è anche la più comoda. Hanno meno tentazioni da tenere a bada. La costanza non è il premio della volontà.»
+«La quarta è la più consolante. Chi riesce non resiste di più. Ha soltanto meno tentazioni.» Aurelio indicò il pacchetto di sigarette che sporgeva dalla tasca della giacca di Stefano, appesa alla sedia. «Nel 2015 Brian Galla e Angela Duckworth hanno mostrato, sul *Journal of Personality and Social Psychology*, che le persone con un buon autocontrollo non passano le giornate a combattere le tentazioni. Si sono costruite abitudini e ambienti in cui la cosa giusta è anche la più comoda. Hanno meno tentazioni da tenere a bada. La costanza non è il premio della volontà.»
 
 Fece una pausa.
 
@@ -3394,7 +3394,7 @@ Nella stessa settimana la madre di Giulia peggiorò, e Giulia passava le notti i
 
 Era la settimana peggiore da maggio.
 
-«Bene» disse Elio al telefono, la sera del sei, con la voce rauca. «Allora la provi adesso.»
+«Bene» disse Aurelio al telefono, la sera del sei, con la voce rauca. «Allora la provi adesso.»
 
 «Provo che cosa?»
 
@@ -3418,7 +3418,7 @@ Funzionò quattro sere su sette. Le altre tre scese lo stesso in strada. Ma quat
 
 Il quattordici gennaio Vincenzo tornò a casa, più magro, più lento, ma vivo, e con una dieta che lo faceva brontolare dalla mattina alla sera. Il caseificio aveva firmato. L'agriturismo aveva avuto il suo piano con due giorni di ritardo, e nessuno era morto.
 
-Quella domenica sera, invece del solito rito settimanale, Stefano fece una cosa che Elio gli aveva chiesto da tempo. Si sedette al tavolo della cucina con tutti i taccuini: il vecchio quaderno a quadretti del liceo, quello color tabacco con le caselle mezze vuote, e i due taccuini neri tascabili, uno già pieno e uno a metà. Rilesse tutto, dalla prima riga di giugno. *Non sapere dov'è il quadro elettrico.*
+Quella domenica sera, invece del solito rito settimanale, Stefano fece una cosa che Aurelio gli aveva chiesto da tempo. Si sedette al tavolo della cucina con tutti i taccuini: il vecchio quaderno a quadretti del liceo, quello color tabacco con le caselle mezze vuote, e i due taccuini neri tascabili, uno già pieno e uno a metà. Rilesse tutto, dalla prima riga di giugno. *Non sapere dov'è il quadro elettrico.*
 
 Ci mise un'ora e mezza. Non lesse per capire. Lesse cercando una parola che tornava, o un tema che ricompariva.
 
@@ -3468,11 +3468,11 @@ Gino alzò gli occhi, sorpreso, come se la vedesse per la prima volta.
 
 ---
 
-«Lei mi ha portato un'immagine che uso da anni» disse Elio la domenica, quando Stefano glielo raccontò. «Anzi, me l'ha portata dal vivo.»
+«Lei mi ha portato un'immagine che uso da anni» disse Aurelio la domenica, quando Stefano glielo raccontò. «Anzi, me l'ha portata dal vivo.»
 
-Era una mattina fredda e limpida, e Elio, che da Natale usciva poco, aveva accettato di fare due passi sul lungomare, piano, appoggiandosi al braccio di Stefano senza darlo a vedere.
+Era una mattina fredda e limpida, e Aurelio, che da Natale usciva poco, aveva accettato di fare due passi sul lungomare, piano, appoggiandosi al braccio di Stefano senza darlo a vedere.
 
-«L'officina del meccanico. Gli attrezzi sono in ordine, il ponte è tarato, i clienti arrivano. Il meccanico passa le giornate a riparare motori, e li ripara bene. Poi un giorno si accorge che la saracinesca cigola, che la lampada in fondo è fulminata da mesi, che il registro dei conti non è aggiornato da settimane. Ha riparato centinaia di automobili, e non ha mai riparato la sua officina.» Elio si fermò, guardò il mare. «Non per pigrizia. Perché non era la richiesta di un cliente. E nessuno gli aveva mai detto che anche quello era lavoro.»
+«L'officina del meccanico. Gli attrezzi sono in ordine, il ponte è tarato, i clienti arrivano. Il meccanico passa le giornate a riparare motori, e li ripara bene. Poi un giorno si accorge che la saracinesca cigola, che la lampada in fondo è fulminata da mesi, che il registro dei conti non è aggiornato da settimane. Ha riparato centinaia di automobili, e non ha mai riparato la sua officina.» Aurelio si fermò, guardò il mare. «Non per pigrizia. Perché non era la richiesta di un cliente. E nessuno gli aveva mai detto che anche quello era lavoro.»
 
 «Gino è il meccanico migliore del Cilento.»
 
@@ -3484,21 +3484,21 @@ Il giovedì prima, alla comunità pensante, era successa una cosa che Stefano no
 
 Sandro era passato al bar per caso, aveva visto il gruppo nel retro e si era affacciato. Quando aveva capito di che cosa si trattava, aveva fatto quel sorrisino. Quello che Stefano conosceva dall'infanzia: mezzo sopracciglio alzato, l'angolo della bocca piegato. «Ah, la terapia di gruppo. Il circolo dei ritrovati.» E se n'era andato ridendo.
 
-«Quel sorrisino» disse Elio, quando Stefano glielo raccontò finalmente, sul lungomare. «Lo conosco bene. È curioso, sa? Se una persona compra un manuale per riparare la caldaia, nessuno commenta. Se si iscrive a un corso di inglese, tutti annuiscono. Ma se legge un libro su come condurre le proprie giornate, le proprie emozioni, i propri rapporti, parte il sorrisino.» Scosse la testa. «A pensarci è assurdo. Stiamo dicendo che vale la pena di studiare per far funzionare una caldaia, ma non per far funzionare una vita.»
+«Quel sorrisino» disse Aurelio, quando Stefano glielo raccontò finalmente, sul lungomare. «Lo conosco bene. È curioso, sa? Se una persona compra un manuale per riparare la caldaia, nessuno commenta. Se si iscrive a un corso di inglese, tutti annuiscono. Ma se legge un libro su come condurre le proprie giornate, le proprie emozioni, i propri rapporti, parte il sorrisino.» Scosse la testa. «A pensarci è assurdo. Stiamo dicendo che vale la pena di studiare per far funzionare una caldaia, ma non per far funzionare una vita.»
 
 «Sandro ha avuto un problema con la caldaia a dicembre. Ha chiamato il tecnico e l'ha pagato centoventi euro.»
 
-«Ha fatto benissimo. Nella vita si può delegare quasi tutto. Se si rompe la caldaia chiami il tecnico. Se hai una causa chiami l'avvocato. Se ti fa male un dente vai dal dentista. Per quasi ogni problema c'è qualcuno più bravo di te a risolverlo, e pagarlo è la scelta più sensata.» Elio riprese a camminare. «Ma c'è un'area in cui non c'è nessuno a cui delegare. Il modo in cui vivi le tue giornate. Nessuno può alzarsi al posto tuo. Decidere al posto tuo che cosa conta davvero. Fare pace al posto tuo con tuo figlio. Su quel terreno sei l'unico professionista disponibile. E se nessuno ti ha mai insegnato il mestiere, te la cavi improvvisando.»
+«Ha fatto benissimo. Nella vita si può delegare quasi tutto. Se si rompe la caldaia chiami il tecnico. Se hai una causa chiami l'avvocato. Se ti fa male un dente vai dal dentista. Per quasi ogni problema c'è qualcuno più bravo di te a risolverlo, e pagarlo è la scelta più sensata.» Aurelio riprese a camminare. «Ma c'è un'area in cui non c'è nessuno a cui delegare. Il modo in cui vivi le tue giornate. Nessuno può alzarsi al posto tuo. Decidere al posto tuo che cosa conta davvero. Fare pace al posto tuo con tuo figlio. Su quel terreno sei l'unico professionista disponibile. E se nessuno ti ha mai insegnato il mestiere, te la cavi improvvisando.»
 
 Stefano pensò alla parola. *Mestiere.* Gli piaceva. Non una filosofia, non una terapia. Un mestiere, come quello di Gino, come quello di suo padre.
 
-«È per questo che il sorrisino è fuori posto» disse Elio. «Questo metodo serve a darle un mestiere che nessuno le ha insegnato. Nell'unico campo in cui non può chiamare un tecnico.»
+«È per questo che il sorrisino è fuori posto» disse Aurelio. «Questo metodo serve a darle un mestiere che nessuno le ha insegnato. Nell'unico campo in cui non può chiamare un tecnico.»
 
 ---
 
-Il giovedì dopo, alla comunità di febbraio, Elio portò un foglio. Lo fotocopiò al bar, uno per ciascuno. C'era Gino, che dopo l'officina aveva chiesto a Stefano di tornare, e questa volta era rimasto fino alla fine.
+Il giovedì dopo, alla comunità di febbraio, Aurelio portò un foglio. Lo fotocopiò al bar, uno per ciascuno. C'era Gino, che dopo l'officina aveva chiesto a Stefano di tornare, e questa volta era rimasto fino alla fine.
 
-«È un elenco lungo» disse Elio. «Situazioni della vita in cui questo metodo serve di più. Lo leggete in silenzio, e ciascuno trova quella in cui si riconosce. Poi ce la dite. Se volete.»
+«È un elenco lungo» disse Aurelio. «Situazioni della vita in cui questo metodo serve di più. Lo leggete in silenzio, e ciascuno trova quella in cui si riconosce. Poi ce la dite. Se volete.»
 
 Stefano lesse.
 
@@ -3536,7 +3536,7 @@ Nessuno disse niente. Rosa gli toccò il braccio.
 
 ---
 
-«Tutte queste situazioni hanno una cosa in comune» disse Elio, alla fine. «Non manca l'intelligenza. Manca un modo di procedere. Lo si vede dal fatto che la stessa persona, nella stessa circostanza, ottiene risultati molto diversi a seconda che abbia o no questi strumenti.»
+«Tutte queste situazioni hanno una cosa in comune» disse Aurelio, alla fine. «Non manca l'intelligenza. Manca un modo di procedere. Lo si vede dal fatto che la stessa persona, nella stessa circostanza, ottiene risultati molto diversi a seconda che abbia o no questi strumenti.»
 
 Fece quattro esempi, e ognuno, Stefano lo notò, sembrava scelto per qualcuno al tavolo.
 
@@ -3548,9 +3548,9 @@ Si appoggiò allo schienale.
 
 ---
 
-Mentre uscivano, Elio trattenne Stefano un momento sulla porta. Gli altri erano già sul lungomare, e Gino stava spiegando a Ivo qualcosa sui freni, e Ivo lo ascoltava con un'attenzione totale.
+Mentre uscivano, Aurelio trattenne Stefano un momento sulla porta. Gli altri erano già sul lungomare, e Gino stava spiegando a Ivo qualcosa sui freni, e Ivo lo ascoltava con un'attenzione totale.
 
-«Le dico una cosa che non è di circostanza» disse Elio. «Occuparsi di come si vive è ancora oggi una scelta di pochi. Molte persone attraversano gli anni in modo reattivo. Rispondono a quello che accade, spengono incendi, rimandano a un *quando avrò più tempo* che non arriva mai.»
+«Le dico una cosa che non è di circostanza» disse Aurelio. «Occuparsi di come si vive è ancora oggi una scelta di pochi. Molte persone attraversano gli anni in modo reattivo. Rispondono a quello che accade, spengono incendi, rimandano a un *quando avrò più tempo* che non arriva mai.»
 
 Si abbottonò il cappotto.
 
@@ -3558,7 +3558,7 @@ Si abbottonò il cappotto.
 
 «Quale motivo?»
 
-«Lei non sta cercando di produrre di più.» Elio sorrise. «Sta cercando di non arrivare in fondo con la sensazione di aver vissuto per sbaglio.»
+«Lei non sta cercando di produrre di più.» Aurelio sorrise. «Sta cercando di non arrivare in fondo con la sensazione di aver vissuto per sbaglio.»
 
 ---
 
@@ -3616,11 +3616,11 @@ In una settimana il mal di schiena era sparito. Le cinque scatole erano ancora s
 
 ---
 
-«La farmacia» disse Elio, e rideva. «Lei continua a portarmi le mie immagini, una dopo l'altra. Comincio a pensare che le legga di nascosto.»
+«La farmacia» disse Aurelio, e rideva. «Lei continua a portarmi le mie immagini, una dopo l'altra. Comincio a pensare che le legga di nascosto.»
 
-Erano a casa di Elio. Era un pomeriggio grigio, e Elio stava sul divano con una coperta sulle gambe. Stefano non gli chiese della tosse; aveva smesso di chiederglielo, perché Elio cambiava discorso.
+Erano a casa di Aurelio. Era un pomeriggio grigio, e Aurelio stava sul divano con una coperta sulle gambe. Stefano non gli chiese della tosse; aveva smesso di chiederglielo, perché Aurelio cambiava discorso.
 
-«Il mondo dei metodi per migliorare la propria vita somiglia moltissimo a quella farmacia» disse Elio. «Hai mal di schiena ed entri in una farmacia enorme. Uno scaffale di cerotti, uno di antidolorifici, uno di creme, uno di tutori. Sono tutti prodotti seri e fatti bene. Esci con cinque scatole, e tre settimane dopo la schiena ti fa male come prima. Perché nessuno ti ha detto che il problema era la sedia.»
+«Il mondo dei metodi per migliorare la propria vita somiglia moltissimo a quella farmacia» disse Aurelio. «Hai mal di schiena ed entri in una farmacia enorme. Uno scaffale di cerotti, uno di antidolorifici, uno di creme, uno di tutori. Sono tutti prodotti seri e fatti bene. Esci con cinque scatole, e tre settimane dopo la schiena ti fa male come prima. Perché nessuno ti ha detto che il problema era la sedia.»
 
 ---
 
@@ -3628,11 +3628,11 @@ Stefano gli raccontò della cena con Giulia, il sabato prima. Una trattoria sull
 
 Stefano non aveva saputo rispondere bene.
 
-«Glielo spiego» disse Elio. «Anzi, le spiego due cose, a seconda di chi ha davanti. Perché ci sono due tipi di persone a cui spiegarlo.»
+«Glielo spiego» disse Aurelio. «Anzi, le spiego due cose, a seconda di chi ha davanti. Perché ci sono due tipi di persone a cui spiegarlo.»
 
 ---
 
-«Se ha davanti uno che questi argomenti non li ha mai frequentati» disse Elio, «come il suo amico Gino, forse ha sentito le parole crescita personale e produttività senza chiedersi che cosa significassero. La crescita personale è migliorare il modo in cui vivi. Conoscerti meglio, governare meglio quello che senti, avere rapporti più sani. Non è roba per persone fragili. È come andare in palestra, ma per la mente e per il modo di stare con gli altri. Nessuno pensa che chi va in palestra sia debole. Pensa che si stia allenando.»
+«Se ha davanti uno che questi argomenti non li ha mai frequentati» disse Aurelio, «come il suo amico Gino, forse ha sentito le parole crescita personale e produttività senza chiedersi che cosa significassero. La crescita personale è migliorare il modo in cui vivi. Conoscerti meglio, governare meglio quello che senti, avere rapporti più sani. Non è roba per persone fragili. È come andare in palestra, ma per la mente e per il modo di stare con gli altri. Nessuno pensa che chi va in palestra sia debole. Pensa che si stia allenando.»
 
 «E la produttività?»
 
@@ -3644,7 +3644,7 @@ Stefano non aveva saputo rispondere bene.
 
 ---
 
-Elio si alzò, con un po' di fatica, e andò alla libreria. Tirò fuori tre libri e li mise sul tavolo, uno accanto all'altro.
+Aurelio si alzò, con un po' di fatica, e andò alla libreria. Tirò fuori tre libri e li mise sul tavolo, uno accanto all'altro.
 
 «Questo è *Getting Things Done*, di David Allen, del 2001. È un sistema molto diffuso. Insegna a svuotare la testa in liste organizzate: tutto quello che devi fare, scritto fuori di te, diviso per contesti e progetti. Funziona benissimo per il lavoro. Ma la manutenzione settimanale di quelle liste può richiedere un'ora buona. È ottimo, se quell'ora ce l'hai.»
 
@@ -3664,31 +3664,31 @@ Stefano arrossì. Nel 2015 la banca aveva mandato tutti i responsabili di filial
 
 «Il lunedì era passato tutto» disse. «Il martedì era come se non ci fossi mai andato.»
 
-«Funzionano, mentre li vivi» disse Elio, senza ironia. «Ho conosciuto persone che lì dentro hanno avuto la scossa che gli serviva, e non lo sottovaluto. La difficoltà arriva il lunedì. Quando quell'energia va tradotta in un gesto piccolo da ripetere per mesi. Ed è proprio quel pezzo che di solito nessuno insegna.»
+«Funzionano, mentre li vivi» disse Aurelio, senza ironia. «Ho conosciuto persone che lì dentro hanno avuto la scossa che gli serviva, e non lo sottovaluto. La difficoltà arriva il lunedì. Quando quell'energia va tradotta in un gesto piccolo da ripetere per mesi. Ed è proprio quel pezzo che di solito nessuno insegna.»
 
 «E il pensiero positivo?» chiese Stefano. «Mela ha un libro, sul comodino. Dice che se desideri una cosa con abbastanza forza l'universo te la porta.»
 
-Elio si fece serio.
+Aurelio si fece serio.
 
 «Lì sono netto, come le avevo promesso il primo giorno. Non esistono ricerche controllate che dimostrino che basta desiderare una cosa con abbastanza intensità perché arrivi. È piacevole da leggere. Ma è pericoloso da usare come piano.»
 
 ---
 
-«Questi sistemi hanno spesso una cosa in comune» disse Elio, tornando a sedersi. «Sono ottimi in un'unica direzione. Il lavoro, le abitudini, oppure la mentalità. Somigliano a un armadio pieno di chiavi bellissime, ognuna delle quali apre una porta sola.»
+«Questi sistemi hanno spesso una cosa in comune» disse Aurelio, tornando a sedersi. «Sono ottimi in un'unica direzione. Il lavoro, le abitudini, oppure la mentalità. Somigliano a un armadio pieno di chiavi bellissime, ognuna delle quali apre una porta sola.»
 
 Stefano pensò al mazzo di chiavi di suo padre. Quindici chiavi, una per ogni serratura, alcune di serrature che non esistevano più.
 
-«Ma la vita non è fatta di porte separate. Nella stessa settimana ha un obiettivo da raggiungere, un ostacolo che la blocca, una relazione che scricchiola, e trenta minuti liberi in tutto.» Elio lo guardò. «APPO non è un'altra chiave da aggiungere all'armadio.»
+«Ma la vita non è fatta di porte separate. Nella stessa settimana ha un obiettivo da raggiungere, un ostacolo che la blocca, una relazione che scricchiola, e trenta minuti liberi in tutto.» Aurelio lo guardò. «APPO non è un'altra chiave da aggiungere all'armadio.»
 
 «È un grimaldello» disse Stefano.
 
-Elio alzò le sopracciglia.
+Aurelio alzò le sopracciglia.
 
 «Come lo sa?»
 
 «Mio padre. Il primo giorno che sono arrivato, a maggio. La porta della cantina non si apriva, e lui l'ha aperta con un grimaldello che si era fatto da solo. Mi ha detto: non è la chiave giusta per nessuna porta, però funziona su quasi tutte.»
 
-Elio rimase zitto per un po'. Poi rise piano, scuotendo la testa.
+Aurelio rimase zitto per un po'. Poi rise piano, scuotendo la testa.
 
 «Suo padre è un uomo saggio. Gliel'ho già detto. Sì, è un grimaldello. Non è perfetto per nessuna serratura in particolare, ma funziona su quasi tutte. Non lavora sulla forma della porta. Lavora sul meccanismo che tutte le porte hanno in comune. Una direzione, un ostacolo, una mossa, un'occasione.»
 
@@ -3696,7 +3696,7 @@ Elio rimase zitto per un po'. Poi rise piano, scuotendo la testa.
 
 «Allora a Giulia che cosa dico?» chiese Stefano. «Di diverso, intendo.»
 
-«Le dica quattro cose.» Elio le contò. «Il tempo. Molti sistemi chiedono una quota fissa, spesso alta. Questo costa circa un'ora al mese in tutto, e la scrittura cala man mano che si sale di livello: due righe al giorno, poche parole alla settimana, tre risposte al mese.»
+«Le dica quattro cose.» Aurelio le contò. «Il tempo. Molti sistemi chiedono una quota fissa, spesso alta. Questo costa circa un'ora al mese in tutto, e la scrittura cala man mano che si sale di livello: due righe al giorno, poche parole alla settimana, tre risposte al mese.»
 
 «L'ambito. Molti strumenti coprono bene un settore solo. Questo tiene insieme la direzione, l'ostacolo, l'azione e le relazioni. Che è il modo in cui la vita arriva davvero: tutta insieme.»
 
@@ -3720,7 +3720,7 @@ Ci fu una pausa.
 
 «Da stasera sì.»
 
-Poi Stefano fece l'esercizio che Elio gli aveva lasciato. Sul taccuino elencò i metodi, le applicazioni e i corsi che aveva provato negli ultimi dieci anni. Accanto a ciascuno, tre cose: quanto tempo al giorno gli chiedeva, quale porta apriva, e dopo quanto tempo l'aveva lasciato.
+Poi Stefano fece l'esercizio che Aurelio gli aveva lasciato. Sul taccuino elencò i metodi, le applicazioni e i corsi che aveva provato negli ultimi dieci anni. Accanto a ciascuno, tre cose: quanto tempo al giorno gli chiedeva, quale porta apriva, e dopo quanto tempo l'aveva lasciato.
 
 *Palestra di Torrione — 1 ora e mezza (con il viaggio) — corpo — 4 volte in 3 settimane.*
 *App di meditazione — 20 minuti — mente — 11 giorni.*
@@ -3749,11 +3749,11 @@ L'applicazione si chiamava con un nome inglese che Stefano non riusciva mai a ri
 
 Era bellissima. Ogni mattina ti chiedeva l'obiettivo del giorno, la sera ti chiedeva come era andata, e poi faceva tutto da sola: grafici a barre, mappe di calore colorate per i giorni della settimana, correlazioni fra l'umore e il sonno, perfino un assistente con l'intelligenza artificiale che ti scriveva un riassunto della settimana con consigli personalizzati. Si poteva aggiungere qualunque campo: energia, gratitudine, ore di sonno, sigarette, bicchieri d'acqua. Ivo l'aveva configurata in due ore e la usava da tre settimane.
 
-Stefano la scaricò un martedì sera di fine febbraio. Il mercoledì mattina andò da Elio con il telefono in mano.
+Stefano la scaricò un martedì sera di fine febbraio. Il mercoledì mattina andò da Aurelio con il telefono in mano.
 
 «Credo che passerò a questa» disse. «Il taccuino si inceppa. L'app fa tutto da sola.»
 
-Elio stava seduto al tavolo della cucina con un coltello da cucina e una pietra per affilare, grigia, bagnata. Non alzò gli occhi.
+Aurelio stava seduto al tavolo della cucina con un coltello da cucina e una pietra per affilare, grigia, bagnata. Non alzò gli occhi.
 
 «Dove si inceppa, esattamente?»
 
@@ -3767,13 +3767,13 @@ Stefano ci pensò. Non se l'era mai chiesto con precisione.
 
 «Perché a Salerno la sera non sono mai solo. C'è Giulia, c'è Matteo, guardiamo un film, usciamo a cena. E quando vado a letto è l'una, e Giulia è già lì, e accendere la luce per scrivere mi sembra…» Cercò la parola. «Strano.»
 
-Elio fece scorrere il coltello sulla pietra, una passata lunga, leggera. Poi un'altra.
+Aurelio fece scorrere il coltello sulla pietra, una passata lunga, leggera. Poi un'altra.
 
 «Quindi il taccuino funziona sei giorni su sette per la riga del mattino, cinque su sette per quella della sera. E si inceppa in un punto preciso: il sabato e la domenica sera, a Salerno, perché il momento a cui l'aveva agganciata, prima di dormire, da solo, lì non esiste.»
 
 «Detto così…»
 
-«Detto così, il problema non è il taccuino. È il momento in cui prova a scrivere la seconda riga, in un posto dove quel momento non c'è.» Elio posò il coltello. «Sposti il momento. Non butti lo strumento.»
+«Detto così, il problema non è il taccuino. È il momento in cui prova a scrivere la seconda riga, in un posto dove quel momento non c'è.» Aurelio posò il coltello. «Sposti il momento. Non butti lo strumento.»
 
 ---
 
@@ -3797,7 +3797,7 @@ Stefano guardò. Undici.
 
 ---
 
-Quel mese, nella comunità pensante, tre persone erano state sul punto di mollare. Stefano se n'era accorto, e ne parlò con Elio.
+Quel mese, nella comunità pensante, tre persone erano state sul punto di mollare. Stefano se n'era accorto, e ne parlò con Aurelio.
 
 Rosa aveva fatto due settimane di notti consecutive e aveva saltato tutto. Tornando al bar, il primo giovedì di marzo, aveva detto: «Non ce la faccio. Due righe sono troppe, quando torni alle otto del mattino e devi dormire fino alle tre».
 
@@ -3805,7 +3805,7 @@ Giulia, che a gennaio aveva cominciato anche il numero, oltre al *fatto*, a fine
 
 E Ivo aveva cambiato tre applicazioni in due mesi, ogni volta più complicata della precedente.
 
-«Le ragioni per cui si abbandona un metodo sono tre» disse Elio, «e conviene riconoscerle prima di incontrarle. Lei me ne ha appena descritte tutte e tre, con tre persone.»
+«Le ragioni per cui si abbandona un metodo sono tre» disse Aurelio, «e conviene riconoscerle prima di incontrarle. Lei me ne ha appena descritte tutte e tre, con tre persone.»
 
 Le disse una alla volta, ripassando il coltello sulla pietra fra l'una e l'altra.
 
@@ -3813,7 +3813,7 @@ Le disse una alla volta, ripassando il coltello sulla pietra fra l'una e l'altra
 
 «La seconda sono le aspettative. Chi comincia aspettandosi una trasformazione rapida legge la normale lentezza del cambiamento come un fallimento personale. E rischia di abbandonare proprio quando i primi effetti cominciano a consolidarsi sotto la superficie. È sua moglie, con la sua media a cinque dopo sei settimane, mentre sua madre peggiora. Sei settimane, in una situazione come la sua, sono niente. E una media a cinque, in una situazione come la sua, è quasi un miracolo.»
 
-«La terza è l'ambiente. Chi vive in un contesto molto imprevedibile, un genitore con bambini piccoli, chi lavora nelle emergenze, chi cambia turno ogni settimana, parte con una riserva di energie per decidere già bassa. Per queste persone uno strumento che chiede poche decisioni non è un lusso per chi ha poca disciplina. È l'unico tipo di strumento compatibile con la loro vita.» Elio alzò gli occhi. «È Rosa.»
+«La terza è l'ambiente. Chi vive in un contesto molto imprevedibile, un genitore con bambini piccoli, chi lavora nelle emergenze, chi cambia turno ogni settimana, parte con una riserva di energie per decidere già bassa. Per queste persone uno strumento che chiede poche decisioni non è un lusso per chi ha poca disciplina. È l'unico tipo di strumento compatibile con la loro vita.» Aurelio alzò gli occhi. «È Rosa.»
 
 ---
 
@@ -3821,11 +3821,11 @@ Le disse una alla volta, ripassando il coltello sulla pietra fra l'una e l'altra
 
 «E quella cosa che ha detto prima? La spirale?»
 
-«La spirale del fallimento percepito.» Elio posò la pietra. «È la cosa più importante che le dico oggi. Se in passato ha abbandonato un metodo, quell'esperienza non dice niente sulla sua forza di volontà. Dice soltanto che quello strumento, in quel momento della sua vita, chiedeva più di quanto poteva dare. Non è una sentenza su di lei. È un dato su uno strumento. E gli strumenti, a differenza delle persone, si possono cambiare senza drammi.»
+«La spirale del fallimento percepito.» Aurelio posò la pietra. «È la cosa più importante che le dico oggi. Se in passato ha abbandonato un metodo, quell'esperienza non dice niente sulla sua forza di volontà. Dice soltanto che quello strumento, in quel momento della sua vita, chiedeva più di quanto poteva dare. Non è una sentenza su di lei. È un dato su uno strumento. E gli strumenti, a differenza delle persone, si possono cambiare senza drammi.»
 
 «Allora perché non devo cambiare con l'app?»
 
-«Perché non sta cambiando lo strumento sbagliato. Sta per buttare uno strumento che funziona sei giorni su sette.» Elio sorrise. «Le spiego la spirale. Ogni volta che abbandona qualcosa non perde soltanto quello strumento. Accumula anche un piccolo strato di sfiducia verso se stesso. E quello strato rende più difficile impegnarsi nel tentativo successivo. È un meccanismo insidioso, perché la spinge a dare la colpa al carattere. *Non sono costante, mollo sempre tutto.* Invece che allo strumento sbagliato. Per rompere la spirale serve un successo, anche minuscolo, ottenuto con qualcosa di davvero leggero.»
+«Perché non sta cambiando lo strumento sbagliato. Sta per buttare uno strumento che funziona sei giorni su sette.» Aurelio sorrise. «Le spiego la spirale. Ogni volta che abbandona qualcosa non perde soltanto quello strumento. Accumula anche un piccolo strato di sfiducia verso se stesso. E quello strato rende più difficile impegnarsi nel tentativo successivo. È un meccanismo insidioso, perché la spinge a dare la colpa al carattere. *Non sono costante, mollo sempre tutto.* Invece che allo strumento sbagliato. Per rompere la spirale serve un successo, anche minuscolo, ottenuto con qualcosa di davvero leggero.»
 
 Stefano pensò alla lista che aveva scritto la settimana prima. La palestra, la meditazione, l'inglese, Rimini, il libro per smettere di fumare. Sei strati di sfiducia. E sopra, un taccuino da quattro euro e cinquanta che resisteva da nove mesi.
 
@@ -3833,7 +3833,7 @@ Stefano pensò alla lista che aveva scritto la settimana prima. La palestra, la 
 
 «E se una persona, come Rosa, sente che anche due righe sono troppe?»
 
-«Non abbandoni. Riduca ancora. Tenga soltanto la riga del mattino, scritta dopo aver riletto l'ultima riga della sera. È il cuore del circuito. Meglio una riga mantenuta per mesi che due righe abbandonate dopo una settimana storta.» Elio fece un gesto con la mano, come per piegare qualcosa. «Il metodo è fatto per piegarsi alla vita. Non il contrario.»
+«Non abbandoni. Riduca ancora. Tenga soltanto la riga del mattino, scritta dopo aver riletto l'ultima riga della sera. È il cuore del circuito. Meglio una riga mantenuta per mesi che due righe abbandonate dopo una settimana storta.» Aurelio fece un gesto con la mano, come per piegare qualcosa. «Il metodo è fatto per piegarsi alla vita. Non il contrario.»
 
 Si fermò un momento.
 
@@ -3841,13 +3841,13 @@ Si fermò un momento.
 
 ---
 
-Elio riprese il coltello e lo fece passare di nuovo sulla pietra. Stefano lo guardò. Era lo stesso gesto di giugno, sul molo, con il coltellino da pesca.
+Aurelio riprese il coltello e lo fece passare di nuovo sulla pietra. Stefano lo guardò. Era lo stesso gesto di giugno, sul molo, con il coltellino da pesca.
 
-«Se il problema è il carico» disse Elio, «la soluzione non è stringere i denti. È un modo di migliorare che in Giappone hanno messo a punto per necessità. Kaizen. La conosce la parola?»
+«Se il problema è il carico» disse Aurelio, «la soluzione non è stringere i denti. È un modo di migliorare che in Giappone hanno messo a punto per necessità. Kaizen. La conosce la parola?»
 
 «In banca la usavano ai corsi sulla qualità. Miglioramento continuo.»
 
-«È fatta di due caratteri giapponesi. *Kai*, che vuol dire cambiamento. *Zen*, che vuol dire in meglio. In Occidente l'ha resa famosa Masaaki Imai, con un libro del 1986.» Elio provò il filo del coltello sul bordo di un foglio di giornale: lo tagliò senza rumore. «Ma la traduzione non basta. Il Kaizen ha spostato il miglioramento dalle mani di pochi esperti alle mani di tutti. E dai grandi salti ai piccolissimi passi.»
+«È fatta di due caratteri giapponesi. *Kai*, che vuol dire cambiamento. *Zen*, che vuol dire in meglio. In Occidente l'ha resa famosa Masaaki Imai, con un libro del 1986.» Aurelio provò il filo del coltello sul bordo di un foglio di giornale: lo tagliò senza rumore. «Ma la traduzione non basta. Il Kaizen ha spostato il miglioramento dalle mani di pochi esperti alle mani di tutti. E dai grandi salti ai piccolissimi passi.»
 
 «Nelle fabbriche, no?»
 
@@ -3859,11 +3859,11 @@ Posò il coltello.
 
 «Come le riorganizzazioni della banca. Ogni due anni, una nuova.»
 
-«Una rivoluzione fallisce tutta insieme. Cento piccoli aggiustamenti falliscono uno alla volta, e gli altri novantanove restano.» Elio sorrise. «Non è una filosofia gentile. È efficiente. Funziona perché i piccoli cambiamenti incontrano poca resistenza, non richiedono soldi, non devono essere approvati da nessuno. E soprattutto non si rompono tutti insieme.»
+«Una rivoluzione fallisce tutta insieme. Cento piccoli aggiustamenti falliscono uno alla volta, e gli altri novantanove restano.» Aurelio sorrise. «Non è una filosofia gentile. È efficiente. Funziona perché i piccoli cambiamenti incontrano poca resistenza, non richiedono soldi, non devono essere approvati da nessuno. E soprattutto non si rompono tutti insieme.»
 
 ---
 
-«In pratica, per lei» disse Elio, «vuol dire non cambiare metodo ogni volta che qualcosa non funziona alla perfezione. Osservare con precisione dove si inceppa, e correggere soltanto quel punto. Se la riga del mattino le riesce e quella della sera la salta sempre il sabato, il problema non è il metodo. È il momento.»
+«In pratica, per lei» disse Aurelio, «vuol dire non cambiare metodo ogni volta che qualcosa non funziona alla perfezione. Osservare con precisione dove si inceppa, e correggere soltanto quel punto. Se la riga del mattino le riesce e quella della sera la salta sempre il sabato, il problema non è il metodo. È il momento.»
 
 «E c'è un'altra cosa che sorprende molti. I sistemi di miglioramento continuo più efficaci non si misurano dalla grandezza dei miglioramenti, ma dalla loro frequenza. Non serve un cambiamento enorme una volta all'anno. Serve un aggiustamento minuscolo ogni settimana, ripetuto senza interruzione. È esattamente quello che le chiede il rito settimanale: un esperimento piccolo ogni sette giorni. E adesso sa da dove viene.»
 
@@ -3875,7 +3875,7 @@ Prese il coltello affilato e glielo porse, dal lato del manico.
 
 Stefano non cancellò l'applicazione. La mostrò a Matteo, che la trovò «carina ma inutile», e poi la dimenticò in una cartella del telefono.
 
-Sul taccuino, quella sera, scrisse un solo aggiustamento, nella forma che Elio gli aveva insegnato:
+Sul taccuino, quella sera, scrisse un solo aggiustamento, nella forma che Aurelio gli aveva insegnato:
 
 *Da sabato, invece di scrivere la riga della sera a letto, la scrivo in bagno mentre mi lavo i denti. Il taccuino lo lascio sul lavandino di Salerno.*
 
@@ -3911,25 +3911,25 @@ Il foglio passò di mano in mano sul tavolo di formica. Era un annuncio, stampat
 
 «Ma è scontato» disse Mela. «Costava milleduecento.»
 
-Ivo prese il foglio, lo lesse due volte, e poi lo girò verso Elio, che come sempre stava nel suo angolo con la camomilla.
+Ivo prese il foglio, lo lesse due volte, e poi lo girò verso Aurelio, che come sempre stava nel suo angolo con la camomilla.
 
 «Posso farlo io?» chiese Ivo.
 
-Elio sorrise e fece un gesto con la mano. *Prego.*
+Aurelio sorrise e fece un gesto con la mano. *Prego.*
 
 ---
 
-Ma prima di Ivo, quella sera, parlò Elio. Perché, disse, per smontare un annuncio così bisognava prima conoscere le regole con cui gli altri provano a spostarci.
+Ma prima di Ivo, quella sera, parlò Aurelio. Perché, disse, per smontare un annuncio così bisognava prima conoscere le regole con cui gli altri provano a spostarci.
 
 «Orazio, in una delle sue *Epistole*, scrive due parole che sono diventate famose: *sapere aude*. Osa sapere. Ma aggiunge subito un'altra parola, che di solito si dimentica: *incipe*. Comincia.» Posò la tazza. «Il sapere di stasera è di quelli che proteggono. Il mercato della crescita personale propone di continuo strumenti nuovi. Applicazioni, sfide, protocolli mattutini di novanta minuti, tecniche di respirazione, seminari a Napoli. Non sono tutti inutili. Ma molti hanno lo stesso difetto: chiedono più tempo di quanto promettono di farne risparmiare.»
 
 «E come si capisce?» chiese Mela, un po' sulla difensiva.
 
-«Con una domanda che si fa in dieci secondi. Non *è famoso?*, non *l'ha fatto mia cugina?*. Ma: *questo strumento riduce l'attrito verso la mia Aspirazione, o lo aumenta?*» Elio la guardò con gentilezza. «Se la tenga da parte, Mela. Funziona su tutto. Anche su questo metodo.»
+«Con una domanda che si fa in dieci secondi. Non *è famoso?*, non *l'ha fatto mia cugina?*. Ma: *questo strumento riduce l'attrito verso la mia Aspirazione, o lo aumenta?*» Aurelio la guardò con gentilezza. «Se la tenga da parte, Mela. Funziona su tutto. Anche su questo metodo.»
 
 ---
 
-«Le relazioni umane seguono alcuni meccanismi» continuò Elio. «Non sono casuali, e non sono un mistero riservato a chi ha studiato psicologia. Sono poche regole che si ripetono sempre allo stesso modo. Una volta che le vedi, non riesci più a non vederle.»
+«Le relazioni umane seguono alcuni meccanismi» continuò Aurelio. «Non sono casuali, e non sono un mistero riservato a chi ha studiato psicologia. Sono poche regole che si ripetono sempre allo stesso modo. Una volta che le vedi, non riesci più a non vederle.»
 
 Le disse una per volta, e ogni volta qualcuno al tavolo riconobbe una scena.
 
@@ -3937,7 +3937,7 @@ Le disse una per volta, e ogni volta qualcuno al tavolo riconobbe una scena.
 
 Gino rise forte. «Il rappresentante delle assicurazioni! Viene in officina ogni mese con le paste. E ogni mese mi vende una polizza che non mi serve.»
 
-«Chi si è esposto in pubblico fa fatica a tornare indietro» disse Elio. «Non per testardaggine. Per non sembrare incoerente davanti a chi lo ha ascoltato. È la coerenza di cui vi ho parlato all'inizio: quella che rende difficile ammettere la verità perfino a se stessi.»
+«Chi si è esposto in pubblico fa fatica a tornare indietro» disse Aurelio. «Non per testardaggine. Per non sembrare incoerente davanti a chi lo ha ascoltato. È la coerenza di cui vi ho parlato all'inizio: quella che rende difficile ammettere la verità perfino a se stessi.»
 
 Stefano pensò a quando, a giugno, aveva detto a tutti che sarebbe tornato in banca. Per due mesi non era riuscito a dire il contrario, nemmeno a se stesso.
 
@@ -3945,15 +3945,15 @@ Stefano pensò a quando, a giugno, aveva detto a tutti che sarebbe tornato in ba
 
 «Diamo ragione a chi ci somiglia, e crediamo più facilmente a chi ci piace. Anche quando dice cose sbagliate.»
 
-«E poi c'è l'ultima, la mia preferita.» Elio sorrise. «Quando sbaglia un altro, pensiamo che sia fatto così. Quando sbagliamo noi, diamo la colpa alla situazione. Uno psicologo, Lee Ross, nel 1977, ha chiamato questa tendenza errore fondamentale di attribuzione. Provatela sul vostro ultimo litigio. Quasi sempre torna.»
+«E poi c'è l'ultima, la mia preferita.» Aurelio sorrise. «Quando sbaglia un altro, pensiamo che sia fatto così. Quando sbagliamo noi, diamo la colpa alla situazione. Uno psicologo, Lee Ross, nel 1977, ha chiamato questa tendenza errore fondamentale di attribuzione. Provatela sul vostro ultimo litigio. Quasi sempre torna.»
 
 Stefano ci provò, e gli venne caldo alle orecchie. La domenica prima Matteo era arrivato a pranzo con quaranta minuti di ritardo, e Stefano aveva detto: *È fatto così, non ha rispetto per niente.* Il sabato prima, lui era arrivato con un'ora di ritardo alla recita di fine trimestre del corso di chitarra di Matteo, e aveva detto: *C'era un traffico assurdo a Battipaglia.*
 
-«Conoscere questi meccanismi serve a due cose» disse Elio. «La prima è smettere di subirli. Chi vende e chi manipola li conosce benissimo, e se voi non li conoscete la partita è truccata. La seconda è più importante, e più scomoda. Smettere di usarli, senza accorgervene, contro le persone a cui volete bene.»
+«Conoscere questi meccanismi serve a due cose» disse Aurelio. «La prima è smettere di subirli. Chi vende e chi manipola li conosce benissimo, e se voi non li conoscete la partita è truccata. La seconda è più importante, e più scomoda. Smettere di usarli, senza accorgervene, contro le persone a cui volete bene.»
 
 ---
 
-«Alcune di queste regole, insieme a un paio di altre, sono usate in modo sistematico per venderci qualcosa» disse Elio. «Le ha descritte uno psicologo di cui vi ho già parlato, Robert Cialdini, in *Le armi della persuasione*, nel 1984, e nelle ricerche successive. Ivo, adesso tocca a te.»
+«Alcune di queste regole, insieme a un paio di altre, sono usate in modo sistematico per venderci qualcosa» disse Aurelio. «Le ha descritte uno psicologo di cui vi ho già parlato, Robert Cialdini, in *Le armi della persuasione*, nel 1984, e nelle ricerche successive. Ivo, adesso tocca a te.»
 
 Ivo prese l'annuncio e una penna. Cominciò a cerchiare.
 
@@ -3963,11 +3963,11 @@ Ivo prese l'annuncio e una penna. Cominciò a cerchiare.
 
 «L'autorità.» Cerchiò *neuroscientifico*, *neuroplasticità*, la camicia bianca. «È la più insidiosa, perché si presenta con un linguaggio rassicurante. La domanda da farsi non è chi lo dice. È che cosa dice esattamente, e se lo posso verificare.»
 
-«La simpatia» disse Elio. «Ci fidiamo di chi ci piace, di chi ci somiglia, di chi parla con un tono caldo. Non c'è niente di male: anche io ci provo, con voi. Il problema nasce quando la simpatia sostituisce la sostanza, invece di accompagnarla. E vostra cugina, Mela, vi piace molto.»
+«La simpatia» disse Aurelio. «Ci fidiamo di chi ci piace, di chi ci somiglia, di chi parla con un tono caldo. Non c'è niente di male: anche io ci provo, con voi. Il problema nasce quando la simpatia sostituisce la sostanza, invece di accompagnarla. E vostra cugina, Mela, vi piace molto.»
 
 Mela fece una smorfia, ma annuì.
 
-«E la coerenza» disse Elio. «Un piccolo impegno preso in pubblico, per poi chiedervi di più. Un seminario introduttivo gratuito, poi uno da quattrocentonovantasette euro, poi un percorso da tremila. È lo stesso principio che usate voi su voi stessi con la riga della sera. Ed è qui la differenza che voglio sia chiara. Quando lo usate voi su di voi, il meccanismo è trasparente: sapete che cosa state facendo e perché. Quando lo usa qualcun altro su di voi, è nascosto. È la stessa leva. Cambia tutto chi la tiene in mano.»
+«E la coerenza» disse Aurelio. «Un piccolo impegno preso in pubblico, per poi chiedervi di più. Un seminario introduttivo gratuito, poi uno da quattrocentonovantasette euro, poi un percorso da tremila. È lo stesso principio che usate voi su voi stessi con la riga della sera. Ed è qui la differenza che voglio sia chiara. Quando lo usate voi su di voi, il meccanismo è trasparente: sapete che cosa state facendo e perché. Quando lo usa qualcun altro su di voi, è nascosto. È la stessa leva. Cambia tutto chi la tiene in mano.»
 
 Si sporse in avanti.
 
@@ -3977,11 +3977,11 @@ Si sporse in avanti.
 
 «E poi c'è il linguaggio» disse Ivo, tornando al foglio. «*Rivoluzionario*. *Quantica*. *Riprogrammare*.»
 
-«Su questo c'è un dato che sorprende» disse Elio. «Parole come *rivoluzionario*, *scientificamente provato*, *l'unico metodo che funziona davvero* sono scelte per suscitare una reazione emotiva che viene prima, e spesso al posto, della valutazione del contenuto. Ma funzionano peggio di quanto si creda. Nel 2019 due ricercatori tedeschi, Lars König e Regina Jucks, hanno misurato in un esperimento l'effetto del linguaggio entusiastico nella comunicazione scientifica. Chi lo leggeva giudicava l'autore più manipolativo e meno competente rispetto a chi leggeva lo stesso contenuto scritto in modo neutro.»
+«Su questo c'è un dato che sorprende» disse Aurelio. «Parole come *rivoluzionario*, *scientificamente provato*, *l'unico metodo che funziona davvero* sono scelte per suscitare una reazione emotiva che viene prima, e spesso al posto, della valutazione del contenuto. Ma funzionano peggio di quanto si creda. Nel 2019 due ricercatori tedeschi, Lars König e Regina Jucks, hanno misurato in un esperimento l'effetto del linguaggio entusiastico nella comunicazione scientifica. Chi lo leggeva giudicava l'autore più manipolativo e meno competente rispetto a chi leggeva lo stesso contenuto scritto in modo neutro.»
 
 «Quindi l'entusiasmo fa perdere credibilità» disse Rosa.
 
-«A chi sta attento, sì. Quando lo incontrate, rallentate di proposito, e chiedetevi che cosa resterebbe se toglieste tutti i superlativi. Se la risposta è poco o niente di concreto, avete trovato qualcuno che vende entusiasmo.» Elio indicò *neuroplasticità quantica*. «E lo stesso vale per le parole tecniche usate come profumo. Neuroplasticità, quantico, biohacking. Sono concetti reali, studiati da ricercatori seri. Ma quando li trovate in un contesto commerciale, chiedetevi se chi li usa saprebbe spiegarvi con parole semplici che cosa significano. Oppure se quel termine serve proprio a evitare la domanda.»
+«A chi sta attento, sì. Quando lo incontrate, rallentate di proposito, e chiedetevi che cosa resterebbe se toglieste tutti i superlativi. Se la risposta è poco o niente di concreto, avete trovato qualcuno che vende entusiasmo.» Aurelio indicò *neuroplasticità quantica*. «E lo stesso vale per le parole tecniche usate come profumo. Neuroplasticità, quantico, biohacking. Sono concetti reali, studiati da ricercatori seri. Ma quando li trovate in un contesto commerciale, chiedetevi se chi li usa saprebbe spiegarvi con parole semplici che cosa significano. Oppure se quel termine serve proprio a evitare la domanda.»
 
 Ivo fece il conto ad alta voce. «Autorità, con il linguaggio pseudoscientifico. Riprova sociale, con le migliaia di persone. Scarsità, con i posti limitati e la scadenza. Linguaggio entusiastico, con *rivoluzionario*. Tre leve e un superlativo in una riga.» Girò il foglio. «E non dice quanto tempo ti chiede al giorno dopo il seminario. Non cita una sola fonte verificabile. E non spiega in che cosa consista, il protocollo.»
 
@@ -3991,7 +3991,7 @@ Mela guardò il foglio pieno di cerchi rossi. Poi rise, prima piano, poi forte.
 
 ---
 
-«Prima di comprare qualunque cosa» disse Elio, «bastano tre domande. Ve le lascio.»
+«Prima di comprare qualunque cosa» disse Aurelio, «bastano tre domande. Ve le lascio.»
 
 Stefano le scrisse nelle pagine in fondo al taccuino, quelle delle istruzioni.
 
@@ -4001,13 +4001,13 @@ Stefano le scrisse nelle pagine in fondo al taccuino, quelle delle istruzioni.
 
 *Mi interessa perché risolve un problema che ho già individuato, o perché la pubblicità mi ha incuriosito adesso?*
 
-«Valgono anche per gli strumenti con l'intelligenza artificiale, che negli ultimi anni si sono affiancati a tutto il resto» disse Elio, guardando Ivo. «La sofisticazione tecnologica dice qualcosa sulla capacità di calcolo. Ma niente sulla capacità di ridurre l'attrito della vostra giornata. Anzi. Più uno strumento ha funzioni, più tempo chiede per essere configurato e imparato. Che è proprio il carico da cui vi insegno a diffidare.»
+«Valgono anche per gli strumenti con l'intelligenza artificiale, che negli ultimi anni si sono affiancati a tutto il resto» disse Aurelio, guardando Ivo. «La sofisticazione tecnologica dice qualcosa sulla capacità di calcolo. Ma niente sulla capacità di ridurre l'attrito della vostra giornata. Anzi. Più uno strumento ha funzioni, più tempo chiede per essere configurato e imparato. Che è proprio il carico da cui vi insegno a diffidare.»
 
 Ivo annuì, serio. Aveva il taccuino nero in tasca.
 
 ---
 
-Alla fine della serata, mentre il barista spegneva le luci del bancone, Elio disse l'ultima cosa.
+Alla fine della serata, mentre il barista spegneva le luci del bancone, Aurelio disse l'ultima cosa.
 
 «Applicate questo stesso filtro anche al mio metodo.»
 
@@ -4019,15 +4019,15 @@ Rosa alzò la mano.
 
 «Il rito della domenica. Io la domenica lavoro quasi sempre. L'ho spostato al giorno dopo l'ultima notte, qualunque giorno sia. Va bene?»
 
-«È l'unica cosa che conta» disse Elio. «Che sia sempre lo stesso momento. Non lo stesso giorno.»
+«È l'unica cosa che conta» disse Aurelio. «Che sia sempre lo stesso momento. Non lo stesso giorno.»
 
 ---
 
-Quella settimana Stefano fece l'esercizio che Elio aveva lasciato al gruppo. Ogni volta che una proposta lo tentava, un acquisto, un corso, un'applicazione, annotava sul taccuino quale leva l'aveva resa attraente, e rispondeva alle tre domande prima di comprare.
+Quella settimana Stefano fece l'esercizio che Aurelio aveva lasciato al gruppo. Ogni volta che una proposta lo tentava, un acquisto, un corso, un'applicazione, annotava sul taccuino quale leva l'aveva resa attraente, e rispondeva alle tre domande prima di comprare.
 
 Le proposte furono cinque. Un corso online di consulenza finanziaria per piccole imprese, *ultimi 3 posti* (scarsità; non sapeva quanto tempo chiedeva; non risolveva un problema individuato: lo fece passare). Un software di contabilità consigliato da un cliente che lo usava (simpatia; ma risolveva un problema vero, quello delle fatture di Gino, e costava dieci euro al mese: lo prese). Un libro sul leader che è in te, consigliato da *migliaia di lettori* (riprova sociale: lo lasciò sullo scaffale). Una sedia ergonomica da quattrocento euro (autorità del venditore in camice; ma suo padre gliel'aveva già sistemata con quattro pezzi di castagno). E un abbonamento a una rivista di economia, regalatogli per un mese da un editore con una lettera personalizzata (reciprocità: lo disdisse il giorno prima del rinnovo).
 
-Una su cinque. Accanto alla lista, alla fine, fece la stessa prova con il metodo di Elio, come Elio aveva chiesto. Scrisse quale parte riduceva il suo attrito e quale no.
+Una su cinque. Accanto alla lista, alla fine, fece la stessa prova con il metodo di Aurelio, come Aurelio aveva chiesto. Scrisse quale parte riduceva il suo attrito e quale no.
 
 *Riduce: la riga del mattino. il numero. il rito (soprattutto la riga di grazie).*
 *Non riduce: il momento mensile. lo faccio sempre in ritardo, e di fretta.*
@@ -4042,9 +4042,9 @@ Poi, sabato, chiese scusa a Matteo per la storia del ritardo. «Tu sei *fatto co
 
 «Da un vecchio su una barca.»
 
-«Il tuo amico Elio?»
+«Il tuo amico Aurelio?»
 
-«Il mio amico Elio.»
+«Il mio amico Aurelio.»
 
 Matteo ci pensò un momento.
 
@@ -4058,21 +4058,21 @@ Matteo ci pensò un momento.
 
 ---
 
-Matteo conobbe Elio il lunedì di Pasquetta.
+Matteo conobbe Aurelio il lunedì di Pasquetta.
 
 Giulia e Matteo erano scesi a Torraca per le vacanze, e la nonna di Matteo, la madre di Giulia, era in una struttura a Salerno dove la seguivano giorno e notte; per la prima volta da mesi Giulia aveva quattro giorni senza correre. Il lunedì mattina Stefano portò Matteo a Sapri. Il ragazzo camminava sul lungomare con le mani in tasca e le cuffie al collo, guardandosi intorno come un turista diffidente.
 
-Elio li aspettava sulla terrazza. Era più magro dell'ultima volta, Stefano se ne accorse subito, e la tosse non era passata. Ma stringeva la mano con la stessa forza.
+Aurelio li aspettava sulla terrazza. Era più magro dell'ultima volta, Stefano se ne accorse subito, e la tosse non era passata. Ma stringeva la mano con la stessa forza.
 
-«Tu sei quello della chitarra» disse Elio a Matteo.
+«Tu sei quello della chitarra» disse Aurelio a Matteo.
 
-Matteo guardò il padre, poi Elio.
+Matteo guardò il padre, poi Aurelio.
 
 «Che altro le ha raccontato?»
 
-«Niente di quello che c'è scritto nel suo taccuino, se è questo che ti preoccupa.» Elio sorrise. «Siediti. Tuo padre mi ha detto che usi l'intelligenza artificiale per studiare. Me la fai vedere?»
+«Niente di quello che c'è scritto nel suo taccuino, se è questo che ti preoccupa.» Aurelio sorrise. «Siediti. Tuo padre mi ha detto che usi l'intelligenza artificiale per studiare. Me la fai vedere?»
 
-C'era anche Ivo, seduto in fondo al tavolo con il portatile, che Elio aveva invitato apposta. Matteo, a sorpresa, si animò. Tirò fuori il telefono, aprì l'applicazione e cominciò a mostrare come la usava: per riassumere i capitoli di storia, per farsi spiegare gli esercizi di fisica, per scrivere la bozza dei temi di italiano.
+C'era anche Ivo, seduto in fondo al tavolo con il portatile, che Aurelio aveva invitato apposta. Matteo, a sorpresa, si animò. Tirò fuori il telefono, aprì l'applicazione e cominciò a mostrare come la usava: per riassumere i capitoli di storia, per farsi spiegare gli esercizi di fisica, per scrivere la bozza dei temi di italiano.
 
 «La bozza dei temi?» disse Stefano.
 
@@ -4080,11 +4080,11 @@ C'era anche Ivo, seduto in fondo al tavolo con il portatile, che Elio aveva invi
 
 ---
 
-«Più di ventitré secoli fa» disse Elio, «Aristotele immaginava strumenti capaci di compiere da soli il proprio lavoro. Pensava ai tripodi che, nel racconto di Omero, il dio Efesto aveva costruito perché si muovessero da sé. Oggi qualcosa del genere esiste davvero.» Indicò il telefono di Matteo. «Scrive, riassume, traduce, risponde in pochi secondi a quasi qualunque domanda. Ma negli automi di Aristotele c'è un dettaglio che conviene notare. Ciascuno compie il *proprio* lavoro. Cioè un lavoro che qualcun altro ha deciso.»
+«Più di ventitré secoli fa» disse Aurelio, «Aristotele immaginava strumenti capaci di compiere da soli il proprio lavoro. Pensava ai tripodi che, nel racconto di Omero, il dio Efesto aveva costruito perché si muovessero da sé. Oggi qualcosa del genere esiste davvero.» Indicò il telefono di Matteo. «Scrive, riassume, traduce, risponde in pochi secondi a quasi qualunque domanda. Ma negli automi di Aristotele c'è un dettaglio che conviene notare. Ciascuno compie il *proprio* lavoro. Cioè un lavoro che qualcun altro ha deciso.»
 
 Matteo lo guardava con una certa curiosità. Non si aspettava, pensò Stefano, che un vecchio su una terrazza di Sapri gli parlasse di Aristotele e di intelligenza artificiale nella stessa frase.
 
-«Voglio essere chiaro da che parte sto» disse Elio. «Per chi ha un metodo, la tecnologia è un'alleata. Non perché sia neutrale, perché non lo è quasi mai. Ma perché, una volta che hai un modo per decidere dove vuoi andare, qualunque strumento che ti ci porta prima lavora per te.»
+«Voglio essere chiaro da che parte sto» disse Aurelio. «Per chi ha un metodo, la tecnologia è un'alleata. Non perché sia neutrale, perché non lo è quasi mai. Ma perché, una volta che hai un modo per decidere dove vuoi andare, qualunque strumento che ti ci porta prima lavora per te.»
 
 «E chi non ce l'ha?» chiese Matteo.
 
@@ -4092,7 +4092,7 @@ Matteo lo guardava con una certa curiosità. Non si aspettava, pensò Stefano, c
 
 ---
 
-«Il problema non è mai stato lo strumento» continuò Elio. «È l'ordine delle operazioni. Chi apre un'applicazione come la tua senza sapere che cosa vuole ottiene risposte bellissime e inutili. Chi la apre dopo aver scritto la sua riga del mattino ha già la direzione. E allo strumento resta soltanto il compito di farlo arrivare prima.»
+«Il problema non è mai stato lo strumento» continuò Aurelio. «È l'ordine delle operazioni. Chi apre un'applicazione come la tua senza sapere che cosa vuole ottiene risposte bellissime e inutili. Chi la apre dopo aver scritto la sua riga del mattino ha già la direzione. E allo strumento resta soltanto il compito di farlo arrivare prima.»
 
 Si girò verso Stefano.
 
@@ -4100,7 +4100,7 @@ Si girò verso Stefano.
 
 «E quindi?» chiese Stefano.
 
-«E quindi tre passaggi del metodo restano suoi. L'Aspirazione la sceglie lei. Il Problema lo riconosce lei, con quell'onestà scomoda che le ho chiesto il primo giorno. E il voto, il QuDiVi, lo assegna lei, perché nessun sistema esterno può sapere quanto la sua giornata sia stata degna di essere vissuta.» Elio fece una pausa. «Se delega questi tre passaggi non sta usando uno strumento. Sta lasciando che qualcosa decida al posto suo. E nessuna tecnologia può restituirle la vita che non ha scelto.»
+«E quindi tre passaggi del metodo restano suoi. L'Aspirazione la sceglie lei. Il Problema lo riconosce lei, con quell'onestà scomoda che le ho chiesto il primo giorno. E il voto, il QuDiVi, lo assegna lei, perché nessun sistema esterno può sapere quanto la sua giornata sia stata degna di essere vissuta.» Aurelio fece una pausa. «Se delega questi tre passaggi non sta usando uno strumento. Sta lasciando che qualcosa decida al posto suo. E nessuna tecnologia può restituirle la vita che non ha scelto.»
 
 «E il Progetto?»
 
@@ -4112,9 +4112,9 @@ Ivo, dal fondo del tavolo, si schiarì la voce.
 
 «Facciamo una prova?»
 
-Elio annuì. E fu così che, quella mattina di Pasquetta, padre e figlio si trovarono seduti uno accanto all'altro davanti allo stesso telefono.
+Aurelio annuì. E fu così che, quella mattina di Pasquetta, padre e figlio si trovarono seduti uno accanto all'altro davanti allo stesso telefono.
 
-«Il primo uso» disse Elio. «Sciogliere un problema che gira a vuoto. Stefano, qual è la riga della sera che si ripete da settimane? Quella che ha trovato nel rito.»
+«Il primo uso» disse Aurelio. «Sciogliere un problema che gira a vuoto. Stefano, qual è la riga della sera che si ripete da settimane? Quella che ha trovato nel rito.»
 
 Stefano esitò. Poi lo disse, davanti a suo figlio, e gli costò.
 
@@ -4122,39 +4122,39 @@ Stefano esitò. Poi lo disse, davanti a suo figlio, e gli costò.
 
 Matteo lo guardò sorpreso. Non sapeva niente del lavoro di suo padre, si rese conto Stefano. Niente.
 
-«La descriva con parole sue» disse Elio, «come la racconterebbe a un amico. Senza nomi, senza dettagli che permettano di riconoscere lei o i suoi clienti. Poi gli chieda di scomporla nelle sue parti minime e di proporle cinque possibili primi passi, ognuno da fare in meno di quindici minuti. Non chieda la soluzione. Chieda le alternative. La scelta resta sua.»
+«La descriva con parole sue» disse Aurelio, «come la racconterebbe a un amico. Senza nomi, senza dettagli che permettano di riconoscere lei o i suoi clienti. Poi gli chieda di scomporla nelle sue parti minime e di proporle cinque possibili primi passi, ognuno da fare in meno di quindici minuti. Non chieda la soluzione. Chieda le alternative. La scelta resta sua.»
 
 Matteo scrisse, sotto dettatura del padre. La risposta arrivò in pochi secondi. Cinque passi. Alcuni banali. Uno no: *Prima di fare il prossimo preventivo, scrivi il numero che ti sembra giusto e quello che ti senti a disagio a chiedere. Manda quello a disagio.*
 
 «Il terzo» disse Stefano, piano.
 
-«Lei l'ha scelto» disse Elio. «Non la macchina.»
+«Lei l'ha scelto» disse Aurelio. «Non la macchina.»
 
 ---
 
 «Il secondo uso» disse Ivo, che si stava divertendo, «è preparare il rito della domenica.»
 
-«Riassuma le sette righe della settimana» disse Elio. «E chieda quali temi ricorrenti ci sono, precisando: *senza darmi consigli, elencami soltanto gli schemi*. Quel divieto è la parte importante della richiesta. In quel momento le serve uno specchio, non un allenatore.»
+«Riassuma le sette righe della settimana» disse Aurelio. «E chieda quali temi ricorrenti ci sono, precisando: *senza darmi consigli, elencami soltanto gli schemi*. Quel divieto è la parte importante della richiesta. In quel momento le serve uno specchio, non un allenatore.»
 
 «E il terzo?» chiese Matteo.
 
-Elio si voltò verso di lui.
+Aurelio si voltò verso di lui.
 
-«Il terzo è per te. Imparare qualcosa più in fretta. È lo stesso ciclo del metodo di studio da cui è nato tutto questo, e un giorno te lo spiego per intero. Chiedi prima una panoramica generale. Poi provi a spiegarla con parole tue, e ti fai dire dove hai sbagliato. Infine ti fai fare qualche domanda di verifica.» Elio sorrise. «Usato così, uno strumento del genere non ti risparmia la fatica di capire. Ma la rende più efficiente. Usato per scrivere la bozza del tema, invece, ti risparmia proprio la fatica che ti serviva.»
+«Il terzo è per te. Imparare qualcosa più in fretta. È lo stesso ciclo del metodo di studio da cui è nato tutto questo, e un giorno te lo spiego per intero. Chiedi prima una panoramica generale. Poi provi a spiegarla con parole tue, e ti fai dire dove hai sbagliato. Infine ti fai fare qualche domanda di verifica.» Aurelio sorrise. «Usato così, uno strumento del genere non ti risparmia la fatica di capire. Ma la rende più efficiente. Usato per scrivere la bozza del tema, invece, ti risparmia proprio la fatica che ti serviva.»
 
 Matteo arrossì e non disse niente.
 
-«Queste tre richieste hanno una cosa in comune» disse Elio. «In tutte sei tu a portare il materiale grezzo. Le tue righe, il tuo problema, la tua comprensione parziale. Nessuna funziona se non hai già scritto qualcosa. Il metodo viene prima. Sempre.»
+«Queste tre richieste hanno una cosa in comune» disse Aurelio. «In tutte sei tu a portare il materiale grezzo. Le tue righe, il tuo problema, la tua comprensione parziale. Nessuna funziona se non hai già scritto qualcosa. Il metodo viene prima. Sempre.»
 
 ---
 
-«C'è una regola di prudenza» aggiunse Elio, guardando Stefano. «Le sue righe sono intime. Se le affida a uno strumento di questo tipo, ne scelga uno che le permetta di non conservarle e di non usarle per l'addestramento. E tolga nomi e dettagli che permetterebbero di riconoscere lei o altre persone. È la stessa riservatezza del taccuino nel cassetto. Vale per la stessa ragione. Senza la certezza che nessuno leggerà, si smette di scrivere con onestà.»
+«C'è una regola di prudenza» aggiunse Aurelio, guardando Stefano. «Le sue righe sono intime. Se le affida a uno strumento di questo tipo, ne scelga uno che le permetta di non conservarle e di non usarle per l'addestramento. E tolga nomi e dettagli che permetterebbero di riconoscere lei o altre persone. È la stessa riservatezza del taccuino nel cassetto. Vale per la stessa ragione. Senza la certezza che nessuno leggerà, si smette di scrivere con onestà.»
 
 Ivo annuì e mostrò a Stefano dove si disattivava la memoria delle conversazioni.
 
 ---
 
-«Ci sono due errori che vedo fare di continuo» disse Elio. «Conviene conoscerli prima di cominciare.»
+«Ci sono due errori che vedo fare di continuo» disse Aurelio. «Conviene conoscerli prima di cominciare.»
 
 Si rivolse a Matteo.
 
@@ -4164,7 +4164,7 @@ Matteo rise, ma lo fece. La risposta arrivò, lunga, ben scritta, piena di parol
 
 «Bello» disse alla fine. «Ma potrebbe essere di chiunque.»
 
-«Ecco. Riceverai sempre una risposta plausibile, ben scritta e del tutto estranea a te. Ti sembrerà buona proprio perché è generica.» Elio bevve un sorso d'acqua. «Le risposte generiche sembrano sempre sagge. Finché non provi ad applicarle.»
+«Ecco. Riceverai sempre una risposta plausibile, ben scritta e del tutto estranea a te. Ti sembrerà buona proprio perché è generica.» Aurelio bevve un sorso d'acqua. «Le risposte generiche sembrano sempre sagge. Finché non provi ad applicarle.»
 
 «E il secondo?»
 
@@ -4172,17 +4172,17 @@ Matteo rise, ma lo fece. La risposta arrivò, lunga, ben scritta, piena di parol
 
 «Come il linguaggio entusiastico» disse Stefano. «Dell'annuncio di Mela.»
 
-«Parente stretto. In tutti e due i casi la forma prende il posto della sostanza.» Elio si fece serio. «E devo aggiungere una precisazione, per onestà. Gli strumenti di oggi, per quanto potenti, possono inventare con grande sicurezza una citazione, un numero o una ricerca che non esistono. Se una macchina le propone un dato, un nome o una fonte, li verifichi prima di farci qualcosa. La domanda non è se suona bene. È se lo può controllare.»
+«Parente stretto. In tutti e due i casi la forma prende il posto della sostanza.» Aurelio si fece serio. «E devo aggiungere una precisazione, per onestà. Gli strumenti di oggi, per quanto potenti, possono inventare con grande sicurezza una citazione, un numero o una ricerca che non esistono. Se una macchina le propone un dato, un nome o una fonte, li verifichi prima di farci qualcosa. La domanda non è se suona bene. È se lo può controllare.»
 
 Matteo, per prova, chiese all'applicazione chi fosse l'autore del testo *Se mi ami, non piangere*. La risposta arrivò sicura, elegante, con le date: *Sant'Agostino d'Ippona*.
 
-Stefano e Elio si guardarono, e scoppiarono a ridere insieme. Matteo non capiva.
+Stefano e Aurelio si guardarono, e scoppiarono a ridere insieme. Matteo non capiva.
 
 «Te lo spiego in macchina» disse Stefano.
 
 ---
 
-Più tardi, quando il sole era alto e Ivo se n'era andato, Elio parlò di una cosa che, disse, non esisteva ancora del tutto, ma si stava avvicinando in fretta.
+Più tardi, quando il sole era alto e Ivo se n'era andato, Aurelio parlò di una cosa che, disse, non esisteva ancora del tutto, ma si stava avvicinando in fretta.
 
 «Immagini uno strumento che, con il suo permesso e sotto il suo controllo, abbia accesso a tutto il materiale che questo metodo le fa produrre nel tempo. Tre anni di righe del mattino e della sera, i suoi numeri, i suoi riti, i suoi mesi. Sarebbe un archivio onesto della sua vita quotidiana, scritto da lei. Lo chiami, se vuole, un maggiordomo digitale. Non è un oracolo, e non decide niente. Fa una cosa sola: le restituisce una sintesi della sua vita che da solo farebbe fatica a vedere.»
 
@@ -4192,27 +4192,27 @@ Più tardi, quando il sole era alto e Ivo se n'era andato, Elio parlò di una co
 
 Stefano pensò alla parola *papà*, trovata a gennaio dopo un'ora e mezza di rilettura.
 
-«Nessuna di queste frasi è un consiglio» disse Elio. «Sono fatti sulla sua vita, estratti da dati che ha prodotto lei. Ed è forse la cosa più utile che questa tecnologia possa fare. Non dirle che cosa fare, ma mostrarle con precisione che cosa ha fatto. Però un archivio così intimo merita le stesse cautele di prima, e forse di più. Che cosa entra, chi può leggerlo e quando si cancella, deve poterlo decidere lei.»
+«Nessuna di queste frasi è un consiglio» disse Aurelio. «Sono fatti sulla sua vita, estratti da dati che ha prodotto lei. Ed è forse la cosa più utile che questa tecnologia possa fare. Non dirle che cosa fare, ma mostrarle con precisione che cosa ha fatto. Però un archivio così intimo merita le stesse cautele di prima, e forse di più. Che cosa entra, chi può leggerlo e quando si cancella, deve poterlo decidere lei.»
 
 «E se non ho scritto niente?»
 
-Elio sorrise, come se aspettasse proprio quella domanda.
+Aurelio sorrise, come se aspettasse proprio quella domanda.
 
 «È questo il presupposto. È il motivo per cui ne parliamo. Quel maggiordomo non può funzionare senza i suoi dati. E i suoi dati esistono soltanto se lei scrive le sue righe.» Guardò Matteo. «Chi comincia oggi a scrivere un minuto al giorno, fra tre anni avrà un patrimonio su cui lavorare. Chi non comincia avrà, nello stesso momento, uno strumento potentissimo puntato sul vuoto.»
 
 ---
 
-Mentre uscivano dal cancello, Elio trattenne Stefano un momento. Matteo era già sul lungomare, con le cuffie.
+Mentre uscivano dal cancello, Aurelio trattenne Stefano un momento. Matteo era già sul lungomare, con le cuffie.
 
-«Resta la parte che conta più di tutte le tecniche» disse Elio piano. «Fin qui abbiamo parlato di lei. Ma una crescita che finisce dentro il suo taccuino è una crescita a metà.»
+«Resta la parte che conta più di tutte le tecniche» disse Aurelio piano. «Fin qui abbiamo parlato di lei. Ma una crescita che finisce dentro il suo taccuino è una crescita a metà.»
 
 «La comunità.»
 
-«È il punto di arrivo naturale di tutto. Una macchina può rileggere le sue righe. Soltanto una persona può guardarla negli occhi e chiederle com'è andata.» Elio indicò Matteo con il mento. «Quindi la domanda che le lascio è semplice. Che cosa fa di quello che ha capito?»
+«È il punto di arrivo naturale di tutto. Una macchina può rileggere le sue righe. Soltanto una persona può guardarla negli occhi e chiederle com'è andata.» Aurelio indicò Matteo con il mento. «Quindi la domanda che le lascio è semplice. Che cosa fa di quello che ha capito?»
 
 ---
 
-In macchina, sulla strada per Torraca, Stefano raccontò a Matteo la storia del testo attribuito a Sant'Agostino. Padre Giacomo Perico, il 2001, l'amico di Elio morto a quarantun anni. Matteo ascoltò senza interrompere.
+In macchina, sulla strada per Torraca, Stefano raccontò a Matteo la storia del testo attribuito a Sant'Agostino. Padre Giacomo Perico, il 2001, l'amico di Aurelio morto a quarantun anni. Matteo ascoltò senza interrompere.
 
 Poi, a un semaforo di Sapri, disse:
 
@@ -4230,7 +4230,7 @@ Stefano non rispose. Guardò la strada. Il semaforo diventò verde, e qualcuno d
 
 Martedì mandò il preventivo a disagio. Il cliente, un'azienda agricola di Torre Orsaia, lo accettò in un'ora, senza discutere.
 
-Quella sera, nella riga della sera, Stefano scrisse il nome della persona con cui avrebbe parlato di quello che aveva scoperto. Non era Elio, e non era Giulia.
+Quella sera, nella riga della sera, Stefano scrisse il nome della persona con cui avrebbe parlato di quello che aveva scoperto. Non era Aurelio, e non era Giulia.
 
 *Matteo.*
 
@@ -4270,19 +4270,19 @@ Stefano tornò a casa e rimase seduto in macchina, davanti al portone, per venti
 
 ---
 
-«Una telefonata di poco conto» disse Elio, e sorrideva in un modo che Stefano non gli aveva mai visto, quasi commosso. «A gennaio. Per chiudere una pratica.»
+«Una telefonata di poco conto» disse Aurelio, e sorrideva in un modo che Stefano non gli aveva mai visto, quasi commosso. «A gennaio. Per chiudere una pratica.»
 
-Erano sulla terrazza, il giorno dopo, sotto il pergolato che rimetteva le prime foglie. Elio era su una sedia a sdraio con una coperta sulle gambe, anche se faceva caldo.
+Erano sulla terrazza, il giorno dopo, sotto il pergolato che rimetteva le prime foglie. Aurelio era su una sedia a sdraio con una coperta sulle gambe, anche se faceva caldo.
 
 «Le è capitato di fare una telefonata di poco conto, giusto per chiudere una pratica, e di ritrovarsi settimane dopo con un'occasione che non aveva niente a che fare con il motivo di quella telefonata. Non è soltanto fortuna. È il modo in cui funziona la realtà. Non a compartimenti stagni, ma come un flusso in cui ogni azione, anche la più piccola, resta aperta e continua a produrre conseguenze molto dopo che hai smesso di pensarci.»
 
 «Mi sembra fortuna.»
 
-«Machiavelli, nel 1513, si chiedeva quanto delle nostre vicende dipenda dalla fortuna. E rispondeva con prudenza: forse la metà, o poco meno. Il resto è nostro.» Elio si sistemò la coperta. «Questa storia parla di quell'altra metà. E di come usarla per dare ai cigni d'oro, quelli di cui le ho parlato il primo giorno in barca, più occasioni di arrivare.»
+«Machiavelli, nel 1513, si chiedeva quanto delle nostre vicende dipenda dalla fortuna. E rispondeva con prudenza: forse la metà, o poco meno. Il resto è nostro.» Aurelio si sistemò la coperta. «Questa storia parla di quell'altra metà. E di come usarla per dare ai cigni d'oro, quelli di cui le ho parlato il primo giorno in barca, più occasioni di arrivare.»
 
 ---
 
-«Questo fenomeno ha anche un nome scientifico» disse Elio. «Nel 1999 Kathleen Mitchell, Al Levin e lo psicologo John Krumboltz, uno dei grandi studiosi dell'orientamento professionale, pubblicarono sul *Journal of Counseling & Development* un articolo dedicato a quella che chiamarono casualità pianificata. *Planned happenstance.* Partivano da un'osservazione che chiunque si occupi di orientamento conosce bene. Moltissime svolte importanti non nascono da un piano. Nascono da eventi non previsti che le persone hanno saputo trasformare in occasione.»
+«Questo fenomeno ha anche un nome scientifico» disse Aurelio. «Nel 1999 Kathleen Mitchell, Al Levin e lo psicologo John Krumboltz, uno dei grandi studiosi dell'orientamento professionale, pubblicarono sul *Journal of Counseling & Development* un articolo dedicato a quella che chiamarono casualità pianificata. *Planned happenstance.* Partivano da un'osservazione che chiunque si occupi di orientamento conosce bene. Moltissime svolte importanti non nascono da un piano. Nascono da eventi non previsti che le persone hanno saputo trasformare in occasione.»
 
 «E come si fa a trasformarli?»
 
@@ -4290,7 +4290,7 @@ Erano sulla terrazza, il giorno dopo, sotto il pergolato che rimetteva le prime 
 
 Stefano li ripercorse uno per uno. Il panificio di Agropoli, dove era andato per curiosità. Il rifiuto della banca di Battipaglia, a luglio, e il fatto di aver continuato. Il cambio di Aspirazione al fiume, a fine agosto. Il preventivo a disagio. La telefonata di gennaio.
 
-«Adesso noti una cosa» disse Elio. «Quei cinque atteggiamenti sono proprio quelli che il suo minuto al giorno chiama in causa. La riga del mattino, che le chiede di scegliere una direzione senza aspettare le condizioni perfette, allena la persistenza e il rischio. La riga della sera, che le chiede di osservare invece di giudicare, allena la curiosità e la flessibilità. E tutto l'impianto allena l'ottimismo pratico di cui parlano gli autori. Non la convinzione che andrà tutto bene. La disposizione a cercare il lato utile anche negli eventi neutri o sfavorevoli.»
+«Adesso noti una cosa» disse Aurelio. «Quei cinque atteggiamenti sono proprio quelli che il suo minuto al giorno chiama in causa. La riga del mattino, che le chiede di scegliere una direzione senza aspettare le condizioni perfette, allena la persistenza e il rischio. La riga della sera, che le chiede di osservare invece di giudicare, allena la curiosità e la flessibilità. E tutto l'impianto allena l'ottimismo pratico di cui parlano gli autori. Non la convinzione che andrà tutto bene. La disposizione a cercare il lato utile anche negli eventi neutri o sfavorevoli.»
 
 Poi alzò un dito.
 
@@ -4298,7 +4298,7 @@ Poi alzò un dito.
 
 ---
 
-«C'è però un errore che rovina tutto questo» disse Elio. «Valutare ogni azione in base al suo ritorno immediato. Chi ci cade abbandona presto le piccole azioni che non danno risultati entro pochi giorni, e le giudica inutili. Ma il valore di molte piccole azioni si vede mesi dopo. E spesso in una forma diversa da quella che avevi immaginato.»
+«C'è però un errore che rovina tutto questo» disse Aurelio. «Valutare ogni azione in base al suo ritorno immediato. Chi ci cade abbandona presto le piccole azioni che non danno risultati entro pochi giorni, e le giudica inutili. Ma il valore di molte piccole azioni si vede mesi dopo. E spesso in una forma diversa da quella che avevi immaginato.»
 
 Stefano pensò all'orto, a suo padre sulla sedia di plastica.
 
@@ -4310,7 +4310,7 @@ Stefano pensò all'orto, a suo padre sulla sedia di plastica.
 
 «Ecco. Un contadino non pianta un seme aspettandosi il raccolto la settimana dopo. Sa che fra la semina e il raccolto c'è un tempo necessario, durante il quale il seme lavora sotto la superficie, invisibile, prima che qualcosa diventi visibile. Ogni riga che scrive è un seme. E il frutto, se arriverà, chiederà un tempo che non coincide quasi mai con l'immediatezza a cui siamo abituati.»
 
-Elio si fece serio.
+Aurelio si fece serio.
 
 «E anche qui voglio essere onesto, perché non voglio venderle magie. Non tutte le righe genereranno qualcosa. Alcune resteranno isolate, senza collegarsi a niente, ed è normale. Il punto non è che ogni riga debba produrre conseguenze. È che lei smetta di giudicarla dal suo effetto immediato. Alcune sono semi che non germoglieranno mai. Altre, identiche sulla carta, diventeranno la base di qualcosa di importante. Non ha modo di sapere in anticipo quali sono quali. Ed è per questo che la costanza conta più della scelta accurata delle azioni che meritano di essere scritte.»
 
@@ -4330,15 +4330,15 @@ Un nome che ricompariva a distanza di mesi. Un gesto che gli era sembrato insign
 
 ---
 
-«Se nessuna azione finisce dove sembra finire» disse Elio il giorno dopo, «la domanda diventa un'altra. Quante ne ha lasciate aperte?»
+«Se nessuna azione finisce dove sembra finire» disse Aurelio il giorno dopo, «la domanda diventa un'altra. Quante ne ha lasciate aperte?»
 
 «Un altro nome scientifico?»
 
-«Questa volta di uno studioso dell'incertezza. Nassim Nicholas Taleb, quello che ha reso celebre l'espressione cigno nero. Nel libro *Antifragile*, del 2012, la chiama opzionalità.» Elio cercò le parole. «In sintesi: non serve prevedere con esattezza che cosa succederà, perché quasi sempre è impossibile. Serve costruire una situazione in cui, qualunque cosa accada, lei abbia più da guadagnare che da perdere. Più porte aperte davanti che porte chiuse alle spalle.»
+«Questa volta di uno studioso dell'incertezza. Nassim Nicholas Taleb, quello che ha reso celebre l'espressione cigno nero. Nel libro *Antifragile*, del 2012, la chiama opzionalità.» Aurelio cercò le parole. «In sintesi: non serve prevedere con esattezza che cosa succederà, perché quasi sempre è impossibile. Serve costruire una situazione in cui, qualunque cosa accada, lei abbia più da guadagnare che da perdere. Più porte aperte davanti che porte chiuse alle spalle.»
 
 «Tipo fare tante cose diverse?»
 
-«No, ed è la sfumatura che viene fraintesa più spesso. Non si tratta di fare tante cose sperando che qualcuna funzioni. Quello è un modo dispersivo di consumarsi. L'opzionalità riguarda le piccole azioni a basso costo che, se vanno bene, aprono possibilità sproporzionate rispetto a quello che sono costate. È un'asimmetria precisa. Una perdita limitata se va male. Un guadagno senza un tetto prevedibile se va bene.» Elio sorrise. «La sua telefonata di gennaio è costata due minuti. Gli auguri di Pasqua, mezz'ora. La riga del mattino costa trenta secondi. E il beneficio che accumulano nel tempo, attraverso le porte che aprono, non ha un limite che si possa stabilire in anticipo.»
+«No, ed è la sfumatura che viene fraintesa più spesso. Non si tratta di fare tante cose sperando che qualcuna funzioni. Quello è un modo dispersivo di consumarsi. L'opzionalità riguarda le piccole azioni a basso costo che, se vanno bene, aprono possibilità sproporzionate rispetto a quello che sono costate. È un'asimmetria precisa. Una perdita limitata se va male. Un guadagno senza un tetto prevedibile se va bene.» Aurelio sorrise. «La sua telefonata di gennaio è costata due minuti. Gli auguri di Pasqua, mezz'ora. La riga del mattino costa trenta secondi. E il beneficio che accumulano nel tempo, attraverso le porte che aprono, non ha un limite che si possa stabilire in anticipo.»
 
 «E se le porte non portano da nessuna parte?»
 
@@ -4348,11 +4348,11 @@ Un nome che ricompariva a distanza di mesi. Un gesto che gli era sembrato insign
 
 «Ma allora» disse Stefano, «stare aperti, agire senza sapere dove si arriva, fidarsi del processo più che del piano. Non è il contrario dell'Aspirazione chiara?»
 
-«È un'obiezione sensata. E la risposta è no.» Elio indicò il golfo. «L'Aspirazione le dà la direzione. È il porto verso cui vuole navigare, quello senza il quale, come diceva Seneca, nessun vento è favorevole. L'opzionalità riguarda il modo in cui ci naviga. Non seguendo una rotta rigida decisa in ogni dettaglio, ma restando abbastanza flessibile da cogliere le correnti favorevoli lungo il tragitto. Le servono tutte e due. Senza Aspirazione vaga senza meta. Senza opzionalità si spezza al primo imprevisto.»
+«È un'obiezione sensata. E la risposta è no.» Aurelio indicò il golfo. «L'Aspirazione le dà la direzione. È il porto verso cui vuole navigare, quello senza il quale, come diceva Seneca, nessun vento è favorevole. L'opzionalità riguarda il modo in cui ci naviga. Non seguendo una rotta rigida decisa in ogni dettaglio, ma restando abbastanza flessibile da cogliere le correnti favorevoli lungo il tragitto. Le servono tutte e due. Senza Aspirazione vaga senza meta. Senza opzionalità si spezza al primo imprevisto.»
 
 ---
 
-«Le lascio la distinzione che vorrei le restasse di più» disse Elio, prima che Stefano andasse via. «Quella fra la fortuna e le porte socchiuse.»
+«Le lascio la distinzione che vorrei le restasse di più» disse Aurelio, prima che Stefano andasse via. «Quella fra la fortuna e le porte socchiuse.»
 
 «Sono la stessa cosa, no?»
 
@@ -4360,7 +4360,7 @@ Un nome che ricompariva a distanza di mesi. Un gesto che gli era sembrato insign
 
 Gli raccontò di uno psicologo inglese, Richard Wiseman, che in un libro del 2003, *The Luck Factor*, aveva raccontato un esperimento. Aveva chiesto a persone che si definivano fortunate e ad altre che si definivano sfortunate di contare le fotografie di un giornale. Nella seconda pagina, a caratteri enormi, un annuncio diceva di smettere di contare, perché il numero delle fotografie era scritto lì.
 
-«I fortunati tendevano ad accorgersene in pochi secondi. Gli sfortunati, concentrati sul compito, tendevano a non vederlo.» Elio alzò il dito. «Per onestà: è un esperimento raccontato in un libro divulgativo, non una serie di studi controllati su larga scala. Non dimostra che la fortuna non esista. Mostra però che una parte di quello che chiamiamo fortuna è la capacità di accorgersi di una porta aperta.»
+«I fortunati tendevano ad accorgersene in pochi secondi. Gli sfortunati, concentrati sul compito, tendevano a non vederlo.» Aurelio alzò il dito. «Per onestà: è un esperimento raccontato in un libro divulgativo, non una serie di studi controllati su larga scala. Non dimostra che la fortuna non esista. Mostra però che una parte di quello che chiamiamo fortuna è la capacità di accorgersi di una porta aperta.»
 
 Si strinse nella coperta.
 
@@ -4368,11 +4368,11 @@ Si strinse nella coperta.
 
 ---
 
-Per raccogliere un'Opportunità, gli disse Elio, servivano tre passaggi. Stefano li applicò a Pina Galdi, quella sera, sul taccuino.
+Per raccogliere un'Opportunità, gli disse Aurelio, servivano tre passaggi. Stefano li applicò a Pina Galdi, quella sera, sul taccuino.
 
 *Primo: riconoscerla.* Era arrivata travestita da telefonata di una vecchia cliente, mentre aveva le mani nella terra. Facile da liquidare con un *ci penso*.
 
-*Secondo: chiedersi perché adesso.* Elio gli aveva detto che era la domanda che quasi nessuno si fa, e che valeva più della prima. Quale piccola azione, ripetuta nelle settimane passate, aveva reso possibile che quella porta si aprisse proprio ora? Stefano lo scrisse: *la telefonata di gennaio. gli auguri di Pasqua. il panificio, Laurito, l'officina di Gino: tre persone che hanno detto a Pina «parla come noi». nove mesi di righe.* Era uno schema, non un caso. E uno schema riconosciuto si poteva ripetere.
+*Secondo: chiedersi perché adesso.* Aurelio gli aveva detto che era la domanda che quasi nessuno si fa, e che valeva più della prima. Quale piccola azione, ripetuta nelle settimane passate, aveva reso possibile che quella porta si aprisse proprio ora? Stefano lo scrisse: *la telefonata di gennaio. gli auguri di Pasqua. il panificio, Laurito, l'officina di Gino: tre persone che hanno detto a Pina «parla come noi». nove mesi di righe.* Era uno schema, non un caso. E uno schema riconosciuto si poteva ripetere.
 
 *Terzo: trasformarla in una nuova Aspirazione.* Un'Opportunità trattata come un punto di arrivo si consuma in fretta. Trattata come un punto di partenza, diventa la direzione del giro successivo. Stefano scrisse:
 
@@ -4382,13 +4382,13 @@ La quarta parola, pensò, non era la fine del metodo. Era l'ingresso del giro su
 
 ---
 
-L'ultimo giovedì di aprile, al bar, prima della comunità, fece il suo momento mensile con un caffè. Aggiunse una pagina che Elio gli aveva chiesto: l'inventario delle porte che stava tenendo socchiuse. Non un elenco lungo, due o tre voci, ciascuna con quello che era e quanto gli costava tenerla aperta.
+L'ultimo giovedì di aprile, al bar, prima della comunità, fece il suo momento mensile con un caffè. Aggiunse una pagina che Aurelio gli aveva chiesto: l'inventario delle porte che stava tenendo socchiuse. Non un elenco lungo, due o tre voci, ciascuna con quello che era e quanto gli costava tenerla aperta.
 
 *Gli auguri ai vecchi clienti, due volte l'anno. Costo: un'ora.*
 *Il giovedì con Ivo, quando ha tempo, per imparare a usare meglio i fogli di calcolo e l'intelligenza artificiale. Costo: due ore al mese.*
 *Matteo. Una domanda al giorno che non riguardi la scuola. Costo: niente. Vale tutto.*
 
-Rilesse l'inventario. L'Opportunità, gli aveva detto Elio, non arriva mai dal nulla. Arriva da un terreno che hai preparato tu.
+Rilesse l'inventario. L'Opportunità, gli aveva detto Aurelio, non arriva mai dal nulla. Arriva da un terreno che hai preparato tu.
 
 A giugno, a Torraca, Vincenzo raccolse i primi fagiolini. Su quaranta buchi ne erano nati trentuno. Gli altri nove, disse, erano semi che non volevano.
 
@@ -4412,31 +4412,31 @@ La mattina dopo la scena era passata, ma la decisione restava sospesa. Al suo po
 
 ---
 
-«Seneca lo scriveva a Lucilio duemila anni fa» disse Elio. «Le cose che ci spaventano sono più numerose di quelle che ci schiacciano davvero. E soffriamo più spesso nell'immaginazione che nella realtà.»
+«Seneca lo scriveva a Lucilio duemila anni fa» disse Aurelio. «Le cose che ci spaventano sono più numerose di quelle che ci schiacciano davvero. E soffriamo più spesso nell'immaginazione che nella realtà.»
 
-Era il primo maggio. Il golfo era pieno di barche, la prima domenica tiepida dell'anno. Elio non era uscito in mare: stava sulla terrazza, e c'era Rosa con lui, che era passata a misurargli la pressione, e che quando arrivò Stefano raccolse in fretta lo sfigmomanometro nella borsa.
+Era il primo maggio. Il golfo era pieno di barche, la prima domenica tiepida dell'anno. Aurelio non era uscito in mare: stava sulla terrazza, e c'era Rosa con lui, che era passata a misurargli la pressione, e che quando arrivò Stefano raccolse in fretta lo sfigmomanometro nella borsa.
 
 «Tutto bene?» chiese Stefano.
 
-«Tutto bene» disse Elio, troppo in fretta. Rosa non disse niente.
+«Tutto bene» disse Aurelio, troppo in fretta. Rosa non disse niente.
 
 Stefano gli raccontò di Pina, della risposta che non arrivava, della sala con i trentotto produttori.
 
-«La parte di lei che rema contro conosce benissimo questo meccanismo» disse Elio. «Non la ferma mai dicendole che non ce la farà. Sarebbe troppo scoperto, e lei reagirebbe. Fa una cosa più raffinata. Le fa vedere in anticipo la scena in cui ha già fallito. La telefonata che va male. La faccia di chi le dice di no. La sala del frantoio con le risate in fondo.» Fece una pausa. «Poi la lascia decidere. E a quel punto rinunciare non sembra paura. Sembra prudenza.»
+«La parte di lei che rema contro conosce benissimo questo meccanismo» disse Aurelio. «Non la ferma mai dicendole che non ce la farà. Sarebbe troppo scoperto, e lei reagirebbe. Fa una cosa più raffinata. Le fa vedere in anticipo la scena in cui ha già fallito. La telefonata che va male. La faccia di chi le dice di no. La sala del frantoio con le risate in fondo.» Fece una pausa. «Poi la lascia decidere. E a quel punto rinunciare non sembra paura. Sembra prudenza.»
 
 «Io non sto rinunciando. Sto solo aspettando il momento giusto.»
 
-Elio sorrise, triste.
+Aurelio sorrise, triste.
 
 «È proprio questo. Le devo dire una cosa scomoda, e preferisco farlo apertamente. Il suo problema più grande, con ogni probabilità, non è la mancanza di tempo. Non è la partita IVA, né suo padre, né i fondi europei. È che una parte di lei rema contro, e lo fa in silenzio. Si chiama autosabotaggio. E non ha l'aspetto che immagina. Non urla mai. Sussurra cose ragionevoli.»
 
 ---
 
-«*Comincio lunedì*» disse Elio. «*Prima devo sistemare quest'altra cosa. Non è il momento giusto. Tanto lo so già come va a finire.* Ogni frase, presa da sola, sembra sensata. Perfino saggia. Messe in fila per vent'anni, sono una vita che non hai vissuto.»
+«*Comincio lunedì*» disse Aurelio. «*Prima devo sistemare quest'altra cosa. Non è il momento giusto. Tanto lo so già come va a finire.* Ogni frase, presa da sola, sembra sensata. Perfino saggia. Messe in fila per vent'anni, sono una vita che non hai vissuto.»
 
 Rosa, che stava per andarsene, si fermò sulla soglia del cancello.
 
-«E noti una cosa» continuò Elio. «Nessuna di quelle frasi le chiede di rinunciare. Le chiedono soltanto di rimandare. Che è molto più facile da concedere. Rinunciare fa male una volta. Rimandare non fa male mai. Fino al giorno in cui si accorge di averlo fatto per vent'anni.»
+«E noti una cosa» continuò Aurelio. «Nessuna di quelle frasi le chiede di rinunciare. Le chiedono soltanto di rimandare. Che è molto più facile da concedere. Rinunciare fa male una volta. Rimandare non fa male mai. Fino al giorno in cui si accorge di averlo fatto per vent'anni.»
 
 Si alzò, con fatica, e andò alla ringhiera della terrazza, dove c'era un vecchio cancelletto di ferro che dava sul giardino di sotto. Lo toccò con la mano. Il ferro era coperto di ruggine, a scaglie, color mattone.
 
@@ -4446,7 +4446,7 @@ Si alzò, con fatica, e andò alla ringhiera della terrazza, dove c'era un vecch
 
 «E chi non si accorge di niente?» chiese Rosa, dalla soglia. «Mio fratello, per dire. Dice sempre che lui sta benissimo, che queste cose sono per i deboli.»
 
-«È il punto più delicato» disse Elio. «Chi non ha mai fatto un lavoro su di sé è spesso convinto di non averne bisogno. E quella convinzione è proprio il sintomo. Non è arroganza, nel senso comune della parola. È autoprotezione. Chi non si guarda allo specchio non trova mai difetti, e vive tranquillo. Il conto non arriva oggi. Arriva tutto insieme, molti anni dopo.» Guardò Stefano. «Lei, però, a giugno ha accettato di salire su una barca con uno sconosciuto. Ha già fatto la cosa che chi si protegge non fa mai. Ha ammesso che le mancava qualcosa. È un gesto piccolo e scomodo, e vale più di molte lezioni.»
+«È il punto più delicato» disse Aurelio. «Chi non ha mai fatto un lavoro su di sé è spesso convinto di non averne bisogno. E quella convinzione è proprio il sintomo. Non è arroganza, nel senso comune della parola. È autoprotezione. Chi non si guarda allo specchio non trova mai difetti, e vive tranquillo. Il conto non arriva oggi. Arriva tutto insieme, molti anni dopo.» Guardò Stefano. «Lei, però, a giugno ha accettato di salire su una barca con uno sconosciuto. Ha già fatto la cosa che chi si protegge non fa mai. Ha ammesso che le mancava qualcosa. È un gesto piccolo e scomodo, e vale più di molte lezioni.»
 
 ---
 
@@ -4460,11 +4460,11 @@ Ci fu un silenzio. Mela abbassò gli occhi. Ivo guardò Rosa con interesse.
 
 «Come?»
 
-«È una cosa che mi ha detto Elio a novembre» disse Rosa. «Quando mi lamentavo della caposala. Le nostre giornate contengono tre tipi di cose: azioni positive, azioni negative, e inazione. La lamentela sembra la prima, perché sfogarsi fa bene, si dice. Ma in realtà è la terza. Chi si lamenta usa il tempo per descrivere il problema invece che per spostarlo.»
+«È una cosa che mi ha detto Aurelio a novembre» disse Rosa. «Quando mi lamentavo della caposala. Le nostre giornate contengono tre tipi di cose: azioni positive, azioni negative, e inazione. La lamentela sembra la prima, perché sfogarsi fa bene, si dice. Ma in realtà è la terza. Chi si lamenta usa il tempo per descrivere il problema invece che per spostarlo.»
 
 Stefano aprì la bocca, la richiuse.
 
-«Sull'idea che sfogarsi faccia sempre bene» disse Elio dal suo angolo, «la ricerca invita alla prudenza. Nel 2002 lo psicologo Brad Bushman pubblicò sul *Personality and Social Psychology Bulletin* un esperimento eloquente. Alcune persone, dopo essere state provocate, prendevano a pugni un sacco pensando a chi le aveva offese. Ne uscivano più arrabbiate e più aggressive di chi, nel frattempo, era rimasto seduto tranquillo per un paio di minuti.» Alzò il dito. «Per onestà: lo studio riguarda la rabbia, non la lamentela in generale. Non dimostra che parlare di un problema faccia male. Mostra però che rimuginarlo non lo sposta. E a volte lo ingrandisce.»
+«Sull'idea che sfogarsi faccia sempre bene» disse Aurelio dal suo angolo, «la ricerca invita alla prudenza. Nel 2002 lo psicologo Brad Bushman pubblicò sul *Personality and Social Psychology Bulletin* un esperimento eloquente. Alcune persone, dopo essere state provocate, prendevano a pugni un sacco pensando a chi le aveva offese. Ne uscivano più arrabbiate e più aggressive di chi, nel frattempo, era rimasto seduto tranquillo per un paio di minuti.» Alzò il dito. «Per onestà: lo studio riguarda la rabbia, non la lamentela in generale. Non dimostra che parlare di un problema faccia male. Mostra però che rimuginarlo non lo sposta. E a volte lo ingrandisce.»
 
 «Il patto è questo» disse Rosa, guardando Stefano. «Ogni volta che ti accorgi che stai per lamentarti, riconosci il momento. Non devi reprimerlo. Nessuno ti sta dicendo di stare zitto, né che la tua fatica non è vera. Devi solo accorgertene, e farti una domanda. *Sto descrivendo, o sto spostando?*»
 
@@ -4472,7 +4472,7 @@ Stefano rimase in silenzio a lungo.
 
 «E se non basta?» chiese.
 
-«Allora te ne fai una seconda» disse Elio. «Viene dal patto che abbiamo fatto in barca, il primo mese. *Qual è la mia parte in questa storia?* Non di chi è la colpa, perché quella domanda non ha mai prodotto niente. La sua parte. C'è quasi sempre, anche quando è piccola, anche quando il torto è tutto dall'altra parte. Fanno eccezione i casi di violenza e di abuso: lì l'unica parte che le spetta è chiedere aiuto. Ma nel momento in cui la trova, la lamentela si scioglie da sola. Non perché ha smesso di avere ragione. Perché ha di nuovo qualcosa da fare.»
+«Allora te ne fai una seconda» disse Aurelio. «Viene dal patto che abbiamo fatto in barca, il primo mese. *Qual è la mia parte in questa storia?* Non di chi è la colpa, perché quella domanda non ha mai prodotto niente. La sua parte. C'è quasi sempre, anche quando è piccola, anche quando il torto è tutto dall'altra parte. Fanno eccezione i casi di violenza e di abuso: lì l'unica parte che le spetta è chiedere aiuto. Ma nel momento in cui la trova, la lamentela si scioglie da sola. Non perché ha smesso di avere ragione. Perché ha di nuovo qualcosa da fare.»
 
 ---
 
@@ -4490,7 +4490,7 @@ Stefano sorrise, suo malgrado.
 
 «Lunedì scrivo a Ruggiero.»
 
-«È la prima volta che quel problema si muove» disse Elio. «Non è detto che vada bene. Ma si muove. Stava per raccontarla per la quinta volta, e questi venti minuti sarebbero finiti dove sono finiti gli ottanta delle volte prima. Invece è diventata una frase sola.»
+«È la prima volta che quel problema si muove» disse Aurelio. «Non è detto che vada bene. Ma si muove. Stava per raccontarla per la quinta volta, e questi venti minuti sarebbero finiti dove sono finiti gli ottanta delle volte prima. Invece è diventata una frase sola.»
 
 Lunedì Stefano scrisse a Ruggiero. Ruggiero rispose il mercoledì, con una lettera di referenze di una pagina, calda, precisa, e due righe in fondo: *La tua mail a Ferri, comunque, l'abbiamo letta in tanti. Diceva quello che pensavamo tutti. Forse con qualche parola di troppo.*
 
@@ -4512,7 +4512,7 @@ Stefano non disse niente. Non riusciva.
 
 ---
 
-«È una cosa onesta da dire, e riguarda un limite del metodo» disse Elio, mentre gli altri si alzavano. «È costruito per essere usato da soli. Ma c'è una cosa che riguarda tutti, me compreso. Ognuno di noi ha dei punti ciechi. Zone della propria vita che non riesce a vedere, per quanto sia intelligente e in buona fede.»
+«È una cosa onesta da dire, e riguarda un limite del metodo» disse Aurelio, mentre gli altri si alzavano. «È costruito per essere usato da soli. Ma c'è una cosa che riguarda tutti, me compreso. Ognuno di noi ha dei punti ciechi. Zone della propria vita che non riesce a vedere, per quanto sia intelligente e in buona fede.»
 
 Si appoggiò al tavolo.
 
@@ -4520,7 +4520,7 @@ Si appoggiò al tavolo.
 
 Fuori, sul lungomare, una macchina fece manovra per parcheggiare, e il conducente si sporse dal finestrino per guardare indietro.
 
-«È come lo specchietto dell'auto» disse Elio. «Non è rotto. È fatto così. C'è un pezzo di strada che quello specchio non inquadra. E se cambia corsia fidandosi soltanto di lui, prima o poi rischia di urtare qualcuno. La cosa importante è che il suo angolo morto non lo può vedere girando la testa più forte. Non è un problema di impegno. È un problema di posizione. Chi è seduto altrove lo vede in un secondo. Lei, da solo, non lo vedrà mai.»
+«È come lo specchietto dell'auto» disse Aurelio. «Non è rotto. È fatto così. C'è un pezzo di strada che quello specchio non inquadra. E se cambia corsia fidandosi soltanto di lui, prima o poi rischia di urtare qualcuno. La cosa importante è che il suo angolo morto non lo può vedere girando la testa più forte. Non è un problema di impegno. È un problema di posizione. Chi è seduto altrove lo vede in un secondo. Lei, da solo, non lo vedrà mai.»
 
 Guardò i quattro.
 
@@ -4580,15 +4580,15 @@ Non l'aveva fatto.
 
 ---
 
-«Thoreau mette il dito su una cosa che diamo per scontata» disse Elio. «Essere occupati non prova niente. Non prova che quello che stai facendo conti, né che tu stia andando da qualche parte. Prova soltanto che ti stai muovendo.»
+«Thoreau mette il dito su una cosa che diamo per scontata» disse Aurelio. «Essere occupati non prova niente. Non prova che quello che stai facendo conti, né che tu stia andando da qualche parte. Prova soltanto che ti stai muovendo.»
 
-Erano nella cucina di Elio, e Elio non si alzò per fare il caffè. Lo fece Stefano, che ormai sapeva dove stavano le cose. Rosa gli aveva detto, la settimana prima, sottovoce, sul lungomare: *Elio dovrebbe farsi vedere da un cardiologo. Io gliel'ho detto. Diglielo anche tu.* Stefano gliel'aveva detto. Elio aveva sorriso e aveva cambiato argomento.
+Erano nella cucina di Aurelio, e Aurelio non si alzò per fare il caffè. Lo fece Stefano, che ormai sapeva dove stavano le cose. Rosa gli aveva detto, la settimana prima, sottovoce, sul lungomare: *Aurelio dovrebbe farsi vedere da un cardiologo. Io gliel'ho detto. Diglielo anche tu.* Stefano gliel'aveva detto. Aurelio aveva sorriso e aveva cambiato argomento.
 
 «Eppure, quando ci chiedono come va, quasi tutti rispondiamo con una parola sola. *Pieno.* Come se bastasse.»
 
 Stefano posò le tazze sul tavolo. Si sentì scoperto.
 
-«Ogni cosa che fa oggi ha due proprietà» disse Elio, prendendo il solito blocco di fogli. «È urgente oppure no. Ed è importante oppure no. Da queste due proprietà escono quattro casi.» Disegnò un quadrato diviso in quattro, come quello di Cipolla. «È una matrice che si attribuisce al presidente americano Dwight Eisenhower. In un discorso del 1954 citava un rettore universitario secondo cui le cose urgenti non sono importanti, e quelle importanti non sono mai urgenti. Stephen Covey, nel 1989, l'ha resa famosa.»
+«Ogni cosa che fa oggi ha due proprietà» disse Aurelio, prendendo il solito blocco di fogli. «È urgente oppure no. Ed è importante oppure no. Da queste due proprietà escono quattro casi.» Disegnò un quadrato diviso in quattro, come quello di Cipolla. «È una matrice che si attribuisce al presidente americano Dwight Eisenhower. In un discorso del 1954 citava un rettore universitario secondo cui le cose urgenti non sono importanti, e quelle importanti non sono mai urgenti. Stephen Covey, nel 1989, l'ha resa famosa.»
 
 «Sembra il quadrato di Cipolla.»
 
@@ -4596,21 +4596,21 @@ Stefano posò le tazze sul tavolo. Si sentì scoperto.
 
 ---
 
-Elio scrisse nelle caselle.
+Aurelio scrisse nelle caselle.
 
 «I primi due casi li risolve da solo. Le crisi vere, urgenti e importanti, le affronta subito, e non le serve un libro per capirlo. Suo padre che vomita sangue alle tre di notte. Le distrazioni pure, né urgenti né importanti, le riconosce bene, anche quando ci casca. I video di gatti nel gruppo della banca.» Puntò la penna sulle altre due. «Il problema sono queste. C'è quello che è importante ma non urgente. La salute, le relazioni, la formazione, i progetti che cambiano una vita. Nessuna di queste cose le telefona. E c'è quello che è urgente ma non importante. Le notifiche, le richieste degli altri, le interruzioni. Queste le telefonano tutte. E tutte insieme.»
 
 Stefano guardò il quadrato. Le sue ultime tre settimane stavano quasi tutte nella stessa casella.
 
-«La differenza sta tutta qui» disse Elio. «Nessuna delle cose importanti ha una scadenza che la obbliga. Nessuno le scrive per ricordarle che sono tre anni che non fa un controllo dal medico.»
+«La differenza sta tutta qui» disse Aurelio. «Nessuna delle cose importanti ha una scadenza che la obbliga. Nessuno le scrive per ricordarle che sono tre anni che non fa un controllo dal medico.»
 
-Stefano pensò a Elio, al cardiologo. Non disse niente.
+Stefano pensò a Aurelio, al cardiologo. Non disse niente.
 
-«Suo figlio non le manda una notifica quando smette di raccontarle le sue giornate. Il progetto che cambierebbe il suo lavoro non ha un committente che la sollecita.» Elio posò la penna. «Le cose che contano non hanno un ufficio reclami. Le altre sì. E lo usano tutti i giorni.»
+«Suo figlio non le manda una notifica quando smette di raccontarle le sue giornate. Il progetto che cambierebbe il suo lavoro non ha un committente che la sollecita.» Aurelio posò la penna. «Le cose che contano non hanno un ufficio reclami. Le altre sì. E lo usano tutti i giorni.»
 
 ---
 
-«C'è anche una ragione psicologica per cui la casella che grida vince così spesso» continuò Elio. «Nel 2018 tre ricercatori, Meng Zhu, Yang Yang e Christopher Hsee, hanno descritto sul *Journal of Consumer Research* quello che hanno chiamato effetto della semplice urgenza. Nei loro esperimenti le persone sceglievano più spesso il compito con una scadenza ravvicinata, anche quando l'altro, senza scadenza, offriva una ricompensa più alta. Non sceglievano il compito più utile. Sceglievano quello che sembrava scadere prima.»
+«C'è anche una ragione psicologica per cui la casella che grida vince così spesso» continuò Aurelio. «Nel 2018 tre ricercatori, Meng Zhu, Yang Yang e Christopher Hsee, hanno descritto sul *Journal of Consumer Research* quello che hanno chiamato effetto della semplice urgenza. Nei loro esperimenti le persone sceglievano più spesso il compito con una scadenza ravvicinata, anche quando l'altro, senza scadenza, offriva una ricompensa più alta. Non sceglievano il compito più utile. Sceglievano quello che sembrava scadere prima.»
 
 «Non è una debolezza.»
 
@@ -4618,7 +4618,7 @@ Stefano pensò a Elio, al cardiologo. Non disse niente.
 
 ---
 
-«Adesso le racconto una storia» disse Elio. «Una storia documentata, che mostra questo meccanismo meglio di qualunque spiegazione. E mostra anche quanto può costare.»
+«Adesso le racconto una storia» disse Aurelio. «Una storia documentata, che mostra questo meccanismo meglio di qualunque spiegazione. E mostra anche quanto può costare.»
 
 Bevve un sorso di caffè. La sua voce, quel giorno, era più bassa del solito, e ogni tanto si fermava a riprendere fiato.
 
@@ -4638,7 +4638,7 @@ Stefano rimase immobile.
 
 ---
 
-«Nel rapporto finale» disse Elio, «la commissione d'inchiesta americana scrisse che la preoccupazione per il guasto dell'indicatore aveva distolto l'attenzione dell'equipaggio dagli strumenti. Quell'incidente è una delle ragioni per cui oggi, in tutto il mondo, gli equipaggi vengono addestrati a stabilire chi pilota mentre gli altri risolvono. Fa parte di quella che si chiama gestione delle risorse dell'equipaggio.»
+«Nel rapporto finale» disse Aurelio, «la commissione d'inchiesta americana scrisse che la preoccupazione per il guasto dell'indicatore aveva distolto l'attenzione dell'equipaggio dagli strumenti. Quell'incidente è una delle ragioni per cui oggi, in tutto il mondo, gli equipaggi vengono addestrati a stabilire chi pilota mentre gli altri risolvono. Fa parte di quella che si chiama gestione delle risorse dell'equipaggio.»
 
 Sorrise appena.
 
@@ -4648,7 +4648,7 @@ Sorrise appena.
 
 Stefano guardò le sue righe del mattino delle ultime tre settimane. La documentazione, il verbale, il mulino. Lampadine. Tutte vere. Tutte da cambiare. E intanto la quota scendeva in silenzio.
 
-«La sua giornata funziona allo stesso modo» disse Elio. «Le lampadine non mancano mai, e chiedono attenzione a voce alta. La quota, invece, scende senza fare rumore. È tutto qui. L'urgente grida, l'importante sussurra. Chi corre tutto il giorno risponde sempre a chi grida più forte. Non per scelta. Per sfinimento.»
+«La sua giornata funziona allo stesso modo» disse Aurelio. «Le lampadine non mancano mai, e chiedono attenzione a voce alta. La quota, invece, scende senza fare rumore. È tutto qui. L'urgente grida, l'importante sussurra. Chi corre tutto il giorno risponde sempre a chi grida più forte. Non per scelta. Per sfinimento.»
 
 Chiuse il blocco.
 
@@ -4656,7 +4656,7 @@ Chiuse il blocco.
 
 ---
 
-Stefano prese il telefono e aprì il messaggio di Matteo, quello del giovedì, a cui non aveva risposto. Lo lesse davanti a Elio.
+Stefano prese il telefono e aprì il messaggio di Matteo, quello del giovedì, a cui non aveva risposto. Lo lesse davanti a Aurelio.
 
 *Pa, venerdì 23 alle 18 c'è il saggio di fine anno della scuola di musica. Suono il pezzo mio. Quello che non era finito. Se non puoi fa niente.*
 
@@ -4664,11 +4664,11 @@ Il ventitré era dopodomani. Alle diciotto di venerdì ventitré, Stefano aveva 
 
 Ma *se non puoi fa niente* era la frase di un ragazzo che si aspettava che suo padre non venisse.
 
-«Il metodo serve proprio a questo» disse Elio, piano. «A piantare ogni giorno una bandierina nella casella che sussurra, prima che l'altra si prenda tutto. Una riga, trenta secondi, ma piantata *prima*, non dopo. E una sola. Non tre né cinque. Perché una bandierina piantata la difende. Tre le perde tutte entro mezzogiorno.»
+«Il metodo serve proprio a questo» disse Aurelio, piano. «A piantare ogni giorno una bandierina nella casella che sussurra, prima che l'altra si prenda tutto. Una riga, trenta secondi, ma piantata *prima*, non dopo. E una sola. Non tre né cinque. Perché una bandierina piantata la difende. Tre le perde tutte entro mezzogiorno.»
 
 «E la riunione?»
 
-«È la differenza che passa fra mettere da parte una somma il giorno dello stipendio e provare a risparmiare quello che avanza a fine mese. Non è una questione di cifre. È una questione di ordine.» Elio lo guardò. «Ed è la ragione per cui la riga si scrive al mattino e non la sera. La sera può soltanto constatare. Al mattino può ancora decidere.»
+«È la differenza che passa fra mettere da parte una somma il giorno dello stipendio e provare a risparmiare quello che avanza a fine mese. Non è una questione di cifre. È una questione di ordine.» Aurelio lo guardò. «Ed è la ragione per cui la riga si scrive al mattino e non la sera. La sera può soltanto constatare. Al mattino può ancora decidere.»
 
 ---
 
@@ -4718,7 +4718,7 @@ Lunedì 0. Martedì 15. Mercoledì 0. Giovedì 40. Venerdì 120. Sabato 90. Dome
 
 Accanto, i numeri: 5, 6, 5, 7, 10, 8, 8.
 
-Il venerdì del saggio era stato il primo 10 della sua vita da quando scriveva. Accanto, come Elio gli aveva detto di fare per le giornate piene, annotò che cosa l'aveva resa tale, perché gli sarebbe servito come riferimento:
+Il venerdì del saggio era stato il primo 10 della sua vita da quando scriveva. Accanto, come Aurelio gli aveva detto di fare per le giornate piene, annotò che cosa l'aveva resa tale, perché gli sarebbe servito come riferimento:
 
 *la bandierina piantata la mattina. la riunione spostata, non saltata. Matteo che mi cerca in sala.*
 
@@ -4758,11 +4758,11 @@ Nella riga della sera della domenica aveva scritto: *litigio con M. sono arrabbi
 
 ---
 
-Giulia scese a Torraca il giovedì successivo. Era l'ultima settimana di scuola, aveva un giorno libero, e aveva detto a Stefano che voleva conoscere Elio.
+Giulia scese a Torraca il giovedì successivo. Era l'ultima settimana di scuola, aveva un giorno libero, e aveva detto a Stefano che voleva conoscere Aurelio.
 
-Andarono a Sapri nel pomeriggio. Elio era sulla terrazza, sulla sdraio, con la coperta sulle gambe nonostante il caldo di fine maggio. Rosa era appena andata via. Quando vide Giulia, Elio fece per alzarsi, e lei glielo impedì con un gesto.
+Andarono a Sapri nel pomeriggio. Aurelio era sulla terrazza, sulla sdraio, con la coperta sulle gambe nonostante il caldo di fine maggio. Rosa era appena andata via. Quando vide Giulia, Aurelio fece per alzarsi, e lei glielo impedì con un gesto.
 
-«Lei è quella del *fatto*» disse Elio.
+«Lei è quella del *fatto*» disse Aurelio.
 
 «E lei è quello della barca» disse Giulia. «Mi ha cambiato il marito. Non so ancora se ringraziarla.»
 
@@ -4772,7 +4772,7 @@ Fu Giulia a raccontare del litigio. Lo raccontò con precisione, senza prendere 
 
 «Stefano dice che era arrabbiato» concluse. «Io non credo.»
 
-Elio guardò Stefano.
+Aurelio guardò Stefano.
 
 «Che cosa ha provato, esattamente, quando Matteo ha detto *liceo musicale*?»
 
@@ -4788,29 +4788,29 @@ Giulia gli prese la mano sul tavolo.
 
 ---
 
-«Comincio da un'assurdità che ci sembra normale» disse Elio. «Studiamo la matematica per più di dieci anni, e non dedichiamo nemmeno un'ora a imparare come si gestisce un litigio. Una persona sa usare tre programmi di lavoro, e non sa dare un nome all'emozione che la tiene sveglia alle tre di notte.»
+«Comincio da un'assurdità che ci sembra normale» disse Aurelio. «Studiamo la matematica per più di dieci anni, e non dedichiamo nemmeno un'ora a imparare come si gestisce un litigio. Una persona sa usare tre programmi di lavoro, e non sa dare un nome all'emozione che la tiene sveglia alle tre di notte.»
 
 Giulia annuì, con l'espressione di chi sente dire ad alta voce una cosa che pensa da anni.
 
-«E noti anche come chiamiamo le due cose» disse Elio. «Chiamiamo *tecniche* le competenze che riguardano gli oggetti. E *carattere* quelle che riguardano le persone. Come se il carattere fosse un destino, e non qualcosa che si allena. Plutarco, quasi duemila anni fa, avrebbe obiettato che la mente non è un vaso da riempire, ma legna da accendere. E la legna, se nessuno la accende, resta legna.»
+«E noti anche come chiamiamo le due cose» disse Aurelio. «Chiamiamo *tecniche* le competenze che riguardano gli oggetti. E *carattere* quelle che riguardano le persone. Come se il carattere fosse un destino, e non qualcosa che si allena. Plutarco, quasi duemila anni fa, avrebbe obiettato che la mente non è un vaso da riempire, ma legna da accendere. E la legna, se nessuno la accende, resta legna.»
 
 «Matteo ha *un brutto carattere*» disse Giulia, citando qualcuno. «Me l'ha detto la professoressa di matematica al colloquio. Non sa gestire la frustrazione.»
 
-«E chi gliel'ha insegnato, a gestire la frustrazione?» chiese Elio.
+«E chi gliel'ha insegnato, a gestire la frustrazione?» chiese Aurelio.
 
 Giulia non rispose.
 
 ---
 
-«Per decenni si è creduto che a fare la differenza fosse soprattutto l'intelligenza misurata dai test» disse Elio. «Poi qualcuno ha notato che i conti non tornavano del tutto. Nelle aziende, i più brillanti non erano sempre quelli che arrivavano più lontano. Nelle famiglie, i genitori più colti non erano sempre quelli con i figli più sereni.»
+«Per decenni si è creduto che a fare la differenza fosse soprattutto l'intelligenza misurata dai test» disse Aurelio. «Poi qualcuno ha notato che i conti non tornavano del tutto. Nelle aziende, i più brillanti non erano sempre quelli che arrivavano più lontano. Nelle famiglie, i genitori più colti non erano sempre quelli con i figli più sereni.»
 
 «E allora?»
 
-«Allora si è cominciato a misurare un'altra cosa. La capacità di capire che cosa succede dentro di te e dentro chi ti sta davanti, e di regolarti di conseguenza. Nel 1990 due psicologi americani, Peter Salovey e John Mayer, la chiamarono intelligenza emotiva.» Elio si sistemò sulla sdraio. «I risultati, riassunti in grandi meta-analisi, vanno in una direzione chiara. Due di queste sono quella di Dana Joseph e Daniel Newman, sul *Journal of Applied Psychology* nel 2010, e quella di Ernest O'Boyle e colleghi, l'anno dopo, sul *Journal of Organizational Behavior*. In entrambe, questa capacità era legata a un rendimento migliore sul lavoro. Anche dopo aver tenuto conto dell'intelligenza misurata dai test e dei tratti di personalità. Prenda due persone ugualmente sveglie, con un temperamento simile: quella che capisce meglio le persone tende ad andare più lontano.»
+«Allora si è cominciato a misurare un'altra cosa. La capacità di capire che cosa succede dentro di te e dentro chi ti sta davanti, e di regolarti di conseguenza. Nel 1990 due psicologi americani, Peter Salovey e John Mayer, la chiamarono intelligenza emotiva.» Aurelio si sistemò sulla sdraio. «I risultati, riassunti in grandi meta-analisi, vanno in una direzione chiara. Due di queste sono quella di Dana Joseph e Daniel Newman, sul *Journal of Applied Psychology* nel 2010, e quella di Ernest O'Boyle e colleghi, l'anno dopo, sul *Journal of Organizational Behavior*. In entrambe, questa capacità era legata a un rendimento migliore sul lavoro. Anche dopo aver tenuto conto dell'intelligenza misurata dai test e dei tratti di personalità. Prenda due persone ugualmente sveglie, con un temperamento simile: quella che capisce meglio le persone tende ad andare più lontano.»
 
 «Conta più dell'intelligenza, allora» disse Giulia. «L'ho letto in un libro famoso, anni fa.»
 
-«Ecco» disse Elio, e Stefano sorrise, perché sapeva che cosa stava arrivando. «Ora l'altra metà, perché il patto è dire la verità. È girata molto una frase secondo cui questa capacità conterebbe *più* dell'intelligenza. È diventata celebre con il libro di Daniel Goleman del 1995, il cui sottotitolo prometteva proprio questo. Quella frase non è confermata. Quello che le ricerche dicono, ed è già molto, è che l'intelligenza emotiva aggiunge qualcosa che l'intelligenza da sola non dà.» Fece una pausa. «Non la sostituisce. La completa.»
+«Ecco» disse Aurelio, e Stefano sorrise, perché sapeva che cosa stava arrivando. «Ora l'altra metà, perché il patto è dire la verità. È girata molto una frase secondo cui questa capacità conterebbe *più* dell'intelligenza. È diventata celebre con il libro di Daniel Goleman del 1995, il cui sottotitolo prometteva proprio questo. Quella frase non è confermata. Quello che le ricerche dicono, ed è già molto, è che l'intelligenza emotiva aggiunge qualcosa che l'intelligenza da sola non dà.» Fece una pausa. «Non la sostituisce. La completa.»
 
 «E si può imparare?» chiese Giulia. «O uno ce l'ha e basta?»
 
@@ -4818,17 +4818,17 @@ Giulia non rispose.
 
 ---
 
-«Le faccio vedere che cosa succede quando questa capacità manca» disse Elio, rivolto a Stefano. «Pensi al litigio di domenica. Lei e Matteo volevate davvero cose incompatibili?»
+«Le faccio vedere che cosa succede quando questa capacità manca» disse Aurelio, rivolto a Stefano. «Pensi al litigio di domenica. Lei e Matteo volevate davvero cose incompatibili?»
 
 Stefano ci pensò.
 
 «No. Io voglio che sia felice, e che non resti a piedi. Lui vuole fare la musica. Non sono incompatibili.»
 
-«Quasi mai lo sono. Di solito si vogliono cose diverse ma conciliabili, e ci si scontra su *come* ce le si dice.» Elio si girò verso Giulia. «Chi non ha imparato a guardarsi dentro ha un vocabolario emotivo di poche parole. Lo psicologo Abraham Maslow, nel 1966, osservava che chi ha soltanto un martello è tentato di trattare ogni cosa come un chiodo. Chi sa dire soltanto *sono arrabbiato* userà la rabbia anche quando l'emozione vera era la paura, l'umiliazione, o il semplice bisogno di essere ascoltato.»
+«Quasi mai lo sono. Di solito si vogliono cose diverse ma conciliabili, e ci si scontra su *come* ce le si dice.» Aurelio si girò verso Giulia. «Chi non ha imparato a guardarsi dentro ha un vocabolario emotivo di poche parole. Lo psicologo Abraham Maslow, nel 1966, osservava che chi ha soltanto un martello è tentato di trattare ogni cosa come un chiodo. Chi sa dire soltanto *sono arrabbiato* userà la rabbia anche quando l'emozione vera era la paura, l'umiliazione, o il semplice bisogno di essere ascoltato.»
 
 Stefano pensò alla sua riga della domenica. *Sono arrabbiato.* Il martello.
 
-«Non è cattiveria» disse Elio. «È povertà di vocabolario. E produce danni come se fosse cattiveria.»
+«Non è cattiveria» disse Aurelio. «È povertà di vocabolario. E produce danni come se fosse cattiveria.»
 
 «C'è qualche prova?» chiese Giulia, da insegnante.
 
@@ -4848,7 +4848,7 @@ Era una raccomandazione del Consiglio dell'Unione Europea, del 22 maggio 2018, s
 
 «Saper stare con te stesso. Saper stare con gli altri. E saper continuare a imparare per tutta la vita.» Giulia posò il foglio. «L'Europa le considera importanti quanto saper fare le divisioni. E sai quante ore ci dedichiamo, nella mia scuola? In un anno? Una giornata contro il bullismo, un'assemblea sull'affettività se il preside è d'accordo, e quello che ognuno di noi riesce a rubare al programma. Il resto, Matteo e i suoi compagni lo imparano da soli. O non lo imparano. E a quelli che non lo imparano diciamo che hanno un brutto carattere.»
 
-Elio la guardò a lungo, con un'espressione che Stefano non gli aveva mai visto. Come se avesse ritrovato qualcuno.
+Aurelio la guardò a lungo, con un'espressione che Stefano non gli aveva mai visto. Come se avesse ritrovato qualcuno.
 
 «Il metodo prova a riempire quel vuoto» disse piano. «Non da solo. E non del tutto. Ma da qualche parte bisogna cominciare.»
 
@@ -4905,20 +4905,20 @@ Matteo lo guardò a lungo, cercando la fregatura.
 Per una settimana, nella riga della sera, Stefano aggiunse una parola sola, per dire che cosa aveva provato nel momento più difficile della giornata. Evitò le parole generiche, *bene*, *male*, *stressato*, *arrabbiato*, e cercò la più precisa.
 
 Lunedì: *escluso* (una riunione della rete a cui non l'avevano invitato).
-Martedì: *preoccupato* (Elio, che non rispondeva al telefono fino alle undici).
+Martedì: *preoccupato* (Aurelio, che non rispondeva al telefono fino alle undici).
 Mercoledì: *umiliato* (una banca che gli aveva risposto come a un ragazzino).
-Giovedì: *sollevato* (Elio aveva richiamato).
+Giovedì: *sollevato* (Aurelio aveva richiamato).
 Venerdì: *orgoglioso* (Matteo che aveva risolto da solo tre disequazioni).
 Sabato: *impaziente*.
 Domenica: *grato*.
 
 Alla fine della settimana rilesse le sette parole. Mercoledì, *umiliato*, aveva risposto alla banca con tono secco, come a Ferri. Se avesse avuto subito la parola giusta, pensò, forse avrebbe chiamato invece di scrivere, e avrebbe detto: *mi sono sentito trattato da principiante, possiamo ricominciare?*
 
-Martedì, *preoccupato*, aveva chiamato Elio quattro volte. Giovedì, quando Elio aveva richiamato, gli aveva detto per la prima volta, senza giri di parole:
+Martedì, *preoccupato*, aveva chiamato Aurelio quattro volte. Giovedì, quando Aurelio aveva richiamato, gli aveva detto per la prima volta, senza giri di parole:
 
 «Ho paura per te. Fatti vedere da un cardiologo. Ti accompagno io.»
 
-Elio, dall'altro capo, aveva taciuto a lungo.
+Aurelio, dall'altro capo, aveva taciuto a lungo.
 
 «Va bene» aveva detto alla fine. «Dopo la comunità di giugno.»
 
@@ -4930,7 +4930,7 @@ Elio, dall'altro capo, aveva taciuto a lungo.
 
 ---
 
-Il primo giovedì di giugno, alla comunità, Elio chiese di parlare per primo. Non lo aveva mai fatto.
+Il primo giovedì di giugno, alla comunità, Aurelio chiese di parlare per primo. Non lo aveva mai fatto.
 
 Era arrivato con Rosa, in macchina, anche se abitava a trecento metri dal bar. Si sedette nel suo angolo con la camomilla e aspettò che il barista chiudesse la porta del retro.
 
@@ -4938,11 +4938,11 @@ Era arrivato con Rosa, in macchina, anche se abitava a trecento metri dal bar. S
 
 Ivo tirò fuori il taccuino. Mela si sistemò sulla sedia. Gino, che da febbraio non aveva saltato un giovedì, incrociò le braccia.
 
-«C'è una frase di Richard Feynman, il fisico. La disse ai neolaureati del Caltech nel 1974, parlando di come si fa ricerca onesta. *Il primo principio è che non devi ingannare te stesso, e tu sei la persona più facile da ingannare.*» Elio sorrise. «È la frase più utile che conosca per chi insegna una cosa come questa. E anche per chi la impara.»
+«C'è una frase di Richard Feynman, il fisico. La disse ai neolaureati del Caltech nel 1974, parlando di come si fa ricerca onesta. *Il primo principio è che non devi ingannare te stesso, e tu sei la persona più facile da ingannare.*» Aurelio sorrise. «È la frase più utile che conosca per chi insegna una cosa come questa. E anche per chi la impara.»
 
 ---
 
-«In Italia la crescita personale è ancora guardata con sospetto» disse Elio. «Liquidata come una moda americana, o come roba da guru. È un pregiudizio comprensibile, perché di proposte senza fondamento ne circolano tante. Lo avete visto con l'annuncio di Mela. Ma la ricerca controllata lo smentisce. Almeno in parte.»
+«In Italia la crescita personale è ancora guardata con sospetto» disse Aurelio. «Liquidata come una moda americana, o come roba da guru. È un pregiudizio comprensibile, perché di proposte senza fondamento ne circolano tante. Lo avete visto con l'annuncio di Mela. Ma la ricerca controllata lo smentisce. Almeno in parte.»
 
 «In che parte?» chiese Ivo.
 
@@ -4950,15 +4950,15 @@ Ivo tirò fuori il taccuino. Mela si sistemò sulla sedia. Gino, che da febbraio
 
 «Quindi il metodo funziona» disse Mela.
 
-«Notate la precisione» disse Elio. «Sono strumenti *simili* a questo. Non questo. APPO non è ancora stato studiato con una sperimentazione controllata. Nessuno l'ha mai confrontato con un gruppo che non lo usava.»
+«Notate la precisione» disse Aurelio. «Sono strumenti *simili* a questo. Non questo. APPO non è ancora stato studiato con una sperimentazione controllata. Nessuno l'ha mai confrontato con un gruppo che non lo usava.»
 
 Ivo annuì lentamente, soddisfatto.
 
-«E poi c'è il resto» continuò Elio, «perché il patto era dirvi la verità. Nel 2019 una terza analisi, più severa, quella di Carmela White, Bob Uttl e Mark Holder su *PLoS ONE*, ha rifatto i conti correggendo alcune distorsioni dovute agli studi più piccoli. La conclusione è che gli effetti reali sono molto più piccoli di quanto si diceva. E in alcuni casi incerti.»
+«E poi c'è il resto» continuò Aurelio, «perché il patto era dirvi la verità. Nel 2019 una terza analisi, più severa, quella di Carmela White, Bob Uttl e Mark Holder su *PLoS ONE*, ha rifatto i conti correggendo alcune distorsioni dovute agli studi più piccoli. La conclusione è che gli effetti reali sono molto più piccoli di quanto si diceva. E in alcuni casi incerti.»
 
 Ci fu un silenzio.
 
-«Il dibattito è aperto. Ma riguarda *quanto* questi strumenti funzionino, non *se* funzionino. Nessuna delle tre analisi dice che siano inutili. Quello che la terza ridimensiona è la promessa gonfiata.» Elio posò la tazza. «A me basta. Non vi ho mai venduto miracoli. Vi ho proposto qualcosa che sposta nella direzione giusta in cambio di un minuto al giorno. Con un rapporto così fra costo e beneficio, la scelta mi sembra ragionevole.»
+«Il dibattito è aperto. Ma riguarda *quanto* questi strumenti funzionino, non *se* funzionino. Nessuna delle tre analisi dice che siano inutili. Quello che la terza ridimensiona è la promessa gonfiata.» Aurelio posò la tazza. «A me basta. Non vi ho mai venduto miracoli. Vi ho proposto qualcosa che sposta nella direzione giusta in cambio di un minuto al giorno. Con un rapporto così fra costo e beneficio, la scelta mi sembra ragionevole.»
 
 ---
 
@@ -4970,11 +4970,11 @@ Tutti si girarono. Rosa raramente chiedeva la parola.
 
 «In reparto vedo una cosa che mi spaventa. Le terapie con gli antidepressivi. Non dico che non servano: quando servono, servono, e io li somministro. Ma sono sempre di più. Gente giovane. E nessuno, prima, gli ha mai dato niente in mano. Arrivano da noi che sono già in fondo.»
 
-«È un segnale che non possiamo far finta di non vedere» disse Elio. «Secondo i dati dell'OCSE, in diciotto paesi europei il consumo di antidepressivi è cresciuto di quasi due volte e mezzo fra il 2000 e il 2020. In Italia siamo su livelli più bassi della media, ma anche da noi è cresciuto.» Guardò Rosa. «Non leggo questi numeri come una condanna della medicina. I farmaci, quando servono, servono. Li leggo come il segnale di un disagio diffuso che cerca risposte. E che, prima di arrivare all'ambulatorio, spesso non trova nessuno strumento intermedio.»
+«È un segnale che non possiamo far finta di non vedere» disse Aurelio. «Secondo i dati dell'OCSE, in diciotto paesi europei il consumo di antidepressivi è cresciuto di quasi due volte e mezzo fra il 2000 e il 2020. In Italia siamo su livelli più bassi della media, ma anche da noi è cresciuto.» Guardò Rosa. «Non leggo questi numeri come una condanna della medicina. I farmaci, quando servono, servono. Li leggo come il segnale di un disagio diffuso che cerca risposte. E che, prima di arrivare all'ambulatorio, spesso non trova nessuno strumento intermedio.»
 
 ---
 
-Poi Elio disse la cosa per cui, Stefano lo capì dopo, aveva chiesto di parlare per primo.
+Poi Aurelio disse la cosa per cui, Stefano lo capì dopo, aveva chiesto di parlare per primo.
 
 «Adesso vi dico la cosa che voglio dirvi nel modo più chiaro possibile. La sofferenza psichica seria è una questione clinica, non motivazionale. Nessun metodo, questo compreso, sostituisce una diagnosi, una terapia, un professionista.»
 
@@ -4988,17 +4988,17 @@ Nessuno parlò.
 
 ---
 
-«Due casi in particolare me li chiedono spesso» disse Elio. «Il fumo e il cibo. La risposta è diversa per ciascuno, e la differenza conta più della somiglianza.»
+«Due casi in particolare me li chiedono spesso» disse Aurelio. «Il fumo e il cibo. La risposta è diversa per ciascuno, e la differenza conta più della somiglianza.»
 
 Guardò Stefano, e Stefano sentì il pacchetto di sigarette nella tasca della giacca come se pesasse un chilo.
 
 «Con il fumo il metodo può aiutare davvero. Ma non nel modo che pensate. Non vi chiedo di contare le sigarette, né di darvi un voto su quante ne avete fumate. Quello è un altro strumento, e serve ad altro. Vi chiedo di usare la riga della sera per annotare una cosa sola: che cosa è successo nel minuto prima. Dove eravate, con chi, che cosa stavate provando.»
 
-Stefano lo stava facendo da tre settimane. Elio glielo aveva chiesto a metà maggio, a quattr'occhi. Tirò fuori il taccuino e lesse, quasi senza volerlo, a voce alta.
+Stefano lo stava facendo da tre settimane. Aurelio glielo aveva chiesto a metà maggio, a quattr'occhi. Tirò fuori il taccuino e lesse, quasi senza volerlo, a voce alta.
 
 «*Dopo il caffè. Dopo il caffè. Dopo la telefonata con la banca, irritato. Da solo in macchina alle sei. Dopo il caffè. Dopo cena, sul balcone, quando la giornata è finita e non so che cosa farne. Dopo la mail di Raffaele.*» Alzò gli occhi. «Pensavo di fumare quando capita. Non è vero. Fumo dopo il caffè. Dopo una telefonata che mi irrita. Quando resto solo alle sei. E quando la giornata finisce.»
 
-«Dopo tre settimane succede spesso così» disse Elio. «Salta fuori uno schema che non aveva mai visto per intero. E a quel punto la riga del mattino diventa un'altra cosa. Non più un proposito generico, *oggi non fumo*. Ma una decisione presa in anticipo su un momento preciso. *Oggi, dopo il caffè, esco a fare due passi.* È il meccanismo delle intenzioni di attuazione. Una decisione presa a freddo costa molto meno di quella presa nell'istante in cui la mano cerca il pacchetto.»
+«Dopo tre settimane succede spesso così» disse Aurelio. «Salta fuori uno schema che non aveva mai visto per intero. E a quel punto la riga del mattino diventa un'altra cosa. Non più un proposito generico, *oggi non fumo*. Ma una decisione presa in anticipo su un momento preciso. *Oggi, dopo il caffè, esco a fare due passi.* È il meccanismo delle intenzioni di attuazione. Una decisione presa a freddo costa molto meno di quella presa nell'istante in cui la mano cerca il pacchetto.»
 
 Fece una pausa.
 
@@ -5006,15 +5006,15 @@ Fece una pausa.
 
 ---
 
-Fu Rosa, poi, a prendere la parola sul secondo caso. Elio la guardò e annuì, come se l'avessero concordato.
+Fu Rosa, poi, a prendere la parola sul secondo caso. Aurelio la guardò e annuì, come se l'avessero concordato.
 
 «Mia sorella, Lidia» disse Rosa. «Ha quarantotto anni. Da quando aveva vent'anni ha un problema con il cibo. Non mangia troppo e basta. Mangia di nascosto, di notte, fino a stare male. E poi si odia per una settimana. Per anni le abbiamo detto tutti che era una questione di volontà.» Rosa si fermò. «Non lo è.»
 
-«Con il mangiare compulsivo devo essere molto più cauto» disse Elio, piano. «Non perché il metodo non possa affiancare. Ma perché il mangiare compulsivo, molto più spesso del fumo, è un disturbo clinico. Il disturbo da alimentazione incontrollata ha una diagnosi, dei criteri precisi, e delle cure che funzionano. Non è una questione di volontà. E chi lo presenta così sta facendo del male.»
+«Con il mangiare compulsivo devo essere molto più cauto» disse Aurelio, piano. «Non perché il metodo non possa affiancare. Ma perché il mangiare compulsivo, molto più spesso del fumo, è un disturbo clinico. Il disturbo da alimentazione incontrollata ha una diagnosi, dei criteri precisi, e delle cure che funzionano. Non è una questione di volontà. E chi lo presenta così sta facendo del male.»
 
 «Lidia l'anno scorso ha chiamato un numero» disse Rosa. «Gliel'ho trovato io. Il Numero Verde SOS Disturbi Alimentari. 800 180 969. È gratuito e anonimo. Rispondono persone formate, che ti orientano verso i servizi della tua zona. C'è anche un sito, *sosdisturbialimentari.it*. Adesso è seguita da un'équipe a Salerno. Sta meglio. Non guarita. Meglio.»
 
-«È il gesto giusto» disse Elio. «Se anche soltanto vi chiedete se il vostro rapporto con il cibo sia un problema, quella telefonata vale più di qualunque taccuino.»
+«È il gesto giusto» disse Aurelio. «Se anche soltanto vi chiedete se il vostro rapporto con il cibo sia un problema, quella telefonata vale più di qualunque taccuino.»
 
 «E il metodo?» chiese Mela. «Lidia lo può usare?»
 
@@ -5028,7 +5028,7 @@ Le disse lentamente. Stefano le scrisse nelle ultime pagine del taccuino, sotto 
 
 *Terza condizione: se il metodo comincia a far controllare il cibo invece che le giornate, si smette di usarlo per questo, e lo si dice a chi ci segue.* «Non è un fallimento. È uno strumento che, in quel caso specifico, lavora contro. E un buono strumento si riconosce anche da questo: sa farsi da parte quando serve.»
 
-«Dentro questi limiti» disse Elio, «il metodo può fare una cosa sola, la stessa del fumo. Aiutare a vedere il momento prima. Che cosa era successo, che cosa si stava provando, con chi si era. Non il gesto: quello che lo precede. È un'informazione preziosa da portare a chi sta curando. In questo sì, un piccolo strumento può essere un buon alleato.» Si fermò. «Ma affianca. Non sostituisce. E chi dice il contrario mette le persone in pericolo.»
+«Dentro questi limiti» disse Aurelio, «il metodo può fare una cosa sola, la stessa del fumo. Aiutare a vedere il momento prima. Che cosa era successo, che cosa si stava provando, con chi si era. Non il gesto: quello che lo precede. È un'informazione preziosa da portare a chi sta curando. In questo sì, un piccolo strumento può essere un buon alleato.» Si fermò. «Ma affianca. Non sostituisce. E chi dice il contrario mette le persone in pericolo.»
 
 Rosa annuì. Aveva gli occhi lucidi.
 
@@ -5036,21 +5036,21 @@ Rosa annuì. Aveva gli occhi lucidi.
 
 ---
 
-Alla fine della serata, mentre gli altri uscivano, Elio fece l'esercizio con tutti, come una cosa da fare subito, lì al tavolo.
+Alla fine della serata, mentre gli altri uscivano, Aurelio fece l'esercizio con tutti, come una cosa da fare subito, lì al tavolo.
 
 «Scrivete sul taccuino, in una pagina che ritrovate facilmente, il nome e il numero del vostro medico di base. E dei servizi che potrebbero servirvi, a voi o a una persona a cui volete bene. Adesso, mentre siete qui.»
 
 Lo fecero tutti. Mela non sapeva il numero del suo medico e lo cercò sul telefono. Gino scrisse il numero del Centro Antifumo di Vallo della Lucania e poi, dopo un attimo, cerchiò il suo. Ivo scrisse un numero che nessuno vide, e chiuse il taccuino.
 
-Stefano scrisse il numero del dottor Fontanesi, il Telefono Verde contro il Fumo, il 112. E poi, sotto, un nome: *cardiologo — per Elio. lunedì.*
+Stefano scrisse il numero del dottor Fontanesi, il Telefono Verde contro il Fumo, il 112. E poi, sotto, un nome: *cardiologo — per Aurelio. lunedì.*
 
-Elio, che lo guardava, finse di non vedere.
+Aurelio, che lo guardava, finse di non vedere.
 
 ---
 
 Il lunedì successivo Stefano andò dal dottor Fontanesi, a Sapri. Gli portò il taccuino aperto alla pagina del minuto prima. Il medico lo lesse, alzò gli occhiali sulla fronte, e gli disse che in vent'anni di mestiere nessun paziente gli aveva mai portato una cosa così utile. Lo indirizzò al Centro Antifumo di Vallo. Il primo colloquio fu fissato per il ventitré giugno.
 
-Quella sera, a casa, Vincenzo aveva la febbre. Trentotto e due, niente di grave, un'influenza estiva. Stefano cercò il termometro nel cassetto dei medicinali e glielo mise sotto il braccio, e mentre aspettavano i tre minuti, seduto sul bordo del letto di suo padre, pensò a una cosa che Elio aveva detto alla fine, prima di salire in macchina con Rosa.
+Quella sera, a casa, Vincenzo aveva la febbre. Trentotto e due, niente di grave, un'influenza estiva. Stefano cercò il termometro nel cassetto dei medicinali e glielo mise sotto il braccio, e mentre aspettavano i tre minuti, seduto sul bordo del letto di suo padre, pensò a una cosa che Aurelio aveva detto alla fine, prima di salire in macchina con Rosa.
 
 «Un termometro non abbassa la febbre. Ma senza termometro non sapreste nemmeno di averla. Questo metodo è un termometro. È utile per quello che fa. Non chiedetegli di essere la cura.»
 
@@ -5090,17 +5090,17 @@ Stefano guardò le pagine gialle. Aveva studiato anche lui così, all'universit�
 
 ---
 
-«È una cosa che succede a quasi tutti» disse Elio. «E la ricerca ha qualcosa di scomodo da dire. Riguarda tutti quelli che a scuola si sono sentiti ripetere che dovevano soltanto studiare di più.»
+«È una cosa che succede a quasi tutti» disse Aurelio. «E la ricerca ha qualcosa di scomodo da dire. Riguarda tutti quelli che a scuola si sono sentiti ripetere che dovevano soltanto studiare di più.»
 
-Era il mercoledì. Stefano era sceso a Sapri apposta, con una domanda precisa: come si insegna a studiare a un ragazzo di sedici anni. Elio era a letto. Non sulla sdraio: a letto, con tre cuscini dietro la schiena e la finestra aperta sul mare. Diceva che era stanco, niente di più. L'appuntamento dal cardiologo era il ventiquattro. Rosa passava due volte al giorno. Ivo era lì, seduto su una sedia accanto al letto con il portatile sulle ginocchia, e Stefano capì che negli ultimi giorni ci passava parecchio tempo.
+Era il mercoledì. Stefano era sceso a Sapri apposta, con una domanda precisa: come si insegna a studiare a un ragazzo di sedici anni. Aurelio era a letto. Non sulla sdraio: a letto, con tre cuscini dietro la schiena e la finestra aperta sul mare. Diceva che era stanco, niente di più. L'appuntamento dal cardiologo era il ventiquattro. Rosa passava due volte al giorno. Ivo era lì, seduto su una sedia accanto al letto con il portatile sulle ginocchia, e Stefano capì che negli ultimi giorni ci passava parecchio tempo.
 
-«Nel 2013 un gruppo di ricercatori guidato da John Dunlosky ha passato in rassegna dieci tecniche di studio, su *Psychological Science in the Public Interest*» disse Elio. «Ne hanno valutato l'efficacia reale su una vasta letteratura di ricerche. Il risultato ha ribaltato il senso comune. Le due tecniche più usate dagli studenti, sottolineare e rileggere, sono state giudicate di bassa utilità.»
+«Nel 2013 un gruppo di ricercatori guidato da John Dunlosky ha passato in rassegna dieci tecniche di studio, su *Psychological Science in the Public Interest*» disse Aurelio. «Ne hanno valutato l'efficacia reale su una vasta letteratura di ricerche. Il risultato ha ribaltato il senso comune. Le due tecniche più usate dagli studenti, sottolineare e rileggere, sono state giudicate di bassa utilità.»
 
 «Bassa utilità» ripeté Stefano. «L'evidenziatore.»
 
 «Danno la sensazione di stare imparando. Ed è proprio quella sensazione a ingannare. Le tecniche giudicate più efficaci sono altre due. La prima è mettersi alla prova: cercare di recuperare l'informazione a memoria. La seconda è distribuire lo studio nel tempo, invece di concentrarlo la notte prima. A metà strada, con un giudizio intermedio, c'è lo spiegarsi le cose da soli, con parole proprie.»
 
-Elio si girò un po' sui cuscini, con una smorfia.
+Aurelio si girò un po' sui cuscini, con una smorfia.
 
 «C'è una conseguenza che riguarda anche lei, anche se ha finito la scuola trent'anni fa. Non è il titolo di studio a rendere una persona capace di imparare. È il metodo che usa. Una persona con la licenza media e un buon metodo può imparare più in fretta di un laureato che sottolinea.»
 
@@ -5108,41 +5108,41 @@ Stefano pensò a Gino, che aveva lasciato la scuola a sedici anni e in tre setti
 
 ---
 
-«Le racconto l'esperimento che smonta l'evidenziatore» disse Elio. «Ivo, me lo trovi?»
+«Le racconto l'esperimento che smonta l'evidenziatore» disse Aurelio. «Ivo, me lo trovi?»
 
 Ivo lo trovò in quattro secondi e girò il portatile verso Stefano.
 
-«Nel 2006 due psicologi della Washington University di Saint Louis, Henry Roediger e Jeffrey Karpicke, fecero studiare ad alcuni studenti dei brani di argomento scientifico, e pubblicarono i risultati su *Psychological Science*» disse Elio, a occhi chiusi, come se lo leggesse a memoria. «Un gruppo studiò i brani per quattro sessioni di fila, rileggendoli più volte. Un altro li studiò in una sessione sola. E passò le tre sessioni restanti a cercare di riscrivere a memoria quello che ricordava. Senza sbirciare.»
+«Nel 2006 due psicologi della Washington University di Saint Louis, Henry Roediger e Jeffrey Karpicke, fecero studiare ad alcuni studenti dei brani di argomento scientifico, e pubblicarono i risultati su *Psychological Science*» disse Aurelio, a occhi chiusi, come se lo leggesse a memoria. «Un gruppo studiò i brani per quattro sessioni di fila, rileggendoli più volte. Un altro li studiò in una sessione sola. E passò le tre sessioni restanti a cercare di riscrivere a memoria quello che ricordava. Senza sbirciare.»
 
 «E vinsero i rilettori» disse Stefano.
 
-«Cinque minuti dopo, sì. Ricordavano l'ottantatré per cento del brano, contro il settantuno degli altri. Ed erano anche i più sicuri di sé, convinti che avrebbero ricordato meglio anche in seguito.» Elio aprì gli occhi. «Una settimana dopo, il risultato si era rovesciato. I rilettori restituivano il quaranta per cento. Quelli che si erano messi alla prova, il sessantuno.»
+«Cinque minuti dopo, sì. Ricordavano l'ottantatré per cento del brano, contro il settantuno degli altri. Ed erano anche i più sicuri di sé, convinti che avrebbero ricordato meglio anche in seguito.» Aurelio aprì gli occhi. «Una settimana dopo, il risultato si era rovesciato. I rilettori restituivano il quaranta per cento. Quelli che si erano messi alla prova, il sessantuno.»
 
 Ivo indicò una riga sullo schermo.
 
 «E c'è un dettaglio» disse. «Il gruppo dei rilettori aveva letto il brano in media circa quattordici volte. L'altro poco più di tre.»
 
-«Lo avevano letto quattro volte di meno» disse Elio. «E alla distanza ricordavano molto di più.»
+«Lo avevano letto quattro volte di meno» disse Aurelio. «E alla distanza ricordavano molto di più.»
 
 ---
 
-«Questa è la parte più utile di tutta la storia» continuò Elio, «e merita un momento. Non è soltanto che rileggere funziona meno. È che rileggere fa sentire più preparati, mentre prepara peggio. La sensazione di padronanza che si prova passando l'evidenziatore non è il segnale che si sta imparando. È il segnale che il testo è diventato *familiare*. Sono due cose diverse. E quella che conta, all'esame come nella vita, è la prima.»
+«Questa è la parte più utile di tutta la storia» continuò Aurelio, «e merita un momento. Non è soltanto che rileggere funziona meno. È che rileggere fa sentire più preparati, mentre prepara peggio. La sensazione di padronanza che si prova passando l'evidenziatore non è il segnale che si sta imparando. È il segnale che il testo è diventato *familiare*. Sono due cose diverse. E quella che conta, all'esame come nella vita, è la prima.»
 
 «Familiare non vuol dire imparato» disse Ivo, piano, come se se lo scrivesse in testa.
 
-«Uno psicologo, Robert Bjork, ha studiato a lungo questo fenomeno. Parla di difficoltà desiderabili. Quello che rende lo studio più faticoso nel momento, come sforzarsi di ricordare, spesso lo rende più duraturo.» Elio guardò Stefano. «Ed è qui che la frase di Seneca diventa precisa. *Gli uomini, mentre insegnano, imparano.* Non è una gentilezza verso gli insegnanti. È una descrizione tecnica di come funziona la memoria. Si impara insegnando non perché insegnare sia nobile. Ma perché per insegnare devi tirare fuori le cose dalla testa. Non rimettercele dentro.»
+«Uno psicologo, Robert Bjork, ha studiato a lungo questo fenomeno. Parla di difficoltà desiderabili. Quello che rende lo studio più faticoso nel momento, come sforzarsi di ricordare, spesso lo rende più duraturo.» Aurelio guardò Stefano. «Ed è qui che la frase di Seneca diventa precisa. *Gli uomini, mentre insegnano, imparano.* Non è una gentilezza verso gli insegnanti. È una descrizione tecnica di come funziona la memoria. Si impara insegnando non perché insegnare sia nobile. Ma perché per insegnare devi tirare fuori le cose dalla testa. Non rimettercele dentro.»
 
 ---
 
 «E come faccio con Matteo?» chiese Stefano.
 
-Elio sorrise. Era un sorriso stanco, ma vero.
+Aurelio sorrise. Era un sorriso stanco, ma vero.
 
 «Le racconto da dove viene il metodo. Gliel'avevo promesso un anno fa, sulla barca, e non l'ho mai fatto.» Si sistemò sui cuscini. «Prima ancora di costruire APPO avevo messo a punto un metodo di studio. Lo chiamai ZDC. Tre lettere. Zooma, Descrivi, Controlla.»
 
 Ivo alzò gli occhi dal portatile, di colpo attento.
 
-«Veniva da una metafora presa di peso dal mondo del software» disse Elio. «Ivo lo sa meglio di me. Un sistema complesso non si legge tutto insieme, riga per riga. Prima si zooma fuori, per vedere l'architettura generale. Si guarda lo schema prima di aprire un singolo file.»
+«Veniva da una metafora presa di peso dal mondo del software» disse Aurelio. «Ivo lo sa meglio di me. Un sistema complesso non si legge tutto insieme, riga per riga. Prima si zooma fuori, per vedere l'architettura generale. Si guarda lo schema prima di aprire un singolo file.»
 
 «Il diagramma dei moduli» disse Ivo.
 
@@ -5150,13 +5150,13 @@ Ivo alzò gli occhi dal portatile, di colpo attento.
 
 «Il commento non deve dire *incrementa i di uno*» disse Ivo. «Deve dire perché.»
 
-«E infine si controlla. Si verifica che la propria comprensione regga alla prova dei fatti. Si fa girare il codice.» Elio fece un gesto con la mano. «Applicato allo studio, questo ciclo trasforma un capitolo denso in qualcosa di affrontabile. Zooma: guarda il capitolo dall'alto, i titoli, le figure, la struttura, prima di leggere una riga. Descrivi: chiudi il libro, e spiega con parole tue che cosa hai capito di ogni parte. Controlla: mettiti alla prova. Fatti delle domande, rispondi a memoria, poi riapri e confronta.»
+«E infine si controlla. Si verifica che la propria comprensione regga alla prova dei fatti. Si fa girare il codice.» Aurelio fece un gesto con la mano. «Applicato allo studio, questo ciclo trasforma un capitolo denso in qualcosa di affrontabile. Zooma: guarda il capitolo dall'alto, i titoli, le figure, la struttura, prima di leggere una riga. Descrivi: chiudi il libro, e spiega con parole tue che cosa hai capito di ogni parte. Controlla: mettiti alla prova. Fatti delle domande, rispondi a memoria, poi riapri e confronta.»
 
 Stefano ci pensò.
 
 «Descrivere è spiegarsi le cose da soli. Controllare è mettersi alla prova.»
 
-«Esatto. La prima la ricerca la mette fra le tecniche di efficacia intermedia. La seconda fra le due più efficaci.» Elio alzò il dito, un gesto lento. «E devo essere onesto con lei. Non ho costruito il metodo leggendo quella ricerca. L'ho incontrata dopo, molti anni dopo. Ma quando l'ho letta ho finalmente capito perché quel metodo funzionava con i miei studenti, mentre altri no.»
+«Esatto. La prima la ricerca la mette fra le tecniche di efficacia intermedia. La seconda fra le due più efficaci.» Aurelio alzò il dito, un gesto lento. «E devo essere onesto con lei. Non ho costruito il metodo leggendo quella ricerca. L'ho incontrata dopo, molti anni dopo. Ma quando l'ho letta ho finalmente capito perché quel metodo funzionava con i miei studenti, mentre altri no.»
 
 «E APPO?»
 
@@ -5196,13 +5196,13 @@ Ma alla fine della lezione Matteo disse, sorpreso:
 
 «Seneca. In una lettera a un amico.»
 
-«Il tuo amico Elio?»
+«Il tuo amico Aurelio?»
 
-«No. Quello di Elio. Si chiamava Lucilio.» Stefano sorrise. «Elio ha dato il suo nome alla barca.»
+«No. Quello di Aurelio. Si chiamava Lucilio.» Stefano sorrise. «Aurelio ha dato il suo nome alla barca.»
 
 ---
 
-Quella sera, prima di dormire, Stefano fece l'esercizio che Elio gli aveva lasciato, su se stesso. Scelse un capitolo della sua storia con Elio, il primo, quello del quadro elettrico e del porto, lo scoglio, la remata e la corrente. Chiuse il taccuino. E scrisse su un foglio, a memoria, i tre concetti che ricordava meglio. Era il passo *Controlla*.
+Quella sera, prima di dormire, Stefano fece l'esercizio che Aurelio gli aveva lasciato, su se stesso. Scelse un capitolo della sua storia con Aurelio, il primo, quello del quadro elettrico e del porto, lo scoglio, la remata e la corrente. Chiuse il taccuino. E scrisse su un foglio, a memoria, i tre concetti che ricordava meglio. Era il passo *Controlla*.
 
 *1. i cigni neri e i cigni d'oro.*
 *2. le quattro parole: porto, scoglio, remata, corrente.*
@@ -5214,7 +5214,7 @@ Sorrise. Era la prova che funzionavano: non li ricordava più come concetti. Li 
 
 Sotto, nella riga della sera, scrisse:
 
-*insegnato le disequazioni a Matteo. lui ha insegnato a me le terzine. Elio a letto. il 24 il cardiologo. lo accompagno io.*
+*insegnato le disequazioni a Matteo. lui ha insegnato a me le terzine. Aurelio a letto. il 24 il cardiologo. lo accompagno io.*
 
 ## Capitolo 32 — Il punto di partenza non decide il punto di arrivo
 
@@ -5224,45 +5224,45 @@ Sotto, nella riga della sera, scrisse:
 
 ---
 
-Il giovedì diciannove giugno la comunità pensante non si riunì nel retro del Bar Approdo. Si riunì nella camera da letto di Elio.
+Il giovedì diciannove giugno la comunità pensante non si riunì nel retro del Bar Approdo. Si riunì nella camera da letto di Aurelio.
 
-L'idea era stata di Mela. «Se lui non può venire al bar, il bar va da lui» aveva detto, e aveva portato una torta di mele, sei bicchieri di carta e un thermos di caffè. Rosa aveva controllato la pressione di Elio prima che arrivassero gli altri, e aveva detto a Stefano, in corridoio, che si poteva fare, ma un'ora, non di più. Gino aveva portato due sedie pieghevoli dall'officina. Ivo era arrivato per primo, come sempre, e si era seduto al solito posto, accanto al letto.
+L'idea era stata di Mela. «Se lui non può venire al bar, il bar va da lui» aveva detto, e aveva portato una torta di mele, sei bicchieri di carta e un thermos di caffè. Rosa aveva controllato la pressione di Aurelio prima che arrivassero gli altri, e aveva detto a Stefano, in corridoio, che si poteva fare, ma un'ora, non di più. Gino aveva portato due sedie pieghevoli dall'officina. Ivo era arrivato per primo, come sempre, e si era seduto al solito posto, accanto al letto.
 
-Elio stava seduto contro i cuscini, con la finestra aperta sul golfo e la luce del tramonto che entrava di sbieco. Era più pallido, ma aveva gli occhi accesi.
+Aurelio stava seduto contro i cuscini, con la finestra aperta sul golfo e la luce del tramonto che entrava di sbieco. Era più pallido, ma aveva gli occhi accesi.
 
 «Stasera vi racconto quattro storie» disse. «Quattro storie vere. Vi faccio dei nomi, e non degli esempi generici, perché i nomi restano addosso più a lungo. E vi anticipo subito che hanno in comune una cosa sola. Non è il talento.»
 
 ---
 
-«La prima è una donna che scriveva nei caffè di Edimburgo» disse Elio. «Con la figlia che dormiva nel passeggino accanto al tavolino. Era una madre sola, con una bambina di pochi mesi, e viveva del sussidio dello Stato. Anni dopo, ricordando quel periodo, disse che secondo ogni metro comune era il più grande fallimento che conoscesse.»
+«La prima è una donna che scriveva nei caffè di Edimburgo» disse Aurelio. «Con la figlia che dormiva nel passeggino accanto al tavolino. Era una madre sola, con una bambina di pochi mesi, e viveva del sussidio dello Stato. Anni dopo, ricordando quel periodo, disse che secondo ogni metro comune era il più grande fallimento che conoscesse.»
 
 «J. K. Rowling» disse Ivo.
 
-«Batteva il manoscritto a macchina, perché non aveva un computer. Dodici case editrici lo rifiutarono. La tredicesima lo accettò, e l'editore le consigliò di trovarsi un lavoro vero, perché con i libri per bambini difficilmente si guadagna.» Elio sorrise. «Il punto non è che poi è diventata ricca. Il punto è che per anni ha continuato a scrivere senza avere una sola prova che ne valesse la pena.»
+«Batteva il manoscritto a macchina, perché non aveva un computer. Dodici case editrici lo rifiutarono. La tredicesima lo accettò, e l'editore le consigliò di trovarsi un lavoro vero, perché con i libri per bambini difficilmente si guadagna.» Aurelio sorrise. «Il punto non è che poi è diventata ricca. Il punto è che per anni ha continuato a scrivere senza avere una sola prova che ne valesse la pena.»
 
 Mela, che aveva letto tutti i libri di Harry Potter alla nipote, annuì con forza.
 
 ---
 
-«La seconda è un uomo cresciuto in un complesso di case popolari di Brooklyn» disse Elio. «Aveva sette anni quando suo padre, che guidava furgoni per le consegne, si ruppe una caviglia sul lavoro. Nessuna assicurazione, nessuna indennità, e presto nemmeno il lavoro. Lui ha raccontato più volte che l'immagine del padre steso sul divano, umiliato, è la ragione per cui decenni dopo, costruendo la sua azienda, volle l'assistenza sanitaria anche per i dipendenti a tempo parziale.»
+«La seconda è un uomo cresciuto in un complesso di case popolari di Brooklyn» disse Aurelio. «Aveva sette anni quando suo padre, che guidava furgoni per le consegne, si ruppe una caviglia sul lavoro. Nessuna assicurazione, nessuna indennità, e presto nemmeno il lavoro. Lui ha raccontato più volte che l'immagine del padre steso sul divano, umiliato, è la ragione per cui decenni dopo, costruendo la sua azienda, volle l'assistenza sanitaria anche per i dipendenti a tempo parziale.»
 
 «Chi è?» chiese Gino.
 
-«Howard Schultz. Entrò all'inizio degli anni Ottanta in una piccola catena di Seattle che vendeva caffè in grani. Qualche anno dopo la rilevò e la trasformò in un'azienda presente in tutto il mondo. Starbucks.» Elio fece una pausa. «Quel ricordo se lo portò dietro come una bussola.»
+«Howard Schultz. Entrò all'inizio degli anni Ottanta in una piccola catena di Seattle che vendeva caffè in grani. Qualche anno dopo la rilevò e la trasformò in un'azienda presente in tutto il mondo. Starbucks.» Aurelio fece una pausa. «Quel ricordo se lo portò dietro come una bussola.»
 
 Stefano pensò a suo padre, a gennaio, sulla barella del pronto soccorso.
 
 ---
 
-«La terza la conoscete tutti» disse Elio. «Ha passato ventisette anni in carcere. Diciotto dei quali a Robben Island, in una cella di pochi metri quadrati. Dormiva su una stuoia e spaccava pietre in una cava di calce, la cui luce e la cui polvere gli danneggiarono gli occhi per sempre. Poteva ricevere una lettera ogni sei mesi. Gli fu negato il permesso di andare al funerale di sua madre e, l'anno dopo, a quello del figlio maggiore.»
+«La terza la conoscete tutti» disse Aurelio. «Ha passato ventisette anni in carcere. Diciotto dei quali a Robben Island, in una cella di pochi metri quadrati. Dormiva su una stuoia e spaccava pietre in una cava di calce, la cui luce e la cui polvere gli danneggiarono gli occhi per sempre. Poteva ricevere una lettera ogni sei mesi. Gli fu negato il permesso di andare al funerale di sua madre e, l'anno dopo, a quello del figlio maggiore.»
 
 Nella stanza nessuno parlava.
 
-«In quegli anni Nelson Mandela studiò diritto per corrispondenza. Imparò l'afrikaans, la lingua dei suoi carcerieri, e cominciò a discutere con loro. Uscito di prigione avrebbe potuto guidare una vendetta. Scelse invece la strada della riconciliazione, che portò alla nascita di una commissione per la verità e la riconciliazione.» Elio guardò fuori dalla finestra. «Ventisette anni non lo avevano indurito. Lo avevano reso più preciso.»
+«In quegli anni Nelson Mandela studiò diritto per corrispondenza. Imparò l'afrikaans, la lingua dei suoi carcerieri, e cominciò a discutere con loro. Uscito di prigione avrebbe potuto guidare una vendetta. Scelse invece la strada della riconciliazione, che portò alla nascita di una commissione per la verità e la riconciliazione.» Aurelio guardò fuori dalla finestra. «Ventisette anni non lo avevano indurito. Lo avevano reso più preciso.»
 
 ---
 
-«La quarta» disse Elio, e si voltò verso Ivo, «è per te.»
+«La quarta» disse Aurelio, e si voltò verso Ivo, «è per te.»
 
 Ivo alzò gli occhi, sorpreso.
 
@@ -5270,11 +5270,11 @@ Ivo alzò gli occhi, sorpreso.
 
 Gino rise.
 
-«Ancora a cinquant'anni, racconta lui stesso, non sapeva distinguere l'utile netto da quello lordo» disse Elio. «Un consigliere di amministrazione dovette spiegarglielo con un disegno. Un mare, una rete da pesca, e i pesci dentro la rete come utile di fine anno.» Elio sorrise a Stefano. «Lei glielo avrebbe spiegato meglio, da bancario.»
+«Ancora a cinquant'anni, racconta lui stesso, non sapeva distinguere l'utile netto da quello lordo» disse Aurelio. «Un consigliere di amministrazione dovette spiegarglielo con un disegno. Un mare, una rete da pesca, e i pesci dentro la rete come utile di fine anno.» Aurelio sorrise a Stefano. «Lei glielo avrebbe spiegato meglio, da bancario.»
 
 «Con i pesci no» disse Stefano.
 
-«Branson attribuisce a quella difficoltà anche una parte del suo modo di lavorare. Non potendo affidarsi ai documenti scritti, aveva imparato a fidarsi delle persone e a semplificare tutto.» Elio guardò Ivo. «Quella che la scuola aveva chiamato incapacità era un modo diverso di elaborare. E in azienda è diventato un vantaggio.»
+«Branson attribuisce a quella difficoltà anche una parte del suo modo di lavorare. Non potendo affidarsi ai documenti scritti, aveva imparato a fidarsi delle persone e a semplificare tutto.» Aurelio guardò Ivo. «Quella che la scuola aveva chiamato incapacità era un modo diverso di elaborare. E in azienda è diventato un vantaggio.»
 
 Ivo guardò il pavimento per un lungo momento. Poi disse, con la voce piatta di chi riferisce un dato, ma più piano del solito:
 
@@ -5284,17 +5284,17 @@ Ci fu un silenzio. Poi Mela, che era seduta accanto a lui, gli mise una mano sul
 
 ---
 
-«Sono quattro storie diverse per epoca, cultura e campo» disse Elio. «Ma condividono lo stesso nucleo. Nessuna di queste persone ha aspettato che le condizioni diventassero favorevoli prima di agire. Hanno agito, con costanza, dentro condizioni sfavorevoli. Fino a cambiarle.»
+«Sono quattro storie diverse per epoca, cultura e campo» disse Aurelio. «Ma condividono lo stesso nucleo. Nessuna di queste persone ha aspettato che le condizioni diventassero favorevoli prima di agire. Hanno agito, con costanza, dentro condizioni sfavorevoli. Fino a cambiarle.»
 
 Ivo alzò la mano. Stefano sorrise: era il gesto che aspettava.
 
 «Però sono storie scelte» disse Ivo. «Fra quelli che ce l'hanno fatta. Per ogni manoscritto accettato al tredicesimo tentativo ce ne sono migliaia rifiutati per sempre.»
 
-«Esatto» disse Elio, e sembrava felice come un maestro davanti allo scolaro migliore. «Devo aggiungere una precisazione, per onestà, e riguarda il modo in cui vi chiedo di leggerle. Per ogni Rowling ci sono migliaia di autori che hanno avuto la stessa costanza e non sono mai stati pubblicati. Questo errore ha un nome. Si chiama pregiudizio di sopravvivenza. Guardare soltanto chi è arrivato, e concludere che il percorso garantisca l'arrivo.»
+«Esatto» disse Aurelio, e sembrava felice come un maestro davanti allo scolaro migliore. «Devo aggiungere una precisazione, per onestà, e riguarda il modo in cui vi chiedo di leggerle. Per ogni Rowling ci sono migliaia di autori che hanno avuto la stessa costanza e non sono mai stati pubblicati. Questo errore ha un nome. Si chiama pregiudizio di sopravvivenza. Guardare soltanto chi è arrivato, e concludere che il percorso garantisca l'arrivo.»
 
 «Quindi non servono a niente?» chiese Gino.
 
-«Servono, ma per un'altra cosa. Queste storie non dimostrano che la costanza porti al successo. Mostrano però che il punto di partenza, da solo, non lo impedisce.» Elio si sistemò sui cuscini. «Non ve le ho raccontate per farvi paragonare a loro. Né per farvi sentire in colpa se la vostra vita, oggi, sembra lontana da imprese di quella portata. Ve le ho raccontate perché credo che la determinazione, insieme a un metodo valido, possa partire da qualunque punto. Il vostro punto di partenza, qualunque sia oggi, non decide il vostro punto di arrivo.»
+«Servono, ma per un'altra cosa. Queste storie non dimostrano che la costanza porti al successo. Mostrano però che il punto di partenza, da solo, non lo impedisce.» Aurelio si sistemò sui cuscini. «Non ve le ho raccontate per farvi paragonare a loro. Né per farvi sentire in colpa se la vostra vita, oggi, sembra lontana da imprese di quella portata. Ve le ho raccontate perché credo che la determinazione, insieme a un metodo valido, possa partire da qualunque punto. Il vostro punto di partenza, qualunque sia oggi, non decide il vostro punto di arrivo.»
 
 Fece una pausa.
 
@@ -5302,7 +5302,7 @@ Fece una pausa.
 
 ---
 
-«Vi lascio un esercizio» disse Elio, quando Rosa cominciò a guardare l'orologio. «Ognuno scriva la condizione che, in questo periodo, sta usando come prova che non è il momento. Poco tempo, pochi soldi, una situazione in famiglia, un'età. E sotto, una domanda sola: che cosa potrei fare dentro questa condizione, e non dopo, in meno di quindici minuti?»
+«Vi lascio un esercizio» disse Aurelio, quando Rosa cominciò a guardare l'orologio. «Ognuno scriva la condizione che, in questo periodo, sta usando come prova che non è il momento. Poco tempo, pochi soldi, una situazione in famiglia, un'età. E sotto, una domanda sola: che cosa potrei fare dentro questa condizione, e non dopo, in meno di quindici minuti?»
 
 Lo fecero lì, con i taccuini sulle ginocchia, nella luce arancione che si spegneva.
 
@@ -5318,19 +5318,19 @@ Ivo non lesse il suo. Ma Stefano vide che la riga sotto cominciava con *dire al 
 
 Stefano guardò la pagina a lungo. Poi scrisse:
 
-*Elio sta male, e ho paura di fare le cose senza di lui.*
+*Aurelio sta male, e ho paura di fare le cose senza di lui.*
 
 E sotto:
 
 *domani, prima di venire qui, preparo da solo l'ordine del giorno della comunità di luglio. come se dovessi condurla io.*
 
-Non lo lesse ad alta voce. Ma Elio, dal letto, lo guardò come se l'avesse letto.
+Non lo lesse ad alta voce. Ma Aurelio, dal letto, lo guardò come se l'avesse letto.
 
 ---
 
-Quando gli altri se ne furono andati, Stefano rimase. Aiutò Rosa a rimettere a posto le sedie, a lavare i bicchieri. Poi tornò nella camera. Elio aveva gli occhi chiusi, ma non dormiva.
+Quando gli altri se ne furono andati, Stefano rimase. Aiutò Rosa a rimettere a posto le sedie, a lavare i bicchieri. Poi tornò nella camera. Aurelio aveva gli occhi chiusi, ma non dormiva.
 
-«C'è un'ultima cosa che quelle quattro vite hanno in comune» disse Elio, senza aprire gli occhi. «Gliel'ho tenuta per lei. Nessuna è cambiata in un giorno. Sono cambiate in un numero molto alto di giorni ordinari, uno dietro l'altro. E nessuno di quei giorni, preso da solo, sembrava decisivo.»
+«C'è un'ultima cosa che quelle quattro vite hanno in comune» disse Aurelio, senza aprire gli occhi. «Gliel'ho tenuta per lei. Nessuna è cambiata in un giorno. Sono cambiate in un numero molto alto di giorni ordinari, uno dietro l'altro. E nessuno di quei giorni, preso da solo, sembrava decisivo.»
 
 Aprì gli occhi.
 
@@ -5338,7 +5338,7 @@ Aprì gli occhi.
 
 Stefano si sedette sulla sedia di Ivo.
 
-«Seneca» disse Elio, piano. «Non è perché le cose sono difficili che non osiamo. È perché non osiamo che sono difficili.» Sorrise. «Lei a maggio dell'anno scorso era seduto su un molo alle cinque e mezza del mattino a fumare. Il suo punto di partenza.»
+«Seneca» disse Aurelio, piano. «Non è perché le cose sono difficili che non osiamo. È perché non osiamo che sono difficili.» Sorrise. «Lei a maggio dell'anno scorso era seduto su un molo alle cinque e mezza del mattino a fumare. Il suo punto di partenza.»
 
 «Non ero un granché, come punto di partenza.»
 
@@ -5352,7 +5352,7 @@ Quella sera, nella riga della sera, Stefano non scrisse il QuDiVi subito. Rimase
 
 Poi scrisse *8*, e sotto:
 
-*Elio ha raccontato quattro storie. la quinta, credo, era la mia.*
+*Aurelio ha raccontato quattro storie. la quinta, credo, era la mia.*
 
 Due giorni dopo, nella notte fra il ventuno e il ventidue giugno, Rosa lo chiamò alle tre e quaranta.
 
@@ -5366,7 +5366,7 @@ Due giorni dopo, nella notte fra il ventuno e il ventidue giugno, Rosa lo chiam�
 
 L'infarto arrivò alle tre e un quarto del mattino del ventidue giugno, due giorni prima dell'appuntamento con il cardiologo.
 
-Elio si svegliò con un peso sul petto, come una mano enorme che spingeva. Ebbe la lucidità di chiamare Rosa, che abitava a cinque minuti, invece del 112. Rosa chiamò il 112 dalla macchina, arrivò in quattro minuti, e quando l'ambulanza fermò sul lungomare di Sapri con le sirene spente lo stava già tenendo seduto, con l'aspirina masticata e le finestre aperte.
+Aurelio si svegliò con un peso sul petto, come una mano enorme che spingeva. Ebbe la lucidità di chiamare Rosa, che abitava a cinque minuti, invece del 112. Rosa chiamò il 112 dalla macchina, arrivò in quattro minuti, e quando l'ambulanza fermò sul lungomare di Sapri con le sirene spente lo stava già tenendo seduto, con l'aspirina masticata e le finestre aperte.
 
 Stefano arrivò all'ospedale di Vallo della Lucania alle cinque. L'emodinamica era già al lavoro. Rosa era in corridoio, in jeans e maglietta, con i capelli sciolti, e Stefano non l'aveva mai vista così. Gli disse soltanto:
 
@@ -5378,41 +5378,41 @@ Rosa scoppiò a ridere e a piangere nello stesso momento.
 
 ---
 
-Lo lasciarono entrare il pomeriggio del giorno dopo. Unità coronarica, un letto con le sponde, i fili degli elettrodi, il monitor che faceva un bip regolare. Elio era grigio, piccolo dentro il camice dell'ospedale, con un tubicino dell'ossigeno sotto il naso. Ma quando vide Stefano sorrise.
+Lo lasciarono entrare il pomeriggio del giorno dopo. Unità coronarica, un letto con le sponde, i fili degli elettrodi, il monitor che faceva un bip regolare. Aurelio era grigio, piccolo dentro il camice dell'ospedale, con un tubicino dell'ossigeno sotto il naso. Ma quando vide Stefano sorrise.
 
 «Il cigno nero» disse. «Glielo avevo detto. Arrivano senza bussare.»
 
 «Non parli troppo.»
 
-«Ho parlato poco per due giorni. Mi lasci parlare.» Elio indicò la sedia. «Si sieda. Le racconto una storia. È l'ultima della serie. Me la tenevo per la fine.»
+«Ho parlato poco per due giorni. Mi lasci parlare.» Aurelio indicò la sedia. «Si sieda. Le racconto una storia. È l'ultima della serie. Me la tenevo per la fine.»
 
 Stefano si sedette.
 
 ---
 
-«È una storia antica» disse Elio. «Si trova già nello *Huainanzi*, un testo compilato alla corte di un principe cinese nel secondo secolo prima di Cristo. Da allora si racconta in molte versioni.»
+«È una storia antica» disse Aurelio. «Si trova già nello *Huainanzi*, un testo compilato alla corte di un principe cinese nel secondo secolo prima di Cristo. Da allora si racconta in molte versioni.»
 
 Prese fiato. Il monitor fece bip.
 
 «A un contadino scappa il cavallo. I vicini accorrono: *che disgrazia!* Lui risponde: *forse*. Il giorno dopo il cavallo torna, e si porta dietro alcuni cavalli selvatici. I vicini: *che fortuna!* Lui: *forse*. Il figlio prova a domare uno dei cavalli nuovi, cade e si rompe una gamba. I vicini: *che disgrazia!* Lui: *forse*. Qualche tempo dopo arrivano i reclutatori dell'esercito e portano via tutti i giovani del villaggio, per una guerra da cui pochi torneranno.»
 
-Elio guardò Stefano.
+Aurelio guardò Stefano.
 
 «Il figlio, con la gamba rotta, resta a casa.»
 
 Stefano non disse niente. Il monitor faceva bip.
 
-«Non gliela racconto per invitarla alla rassegnazione» disse Elio. «Gliela racconto perché contiene due cose che oggi abbiamo dimenticato. Ma prima le devo una cosa. Il nome.»
+«Non gliela racconto per invitarla alla rassegnazione» disse Aurelio. «Gliela racconto perché contiene due cose che oggi abbiamo dimenticato. Ma prima le devo una cosa. Il nome.»
 
 ---
 
-«Nel prologo della sua storia, se mai qualcuno la scriverà, ci sarà un cigno nero» disse Elio, sorridendo appena. «Le ho sempre parlato della metafora. Mai della storia vera. Ed è più istruttiva della metafora.»
+«Nel prologo della sua storia, se mai qualcuno la scriverà, ci sarà un cigno nero» disse Aurelio, sorridendo appena. «Le ho sempre parlato della metafora. Mai della storia vera. Ed è più istruttiva della metafora.»
 
 «Me la racconti.»
 
 «Per secoli, in Europa, il cigno nero è stato l'esempio classico della cosa impossibile. Il poeta latino Giovenale, vissuto fra il primo e il secondo secolo, lo usava già come modo di dire: *un uccello raro sulla terra, molto simile a un cigno nero*. Una cosa che non si incontra mai. Tutti i cigni osservati erano bianchi. E la frase *tutti i cigni sono bianchi* sembrava una verità assodata.»
 
-Elio chiuse gli occhi un momento, poi li riaprì.
+Aurelio chiuse gli occhi un momento, poi li riaprì.
 
 «Poi, nel gennaio del 1697, la spedizione dell'olandese Willem de Vlamingh risalì un fiume sulla costa occidentale dell'Australia. E lungo le sue rive trovò molti cigni. Erano neri. Quel fiume fu chiamato fiume dei Cigni. È lo Swan River, quello su cui oggi sorge Perth.» Sorrise. «De Vlamingh, va detto, non mostrò un particolare stupore. Nel suo giornale annotò soltanto che erano del tutto neri.»
 
@@ -5422,33 +5422,33 @@ Elio chiuse gli occhi un momento, poi li riaprì.
 
 Il monitor fece bip, bip.
 
-«Tenga a mente la struttura di questa storia» disse Elio. «È la stessa di tutti gli imprevisti che le capiteranno. Migliaia di conferme non dimostravano niente. È bastata una sola osservazione contraria per far crollare una regola che sembrava solida. È l'idea di un filosofo, Karl Popper. Ventidue anni di banca, ogni giorno uguale, ogni giorno una conferma. E poi un ufficio al sesto piano.»
+«Tenga a mente la struttura di questa storia» disse Aurelio. «È la stessa di tutti gli imprevisti che le capiteranno. Migliaia di conferme non dimostravano niente. È bastata una sola osservazione contraria per far crollare una regola che sembrava solida. È l'idea di un filosofo, Karl Popper. Ventidue anni di banca, ogni giorno uguale, ogni giorno una conferma. E poi un ufficio al sesto piano.»
 
 «Due stent» disse Stefano, piano.
 
-«Due stent» disse Elio. «Settantadue anni di cuore che funzionava. E poi una notte di giugno.»
+«Due stent» disse Aurelio. «Settantadue anni di cuore che funzionava. E poi una notte di giugno.»
 
 ---
 
-«Ecco la prima delle due cose» disse Elio. «Gli eventi che spostano davvero una vita non sono quelli che avevi messo in agenda. Un cigno nero è un fatto raro, che non potevi prevedere, con conseguenze grandi. E che dopo, puntualmente, tutti spiegano come se fosse stato ovvio fin dall'inizio.» Sorrise. «Domani qualcuno dirà: *eh, ma con quella tosse, si vedeva*. Una diagnosi. Un licenziamento improvviso. Un mercato che cambia in sei mesi. Una persona che se ne va. Ma esistono anche i cigni d'oro. La telefonata inattesa di Pina Galdi. Un uomo che si siede su un molo alle cinque e mezza del mattino. Stessa natura, segno opposto.»
+«Ecco la prima delle due cose» disse Aurelio. «Gli eventi che spostano davvero una vita non sono quelli che avevi messo in agenda. Un cigno nero è un fatto raro, che non potevi prevedere, con conseguenze grandi. E che dopo, puntualmente, tutti spiegano come se fosse stato ovvio fin dall'inizio.» Sorrise. «Domani qualcuno dirà: *eh, ma con quella tosse, si vedeva*. Una diagnosi. Un licenziamento improvviso. Un mercato che cambia in sei mesi. Una persona che se ne va. Ma esistono anche i cigni d'oro. La telefonata inattesa di Pina Galdi. Un uomo che si siede su un molo alle cinque e mezza del mattino. Stessa natura, segno opposto.»
 
 Stefano rise, e gli bruciavano gli occhi.
 
-«La cosa importante è questa» disse Elio, e la sua voce si fece più ferma. «Non può prevederli. Ma può decidere in quali condizioni la troveranno. Chi ha una direzione chiara e l'abitudine di rileggersi riconosce un cigno d'oro mentre passa, invece di accorgersene un anno dopo. E incassa un cigno nero senza andare a fondo. Perché ha già in mano una procedura da usare quando non riesce a pensare. Le quattro domande, allenate nei giorni normali.»
+«La cosa importante è questa» disse Aurelio, e la sua voce si fece più ferma. «Non può prevederli. Ma può decidere in quali condizioni la troveranno. Chi ha una direzione chiara e l'abitudine di rileggersi riconosce un cigno d'oro mentre passa, invece di accorgersene un anno dopo. E incassa un cigno nero senza andare a fondo. Perché ha già in mano una procedura da usare quando non riesce a pensare. Le quattro domande, allenate nei giorni normali.»
 
 «Rosa le ha usate» disse Stefano. «Stanotte. Mi ha detto che in macchina, mentre veniva da te, si ripeteva: dove voglio arrivare, che cosa mi blocca, qual è la mossa più piccola. La mossa più piccola era l'aspirina. Masticata.»
 
-Elio chiuse gli occhi e sorrise.
+Aurelio chiuse gli occhi e sorrise.
 
 «Il primo soccorso» disse.
 
 ---
 
-«La seconda cosa» disse Elio, dopo un po', «riguarda una parola che va molto di moda. Resilienza. Si dice a proposito di qualunque cosa, ormai, come il prezzemolo.»
+«La seconda cosa» disse Aurelio, dopo un po', «riguarda una parola che va molto di moda. Resilienza. Si dice a proposito di qualunque cosa, ormai, come il prezzemolo.»
 
 «In banca c'erano i corsi sulla resilienza organizzativa.»
 
-«In senso stretto, quello della fisica dei materiali, resilienza vuol dire la capacità di tornare come prima dopo un urto. L'elastico che riprende la forma. Il ramo che si raddrizza. È già molto. Ma è sopravvivere.» Elio girò la testa sul cuscino, verso la finestra. «Quello che vorrei per lei è un'altra cosa. Che certi colpi la rendano più forte di prima, non uguale a prima. Che il cliente perso le insegni a non dipendere mai più da un cliente solo. Che la porta chiusa la costringa a scoprirne tre che non aveva visto.»
+«In senso stretto, quello della fisica dei materiali, resilienza vuol dire la capacità di tornare come prima dopo un urto. L'elastico che riprende la forma. Il ramo che si raddrizza. È già molto. Ma è sopravvivere.» Aurelio girò la testa sul cuscino, verso la finestra. «Quello che vorrei per lei è un'altra cosa. Che certi colpi la rendano più forte di prima, non uguale a prima. Che il cliente perso le insegni a non dipendere mai più da un cliente solo. Che la porta chiusa la costringa a scoprirne tre che non aveva visto.»
 
 «Come la banca.»
 
@@ -5462,11 +5462,11 @@ Poi alzò il dito, piano, con l'ago della flebo attaccato al dorso della mano.
 
 Un'infermiera entrò, controllò il monitor, scrisse qualcosa su una cartella, e disse a Stefano che restavano cinque minuti.
 
-«Adesso torni al contadino» disse Elio. «E lo guardi con occhi diversi. Non è rassegnato. È lucido. Sa di non avere abbastanza informazioni per emettere una sentenza. E si tiene aperto.»
+«Adesso torni al contadino» disse Aurelio. «E lo guardi con occhi diversi. Non è rassegnato. È lucido. Sa di non avere abbastanza informazioni per emettere una sentenza. E si tiene aperto.»
 
 Stefano ci pensò.
 
-«È esattamente l'atteggiamento che il metodo allena» disse Elio. «Un giorno alla volta. La riga della sera che osserva invece di giudicare. La domanda *che cosa si è aperto, per me e per gli altri?*. Il rito che rilegge a distanza. Ed è il motivo per cui le ho detto, il primo giorno in barca, che un metodo serve poco nei giorni normali e diventa indispensabile in quelli storti. Nel giorno in cui arriva il cigno.»
+«È esattamente l'atteggiamento che il metodo allena» disse Aurelio. «Un giorno alla volta. La riga della sera che osserva invece di giudicare. La domanda *che cosa si è aperto, per me e per gli altri?*. Il rito che rilegge a distanza. Ed è il motivo per cui le ho detto, il primo giorno in barca, che un metodo serve poco nei giorni normali e diventa indispensabile in quelli storti. Nel giorno in cui arriva il cigno.»
 
 Si fermò a riprendere fiato.
 
@@ -5482,17 +5482,17 @@ Stefano tornò a Torraca la sera, con la Golf, sulla Cilentana vuota. Arrivò a 
 
 «Se la cava.» Vincenzo annuì. «È un uomo testardo.»
 
-Quella sera Stefano fece l'esercizio che Elio gli aveva lasciato. Sul taccuino scrisse un evento degli ultimi anni che al momento aveva giudicato una disgrazia, e uno che aveva giudicato una fortuna. Accanto a ciascuno, quello che ne era venuto dopo.
+Quella sera Stefano fece l'esercizio che Aurelio gli aveva lasciato. Sul taccuino scrisse un evento degli ultimi anni che al momento aveva giudicato una disgrazia, e uno che aveva giudicato una fortuna. Accanto a ciascuno, quello che ne era venuto dopo.
 
 *Disgrazia: la chiusura della filiale, maggio dell'anno scorso.*
-*Dopo: papà. Elio. il metodo. Gino. la rete. Matteo che mi cerca in sala.*
+*Dopo: papà. Aurelio. il metodo. Gino. la rete. Matteo che mi cerca in sala.*
 
 *Fortuna: la promozione a responsabile di filiale, otto anni fa.*
 *Dopo: dodici ore al giorno. Matteo che dormiva quando tornavo. ventidue anni di scala appoggiata al muro sbagliato.*
 
 Guardò le due righe a lungo. Poi scelse una situazione che stava vivendo adesso, la più difficile, e scrisse, come il contadino, soltanto *forse*, seguito da due sviluppi possibili.
 
-*Elio in coronarica. forse.*
+*Aurelio in coronarica. forse.*
 *favorevole: torna a casa a luglio, e a settembre esce di nuovo in barca.*
 *sfavorevole:*
 
@@ -5500,21 +5500,21 @@ Non riuscì a scrivere il secondo. Lasciò la riga vuota.
 
 ---
 
-Elio uscì dall'ospedale il primo luglio. Lo riportò a casa Stefano, con Rosa sul sedile posteriore. Era debole, camminava con il deambulatore, e il cardiologo aveva detto che il cuore aveva subito un danno importante, che bisognava andare piano, che si sarebbe visto.
+Aurelio uscì dall'ospedale il primo luglio. Lo riportò a casa Stefano, con Rosa sul sedile posteriore. Era debole, camminava con il deambulatore, e il cardiologo aveva detto che il cuore aveva subito un danno importante, che bisognava andare piano, che si sarebbe visto.
 
 Si sarebbe visto. Forse.
 
-Sul lungomare di Sapri, davanti al cancello, Elio chiese a Stefano di fermarsi. Abbassò il finestrino e guardò il porto, il *Lucilio* tirato in secca sotto il telo azzurro.
+Sul lungomare di Sapri, davanti al cancello, Aurelio chiese a Stefano di fermarsi. Abbassò il finestrino e guardò il porto, il *Lucilio* tirato in secca sotto il telo azzurro.
 
 «Le devo chiedere una cosa» disse. «Un favore.»
 
 «Qualunque cosa.»
 
-«Il primo giovedì di luglio c'è la comunità. Io non ci posso venire.» Elio si voltò verso di lui. «La conduca lei. E prima mi scriva il metodo. Tutto. In tre minuti di lettura. Come se dovesse spiegarlo a qualcuno che non lo conosce.»
+«Il primo giovedì di luglio c'è la comunità. Io non ci posso venire.» Aurelio si voltò verso di lui. «La conduca lei. E prima mi scriva il metodo. Tutto. In tre minuti di lettura. Come se dovesse spiegarlo a qualcuno che non lo conosce.»
 
 «Perché io?»
 
-Elio sorrise.
+Aurelio sorrise.
 
 «Gli uomini, mentre insegnano, imparano.»
 
@@ -5536,7 +5536,7 @@ La seconda sera tolse gli esempi. Restavano due pagine.
 
 La terza tolse le spiegazioni. Una pagina e mezza.
 
-La quarta sera si ricordò di Pascal: *ho scritto una lettera lunga perché non ho avuto il tempo di farla breve*. E si ricordò di una frase che Elio gli aveva citato in ospedale, fra un bip e l'altro: Marco Aurelio, che a sua volta citava Democrito. *Fa' poche cose, se vuoi essere sereno.*
+La quarta sera si ricordò di Pascal: *ho scritto una lettera lunga perché non ho avuto il tempo di farla breve*. E si ricordò di una frase che Aurelio gli aveva citato in ospedale, fra un bip e l'altro, con l'aria di chi parla di un parente: il suo omonimo Marco Aurelio, che a sua volta citava Democrito. *Fa' poche cose, se vuoi essere sereno.*
 
 La quinta sera tolse tutto quello che non avrebbe potuto spiegare a Matteo in macchina, fra Torraca e Sapri.
 
@@ -5546,15 +5546,15 @@ La sesta lo lesse ad alta voce, cronometrandosi con il telefono. Due minuti e ci
 
 La comunità di luglio si riunì nel retro del Bar Approdo, il primo giovedì del mese, alle sette di sera. Faceva caldo, e il barista aveva lasciato aperta la porta sul vicolo per far passare un po' d'aria.
 
-C'erano tutti. Rosa, in divisa, perché attaccava alle nove. Mela, con un vestito a fiori che si era cucita da sola e che voleva far vedere alle ragazze della parrocchia il martedì dopo. Gino, con un ragazzo di diciannove anni magro e timido, il figlio di Totonno, che da tre settimane andava in officina due pomeriggi a imparare e che Gino aveva portato *perché vedesse una cosa*. E Ivo, che aveva sistemato il portatile in un angolo del tavolo, al posto dove di solito stava Elio, con la telecamera accesa.
+C'erano tutti. Rosa, in divisa, perché attaccava alle nove. Mela, con un vestito a fiori che si era cucita da sola e che voleva far vedere alle ragazze della parrocchia il martedì dopo. Gino, con un ragazzo di diciannove anni magro e timido, il figlio di Totonno, che da tre settimane andava in officina due pomeriggi a imparare e che Gino aveva portato *perché vedesse una cosa*. E Ivo, che aveva sistemato il portatile in un angolo del tavolo, al posto dove di solito stava Aurelio, con la telecamera accesa.
 
-Sullo schermo c'era Elio, dal suo letto di Sapri, con i tre cuscini dietro la schiena e il golfo nella finestra alle sue spalle. Salutò con la mano.
+Sullo schermo c'era Aurelio, dal suo letto di Sapri, con i tre cuscini dietro la schiena e il golfo nella finestra alle sue spalle. Salutò con la mano.
 
 «Fate come se non ci fossi» disse. «Io ascolto. Come sempre.»
 
 Stefano si sedette a capotavola, dove non si era mai seduto. Aveva il taccuino aperto davanti. Le mani gli sudavano.
 
-«Elio mi ha chiesto di scrivere tutto il metodo in tre minuti» disse. «Per chi non lo conosce, e per quando a noi sfugge qualcosa. L'ho scritto. Ve lo leggo.» Guardò il ragazzo di Totonno, che si chiamava Salvatore. «Soprattutto a te.»
+«Aurelio mi ha chiesto di scrivere tutto il metodo in tre minuti» disse. «Per chi non lo conosce, e per quando a noi sfugge qualcosa. L'ho scritto. Ve lo leggo.» Guardò il ragazzo di Totonno, che si chiamava Salvatore. «Soprattutto a te.»
 
 Salvatore arrossì fino alle orecchie.
 
@@ -5580,7 +5580,7 @@ Alzò di nuovo gli occhi. Salvatore stava scrivendo, curvo sul taccuino.
 
 «In totale fa circa un'ora al mese. E ci sono quattro parole che tornano a ogni livello. L'Aspirazione è dove volete arrivare. Il Problema è che cosa ve lo impedisce davvero, non che cosa è comodo dire. Il Progetto è la mossa più piccola che vi mette in movimento. L'Opportunità è che cosa si è aperto, per voi e per gli altri, perché vi siete mossi.»
 
-Sullo schermo, Elio aveva chiuso gli occhi. Ma sorrideva.
+Sullo schermo, Aurelio aveva chiuso gli occhi. Ma sorrideva.
 
 ---
 
@@ -5610,7 +5610,7 @@ Fece una pausa.
 
 ---
 
-«E poi» disse Stefano, e questa volta non lesse, «c'è una cosa che Elio mi ha chiesto di mettere. Il segnale che vi dice che ha funzionato.»
+«E poi» disse Stefano, e questa volta non lesse, «c'è una cosa che Aurelio mi ha chiesto di mettere. Il segnale che vi dice che ha funzionato.»
 
 Chiuse il taccuino.
 
@@ -5620,11 +5620,11 @@ Si fermò. Nella stanza c'era silenzio. Dal vicolo arrivava il rumore di qualcun
 
 «Il mio è *aspettare il permesso*» disse. «Aspettare che qualcuno mi dica che posso. Che sono abbastanza. L'ho scritto per la prima volta ad agosto dell'anno scorso, seduto su un sasso vicino al Bussento. Me l'ha ricordato Ivo a maggio, leggendolo dal suo taccuino, quando non riuscivo a dire di sì a Pina Galdi. È tornato quarantuno volte in un anno. Le ho contate.»
 
-Guardò lo schermo. Elio aveva aperto gli occhi.
+Guardò lo schermo. Aurelio aveva aperto gli occhi.
 
-«Sembra poco, saperlo» disse Stefano. «Ed è moltissimo. Un ostacolo che sai nominare è un ostacolo su cui puoi agire. Quasi nessuno arriva a nominare il proprio. Resta una sensazione vaga di fatica, che si scarica sulle circostanze e sulle persone. Sulla banca. Su Ferri. Sul mercato.» Sorrise. «Se a quel punto lo sapete dire, il metodo ha funzionato. Non vi promette altro. Ed è il criterio di Elio, non un risultato garantito.»
+«Sembra poco, saperlo» disse Stefano. «Ed è moltissimo. Un ostacolo che sai nominare è un ostacolo su cui puoi agire. Quasi nessuno arriva a nominare il proprio. Resta una sensazione vaga di fatica, che si scarica sulle circostanze e sulle persone. Sulla banca. Su Ferri. Sul mercato.» Sorrise. «Se a quel punto lo sapete dire, il metodo ha funzionato. Non vi promette altro. Ed è il criterio di Aurelio, non un risultato garantito.»
 
-«Se qualcuno vi promette di più» disse la voce di Elio dal portatile, un po' metallica, «diffidate.»
+«Se qualcuno vi promette di più» disse la voce di Aurelio dal portatile, un po' metallica, «diffidate.»
 
 Risero tutti.
 
@@ -5652,21 +5652,21 @@ Gino schiarì la voce.
 
 ---
 
-Alla fine della serata, quando gli altri erano già sul lungomare, Stefano rimase a chiudere il portatile di Ivo. Elio era ancora collegato.
+Alla fine della serata, quando gli altri erano già sul lungomare, Stefano rimase a chiudere il portatile di Ivo. Aurelio era ancora collegato.
 
-«Tre minuti e quattro secondi» disse Elio. «Ha sforato.»
+«Tre minuti e quattro secondi» disse Aurelio. «Ha sforato.»
 
 «I quattro secondi erano per Salvatore.»
 
-Elio rise, e la risata diventò un colpo di tosse, e poi si calmò.
+Aurelio rise, e la risata diventò un colpo di tosse, e poi si calmò.
 
 «Lei mi ha chiesto, un anno fa, perché insegno» disse piano, dallo schermo. «Adesso lo sa.»
 
-Stefano non rispose. Guardò la faccia di Elio sullo schermo, piccola, grigia, illuminata dalla luce del tramonto che entrava dalla finestra di Sapri. Pensò che era a trecento metri, e che domattina sarebbe andato da lui a portargli il caffè, come ogni mattina da quando era tornato dall'ospedale.
+Stefano non rispose. Guardò la faccia di Aurelio sullo schermo, piccola, grigia, illuminata dalla luce del tramonto che entrava dalla finestra di Sapri. Pensò che era a trecento metri, e che domattina sarebbe andato da lui a portargli il caffè, come ogni mattina da quando era tornato dall'ospedale.
 
 «Domattina vengo alle sette» disse.
 
-«Venga alle sei» disse Elio. «Sono un'allodola.»
+«Venga alle sei» disse Aurelio. «Sono un'allodola.»
 
 ---
 
@@ -5674,7 +5674,7 @@ Quella sera, a Torraca, Stefano copiò a mano, sulla prima pagina libera del tac
 
 Poi chiuse il taccuino, e lo riaprì all'ultima pagina scritta, e scrisse la riga del mattino del giorno dopo.
 
-*il caffè a Elio, alle sei.*
+*il caffè a Aurelio, alle sei.*
 
 ## Capitolo 35 — Congedo
 
@@ -5684,17 +5684,17 @@ Poi chiuse il taccuino, e lo riaprì all'ultima pagina scritta, e scrisse la rig
 
 ---
 
-Per tutto luglio, Stefano portò il caffè a Elio alle sei.
+Per tutto luglio, Stefano portò il caffè a Aurelio alle sei.
 
-Lo preparava a Torraca, con la moka, dopo aver scritto la sua riga. Lo versava in un thermos, guidava fino a Sapri con i finestrini abbassati, entrava dal cancello che Elio lasciava aperto. Le prime mattine lo trovava a letto, con i tre cuscini dietro la schiena. Poi, dalla seconda settimana, sulla sdraio in terrazza, con la coperta sulle gambe e lo sguardo sul golfo che si accendeva. Bevevano il caffè in due bicchierini di plastica, come la prima mattina sul *Lucilio*. Parlavano poco. A volte niente.
+Lo preparava a Torraca, con la moka, dopo aver scritto la sua riga. Lo versava in un thermos, guidava fino a Sapri con i finestrini abbassati, entrava dal cancello che Aurelio lasciava aperto. Le prime mattine lo trovava a letto, con i tre cuscini dietro la schiena. Poi, dalla seconda settimana, sulla sdraio in terrazza, con la coperta sulle gambe e lo sguardo sul golfo che si accendeva. Bevevano il caffè in due bicchierini di plastica, come la prima mattina sul *Lucilio*. Parlavano poco. A volte niente.
 
-Il cardiologo, alla visita di controllo, aveva detto che il cuore stava rispondendo meglio del previsto. Che il danno c'era, e sarebbe rimasto, ma che con le medicine, la dieta e un po' di giudizio un uomo testardo poteva campare ancora parecchio. «Un po' di giudizio» aveva ripetuto Rosa in macchina, guardando Elio dallo specchietto. «Hai sentito? Giudizio.»
+Il cardiologo, alla visita di controllo, aveva detto che il cuore stava rispondendo meglio del previsto. Che il danno c'era, e sarebbe rimasto, ma che con le medicine, la dieta e un po' di giudizio un uomo testardo poteva campare ancora parecchio. «Un po' di giudizio» aveva ripetuto Rosa in macchina, guardando Aurelio dallo specchietto. «Hai sentito? Giudizio.»
 
-«Ne ho sempre avuto» aveva detto Elio. «Lo usavo per gli altri.»
+«Ne ho sempre avuto» aveva detto Aurelio. «Lo usavo per gli altri.»
 
 ---
 
-Una mattina Elio gli chiese di leggergli le sue righe dell'ultima settimana. Stefano lo fece, ad alta voce, e Elio ascoltò a occhi chiusi.
+Una mattina Aurelio gli chiese di leggergli le sue righe dell'ultima settimana. Stefano lo fece, ad alta voce, e Aurelio ascoltò a occhi chiusi.
 
 «Non gliele correggo» disse alla fine. «Sono belle. Brutte e belle.»
 
@@ -5704,13 +5704,13 @@ Un'altra mattina gli chiese di sedersi più vicino, e gli diede il suo taccuino 
 
 «Non posso. È suo.»
 
-«Lo legga adesso. Davanti a me.» Elio sorrise. «Per un mese ho pensato che le avrei detto di leggerlo dopo. Poi mi sono accorto che *dopo* è la parola preferita della ruggine.»
+«Lo legga adesso. Davanti a me.» Aurelio sorrise. «Per un mese ho pensato che le avrei detto di leggerlo dopo. Poi mi sono accorto che *dopo* è la parola preferita della ruggine.»
 
 ---
 
 Stefano lo lesse lì, sulla terrazza, con il sole che saliva.
 
-Il taccuino nero era pieno. Non di righe del mattino e della sera: quelle, Elio le teneva altrove. Era pieno di cose raccolte in quarant'anni. Le cento righe del mattino di persone vere, quelle che aveva copiato per lui l'anno prima. Le citazioni di Seneca in latino, con la traduzione accanto. I nomi degli studi, con gli autori e gli anni, e accanto, in rosso, le correzioni, quando uno studio veniva ridimensionato. *Danziger 2011 — ma vedi Weinshall-Margel. Esaurimento dell'io — non regge. 21 giorni — Maltz, chirurgia plastica, NON abitudini.* Un uomo che aveva passato la vita a controllare le proprie fonti.
+Il taccuino nero era pieno. Non di righe del mattino e della sera: quelle, Aurelio le teneva altrove. Era pieno di cose raccolte in quarant'anni. Le cento righe del mattino di persone vere, quelle che aveva copiato per lui l'anno prima. Le citazioni di Seneca in latino, con la traduzione accanto. I nomi degli studi, con gli autori e gli anni, e accanto, in rosso, le correzioni, quando uno studio veniva ridimensionato. *Danziger 2011 — ma vedi Weinshall-Margel. Esaurimento dell'io — non regge. 21 giorni — Maltz, chirurgia plastica, NON abitudini.* Un uomo che aveva passato la vita a controllare le proprie fonti.
 
 E poi c'erano i nomi. Decine di nomi, uno per pagina, a volte con una data. *Daniele, 2004.* *La parrucchiera di Maratea, 2011.* *Il caposquadra degli impianti, 2015.* E l'ultimo: *Stefano Ardenzi, figlio di Vincenzo. Molo di Sapri, maggio. Fumava.*
 
@@ -5726,11 +5726,11 @@ Stefano rimase con il taccuino aperto sulle ginocchia.
 
 «Chi è Ada?»
 
-«La mia maestra. Una donna di Napoli che negli anni Ottanta portava nelle aule d'Italia cose che allora non insegnava nessuno. Come si parla in pubblico, come si guida un gruppo, come si sta con le persone. Io ero un informatico che sapeva parlare solo con i computer. Mi ha preso come allievo, poi come collaboratore, poi come amico.» Elio guardò il mare. «Ha ottantun anni, vive a Ischia, e mi telefona il primo del mese per sapere se faccio ancora i compiti.»
+«La mia maestra. Una donna di Napoli che negli anni Ottanta portava nelle aule d'Italia cose che allora non insegnava nessuno. Come si parla in pubblico, come si guida un gruppo, come si sta con le persone. Io ero un informatico che sapeva parlare solo con i computer. Mi ha preso come allievo, poi come collaboratore, poi come amico.» Aurelio guardò il mare. «Ha ottantun anni, vive a Ischia, e mi telefona il primo del mese per sapere se faccio ancora i compiti.»
 
 Rise, e la risata non diventò tosse. Stefano se ne accorse, e non disse niente.
 
-«Quella dedica l'ho scritta la seconda notte in coronarica» disse Elio. «Pensavo che sarebbe stata l'ultima cosa che scrivevo. Volevo lasciare una riga sola alle persone a cui voglio bene. Gliel'avevo detto in barca, a ottobre, ricorda? *Non fermatevi.*»
+«Quella dedica l'ho scritta la seconda notte in coronarica» disse Aurelio. «Pensavo che sarebbe stata l'ultima cosa che scrivevo. Volevo lasciare una riga sola alle persone a cui voglio bene. Gliel'avevo detto in barca, a ottobre, ricorda? *Non fermatevi.*»
 
 «E adesso?»
 
@@ -5738,27 +5738,27 @@ Rise, e la risata non diventò tosse. Stefano se ne accorse, e non disse niente.
 
 ---
 
-Fu quella mattina che Elio gli disse la cosa per cui, Stefano lo capì dopo, aveva aspettato di stare abbastanza bene.
+Fu quella mattina che Aurelio gli disse la cosa per cui, Stefano lo capì dopo, aveva aspettato di stare abbastanza bene.
 
 «Le devo dire un'ultima cosa. Non è una tecnica, e non deve farci niente. È un congedo.»
 
 Stefano sentì una stretta al petto.
 
-«Non quel congedo» disse Elio, vedendogli la faccia. «Non ho fretta. Il cardiologo dice che con un po' di giudizio ne ho ancora per un pezzo, e intendo smentire chi dice che non ne ho.» Si sistemò la coperta. «Mi congedo da un'altra cosa. Dal fare il maestro.»
+«Non quel congedo» disse Aurelio, vedendogli la faccia. «Non ho fretta. Il cardiologo dice che con un po' di giudizio ne ho ancora per un pezzo, e intendo smentire chi dice che non ne ho.» Si sistemò la coperta. «Mi congedo da un'altra cosa. Dal fare il maestro.»
 
 «Perché?»
 
-«Perché a giugno, nel corridoio dell'ospedale, Rosa si ripeteva le quattro domande mentre veniva da me con l'aspirina. Perché lei, il primo giovedì di luglio, ha condotto la comunità meglio di come l'avrei condotta io, e ha sforato di quattro secondi per un ragazzo di diciannove anni. Perché Ivo ha detto al suo capo come funziona. Perché Mela insegna a cucire il martedì e Gino ha un apprendista.» Elio sorrise. «Un allenatore che resta in campo quando la squadra sa giocare non è un allenatore. È uno che non sa andarsene.»
+«Perché a giugno, nel corridoio dell'ospedale, Rosa si ripeteva le quattro domande mentre veniva da me con l'aspirina. Perché lei, il primo giovedì di luglio, ha condotto la comunità meglio di come l'avrei condotta io, e ha sforato di quattro secondi per un ragazzo di diciannove anni. Perché Ivo ha detto al suo capo come funziona. Perché Mela insegna a cucire il martedì e Gino ha un apprendista.» Aurelio sorrise. «Un allenatore che resta in campo quando la squadra sa giocare non è un allenatore. È uno che non sa andarsene.»
 
 «Ma la comunità…»
 
-«La comunità va avanti. Con lei a capotavola. Io vengo il primo giovedì, mi siedo nel mio angolo con la camomilla, e ascolto. Come ho sempre fatto.» Elio indicò il porto, giù in fondo. «E la barca è dei giovedì. L'ho scritto su un foglio e l'ho fatto firmare a Rosa come testimone, perché lei è l'unica di cui mi fido con le carte. Chi la usa, la cura.»
+«La comunità va avanti. Con lei a capotavola. Io vengo il primo giovedì, mi siedo nel mio angolo con la camomilla, e ascolto. Come ho sempre fatto.» Aurelio indicò il porto, giù in fondo. «E la barca è dei giovedì. L'ho scritto su un foglio e l'ho fatto firmare a Rosa come testimone, perché lei è l'unica di cui mi fido con le carte. Chi la usa, la cura.»
 
 ---
 
 Ci ripensò per tutto il giorno, Stefano. Ci ripensò la sera, sul balcone di Torraca, con Giulia accanto che gli teneva la mano.
 
-Elio gli aveva detto una cosa, sulla terrazza, prima che se ne andasse. L'aveva detta guardando il golfo, come se parlasse a qualcun altro.
+Aurelio gli aveva detto una cosa, sulla terrazza, prima che se ne andasse. L'aveva detta guardando il golfo, come se parlasse a qualcun altro.
 
 «Per trent'anni ho pensato che l'unico modo per onorare una persona che non c'è più fosse usare i giorni che a lei sono stati tolti, e a me no. Pietro. È da lì che è nato tutto.» Si era fermato. «A giugno, per una notte, ho pensato che i miei fossero finiti. E invece me ne hanno restituiti altri. Non so quanti. Nessuno lo sa, di nessuno. Ma questi non li spreco. Neanche uno.»
 
@@ -5768,9 +5768,9 @@ Non per farlo produrre di più. Non per farlo diventare un consulente di success
 
 ---
 
-Mi piace pensare, aveva detto Elio una volta, sul molo, che le cose che impariamo da qualcuno non si fermano a noi. Continuano a passare di mano.
+Mi piace pensare, aveva detto Aurelio una volta, sul molo, che le cose che impariamo da qualcuno non si fermano a noi. Continuano a passare di mano.
 
-Ada aveva insegnato a Elio. Elio aveva insegnato a Daniele, alla parrucchiera di Maratea, al caposquadra degli impianti, a Stefano. E Stefano, il primo giovedì di luglio, aveva fatto scivolare un taccuino nero da quattro euro e cinquanta verso un ragazzo di diciannove anni che si chiamava Salvatore.
+Ada aveva insegnato a Aurelio. Aurelio aveva insegnato a Daniele, alla parrucchiera di Maratea, al caposquadra degli impianti, a Stefano. E Stefano, il primo giovedì di luglio, aveva fatto scivolare un taccuino nero da quattro euro e cinquanta verso un ragazzo di diciannove anni che si chiamava Salvatore.
 
 La catena reggeva.
 
@@ -5784,9 +5784,9 @@ Matteo era a Torraca da una settimana, per l'estate, a preparare l'esame di ammi
 
 Il giorno prima Matteo gli aveva chiesto se poteva venire con lui, all'alba, al porto. Non aveva detto perché.
 
-Sul molo, seduto sulla bitta con il thermos fra le ginocchia, c'era Elio.
+Sul molo, seduto sulla bitta con il thermos fra le ginocchia, c'era Aurelio.
 
-«Non dica niente» disse Elio, prima che Stefano aprisse bocca. «Il cardiologo ha detto camminare. Ho camminato. Trecento metri, con due soste. Rosa lo sa e mi ha dato il permesso, a condizione che non spinga niente.»
+«Non dica niente» disse Aurelio, prima che Stefano aprisse bocca. «Il cardiologo ha detto camminare. Ho camminato. Trecento metri, con due soste. Rosa lo sa e mi ha dato il permesso, a condizione che non spinga niente.»
 
 «Allora spingiamo noi.»
 
@@ -5798,13 +5798,13 @@ Si fermò. Gli era venuta in mente la frase di un anno prima. *Lei fuma, io spin
 
 «Tu spingi, io spingo» disse. «Insieme.»
 
-Spinsero. Lo scafo prese il mare con un risucchio. Elio, dalla bitta, applaudì piano.
+Spinsero. Lo scafo prese il mare con un risucchio. Aurelio, dalla bitta, applaudì piano.
 
 ---
 
 Lo aiutarono a salire, piano, uno da una parte e uno dall'altra. Stefano prese il timone, per la prima volta. Il motore partì al secondo colpo, con lo stesso rumore regolare di un anno prima. Uscirono dalla darsena a passo d'uomo e si fermarono poco fuori, dove il golfo era liscio come un tavolo, con il sole che saliva dietro le montagne della Basilicata.
 
-Elio versò il caffè in tre bicchierini di plastica. A Matteo ne diede metà.
+Aurelio versò il caffè in tre bicchierini di plastica. A Matteo ne diede metà.
 
 «Sei quello della chitarra» disse. «Com'è finito il pezzo?»
 
@@ -5820,7 +5820,7 @@ Stefano lo guardò.
 
 «Uno dei tuoi. Di quelli neri.» Matteo guardava l'acqua. «Non per il metodo. Cioè, sì. Ma non perché me lo dici tu.» Si strinse nelle spalle. «È che ti ho visto. Tutto l'anno.»
 
-Stefano aveva un taccuino nuovo nella tasca della giacca. Ne portava sempre uno di riserva, da quando aveva cominciato a regalarli. Glielo diede, con una penna. Elio, a poppa, finse di guardare il faro.
+Stefano aveva un taccuino nuovo nella tasca della giacca. Ne portava sempre uno di riserva, da quando aveva cominciato a regalarli. Glielo diede, con una penna. Aurelio, a poppa, finse di guardare il faro.
 
 Matteo lo aprì alla prima pagina. Scrisse la data. Poi rimase con la penna sospesa sopra la carta, come suo padre un anno prima, nella stanza con il poster della moto.
 
@@ -5836,11 +5836,11 @@ Matteo chiuse il taccuino e se lo mise in tasca.
 
 ---
 
-Stefano guardò il golfo. Pensò a Seneca, alla prima delle sue lettere a Lucilio, quella che Elio gli aveva letto una mattina di luglio, dalla sdraio, con la voce ancora stanca. *Rivendica te stesso a te stesso. E il tempo che finora ti veniva portato via, o sottratto, o ti sfuggiva, raccoglilo e custodiscilo.*
+Stefano guardò il golfo. Pensò a Seneca, alla prima delle sue lettere a Lucilio, quella che Aurelio gli aveva letto una mattina di luglio, dalla sdraio, con la voce ancora stanca. *Rivendica te stesso a te stesso. E il tempo che finora ti veniva portato via, o sottratto, o ti sfuggiva, raccoglilo e custodiscilo.*
 
 Pensò che un anno prima, su quel molo, era un uomo a cui il tempo veniva portato via. Da una banca, da un telefono, da un gruppo di quarantadue persone che si mandavano il buongiorno. Da se stesso, soprattutto. E che adesso non era diventato un altro uomo. Era lo stesso, solo che finalmente si abitava. Non sprecava più i giorni. Non perché ogni giorno fosse memorabile: la maggior parte non lo era, e andava bene così. Ma perché ogni giorno era suo, e nessuno gliene avrebbe restituito uno.
 
-O forse sì, pensò guardando Elio a poppa, con il berretto calato sugli occhi e il bicchierino vuoto in mano. Qualche volta qualcuno te ne restituisce. E allora non li sprechi.
+O forse sì, pensò guardando Aurelio a poppa, con il berretto calato sugli occhi e il bicchierino vuoto in mano. Qualche volta qualcuno te ne restituisce. E allora non li sprechi.
 
 Pensò al bracciale d'oro che teneva nel cassetto del comodino, a Torraca, e alle tre proprietà dell'oro. Non arrugginisce. Non perde valore quando circola. Si lascia lavorare.
 
@@ -5850,13 +5850,13 @@ Tirò fuori il suo taccuino. Rilesse la riga della sera prima. Poi scrisse la ri
 
 *insegnare a Matteo il nodo del nonno. quello per la cima.*
 
-Lo insegnò, quando rientrarono, sotto gli occhi di Elio che dalla bitta correggeva a voce la posizione delle dita. Matteo lo sbagliò quattro volte. Alla quinta gli riuscì.
+Lo insegnò, quando rientrarono, sotto gli occhi di Aurelio che dalla bitta correggeva a voce la posizione delle dita. Matteo lo sbagliò quattro volte. Alla quinta gli riuscì.
 
-«Bravo» disse Elio. «Adesso insegnalo a qualcun altro. Così non te lo scordi più.»
+«Bravo» disse Aurelio. «Adesso insegnalo a qualcun altro. Così non te lo scordi più.»
 
 ---
 
-Questa è la storia dell'anno in cui Stefano Ardenzi imparò a leggere la propria vita. Non è finita, perché le vite non finiscono quando finiscono i libri. Domattina Stefano scriverà un'altra riga, e domani sera un'altra ancora, e la settimana prossima rileggerà le quattordici righe cercando la parola che torna. Qualche volta salterà dei giorni, e ricomincerà senza recuperare niente. Il primo giovedì di settembre condurrà di nuovo la comunità pensante nel retro del Bar Approdo. Nell'angolo ci sarà Elio, con la camomilla, che ascolta. Matteo suonerà il suo pezzo. E ci sarà qualcuno di nuovo, perché c'è sempre qualcuno di nuovo.
+Questa è la storia dell'anno in cui Stefano Ardenzi imparò a leggere la propria vita. Non è finita, perché le vite non finiscono quando finiscono i libri. Domattina Stefano scriverà un'altra riga, e domani sera un'altra ancora, e la settimana prossima rileggerà le quattordici righe cercando la parola che torna. Qualche volta salterà dei giorni, e ricomincerà senza recuperare niente. Il primo giovedì di settembre condurrà di nuovo la comunità pensante nel retro del Bar Approdo. Nell'angolo ci sarà Aurelio, con la camomilla, che ascolta. Matteo suonerà il suo pezzo. E ci sarà qualcuno di nuovo, perché c'è sempre qualcuno di nuovo.
 
 E tu che hai letto fin qui, adesso, puoi fare una cosa sola.
 
