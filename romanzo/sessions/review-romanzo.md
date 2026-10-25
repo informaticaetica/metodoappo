@@ -2,7 +2,7 @@
 
 > Creata: 2026-10-25
 > Ultimo aggiornamento: 2026-10-25
-> Stato: aperta (in attesa delle decisioni dell'autore sull'integrazione)
+> Stato: chiusa — tutte le correzioni applicate
 
 ## Oggetto
 `Metodo-APPO-2.0-il-romanzo.md` — Prologo (lettera al lettore) e capitoli 1–36.
@@ -173,4 +173,21 @@
 20. Il tic «per onestà» compare 11 volte: è voluto (bibbia), ma va tenuto d'occhio.
 
 ## Decisioni dell'autore
-(da compilare)
+L'autore ha chiesto di correggere tutto. Applicato:
+- 1, 7, 13, 14, 15, 17: corretti (tu, date, refuso, Bar Approdo, faro, ambulanza).
+- 2: alleggerite le lezioni nei cap. 22 (elenco delle situazioni), 23 (i tre libri), 24 (storia del Kaizen).
+- 3: nuovo episodio al cap. 24 (l'agriturismo di Ascea non paga; Aurelio ammette l'errore); Teresa lascia il metodo e Aurelio le dà ragione (cap. 17).
+- 4: al cap. 34 Aurelio rifiuta di chiamare il suo infarto «cigno nero».
+- 5: tolta la doppia apostrofe al lettore alla fine del cap. 1.
+- 6: al cap. 34 prima il 112, poi Rosa; aspirina su indicazione del 112.
+- 8: spostati gli inserti descrittivi nei cap. 7, 8, 15.
+- 9: espediente «l'immagine che uso da anni» ridotto a due occorrenze (cap. 7 e 23).
+- 10: cap. 36 rovesciato: è Matteo a insegnare il nodo al padre.
+- 11: riga della sera nel Prologo allineata al metodo.
+- 12: nuova scena di Giulia al cap. 30 (la sua parola, *da sola*).
+- 16: 1804 → «inizio dell'Ottocento»; traghetto, castello, palazzo baronale e corso Italia resi generici.
+- 18: cautela sulla media QuDiVi di Giulia (cap. 24).
+- 19: Ivo chiede il permesso prima di leggere (cap. 28).
+- 20: lasciato invariato (tratto voluto del personaggio).
+- Spiegati in mezza riga alcuni riferimenti locali (Pastena, Salernitana, Cilentana).
+- Non modificate le citazioni d'apertura (tutte maschili): vengono dall'edizione saggistica.
