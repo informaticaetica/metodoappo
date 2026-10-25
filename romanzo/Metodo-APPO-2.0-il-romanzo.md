@@ -71,7 +71,7 @@
 
 ## Come leggere questo romanzo
 
-Questo libro racconta il metodo APPO 2.0 attraverso un anno nella vita di Stefano Russo, un bancario di quarantotto anni che perde il lavoro e torna nel Cilento, dove incontra Elio Marzano, l'uomo che gli insegnerà il metodo un gesto alla volta.
+Questo libro racconta il metodo APPO 2.0 attraverso un anno nella vita di Stefano Ardenzi, un bancario di quarantotto anni che perde il lavoro e torna nel Cilento, dove incontra Elio Ravasini, l'uomo che gli insegnerà il metodo un gesto alla volta.
 
 I capitoli seguono lo stesso ordine del metodo. Ogni capitolo conserva il titolo e la citazione d'apertura dell'edizione saggistica e porta una sola idea, che qui prende la forma di una scena, di un dialogo o di una riga scritta sul taccuino. La prima parte racconta come si impara il metodo; la seconda perché è fatto così; la chiusura lo rimette in fila in tre minuti.
 
@@ -145,7 +145,7 @@ Marco Costanzo
 
 ---
 
-Il martedì in cui finì tutto, Stefano Russo si svegliò alle sei e quaranta, come ogni martedì da ventidue anni.
+Il martedì in cui finì tutto, Stefano Ardenzi si svegliò alle sei e quaranta, come ogni martedì da ventidue anni.
 
 Fece la doccia, si annodò la cravatta blu, quella che Giulia diceva che lo faceva sembrare più giovane, e scese a prendere il caffè al bar sotto casa, a Pastena. Il barista gli chiese della Salernitana, lui rispose qualcosa sulla difesa, e mentre aspettava lo scontrino accese la prima sigaretta della giornata. Era la stessa sigaretta da trent'anni: quella che aveva giurato di lasciare già tre volte.
 
@@ -209,9 +209,9 @@ Matteo, dall'altro capo del tavolo, non disse niente. Ma per un istante guardò 
 
 Partì il giovedì mattina, con la Golf grigia e due borse.
 
-L'autostrada fino a Battipaglia la conosceva a memoria; poi la statale per il Cilento, i tornanti, il mare che compariva e spariva fra gli ulivi. Dopo Sapri, il Golfo di Policastro si aprì tutto insieme, azzurro e immobile, con le montagne della Basilicata e della Calabria che lo chiudevano come le mani di qualcuno che tiene un po' d'acqua. Stefano abbassò il finestrino. L'aria sapeva di sale e di fieno. Si accorse che non accendeva una sigaretta da un'ora, e la accese.
+L'autostrada fino a Battipaglia la conosceva a memoria; poi la statale per il Cilento, i tornanti, il mare che compariva e spariva fra gli ulivi. A Sapri, il Golfo di Policastro si aprì tutto insieme, azzurro e immobile, con le montagne della Basilicata e della Calabria che lo chiudevano come le mani di qualcuno che tiene un po' d'acqua. Poi la strada lasciò il mare e salì per tornanti fra gli ulivi, e a ogni curva il golfo tornava a comparire, più in basso e più grande. Stefano abbassò il finestrino. L'aria sapeva di sale e di fieno. Si accorse che non accendeva una sigaretta da un'ora, e la accese.
 
-A Policastro Bussentino suo padre lo aspettava sul portone, in canottiera, appoggiato al bastone che si rifiutava di chiamare bastone. Vincenzo Russo aveva settantanove anni, mani da falegname e la stessa faccia di quando Stefano era bambino, solo più asciutta. Lo abbracciò senza dire niente, poi gli diede una pacca sulla spalla, una sola.
+A Torraca, in cima alla salita, suo padre lo aspettava sul portone, in canottiera, appoggiato al bastone che si rifiutava di chiamare bastone. Vincenzo Ardenzi aveva settantanove anni, mani da falegname e la stessa faccia di quando Stefano era bambino, solo più asciutta. Lo abbracciò senza dire niente, poi gli diede una pacca sulla spalla, una sola.
 
 «Hai fatto bene a venire.»
 
@@ -239,7 +239,7 @@ Non gli mancava la forza di volontà, che in fondo per ventidue anni non gli era
 
 ---
 
-Questo è il racconto dell'anno in cui Stefano Russo imparò a leggere la propria vita.
+Questo è il racconto dell'anno in cui Stefano Ardenzi imparò a leggere la propria vita.
 
 Non è la storia di un uomo che diventa ricco, e nemmeno di uno che cambia tutto in trenta giorni. Nessuno, in queste pagine, si carica a comando o scopre di poter fare qualunque cosa. Ci saranno giornate storte, settimane da tre su dieci, periodi in cui Stefano mollerà. Ci saranno medici e professionisti, quando serviranno, perché certe porte non si aprono con nessun grimaldello.
 
@@ -265,7 +265,7 @@ Fuori, il golfo era nero e il faro sul promontorio girava piano, sempre nello st
 
 ---
 
-La terza sera a Policastro saltò la corrente.
+La terza sera a Torraca saltò la corrente.
 
 Stefano era in cucina, stava lavando i piatti, e all'improvviso si trovò al buio con le mani nell'acqua tiepida. Il frigorifero tacque, la televisione di là si spense a metà di una frase del telegiornale. Stefano si asciugò le mani sui pantaloni e restò fermo, con il telefono in mano e la torcia accesa, a girare su se stesso.
 
@@ -281,7 +281,7 @@ Tornò in cucina e finì di lavare i piatti, e quella sciocchezza non se la tols
 
 ---
 
-Alle cinque e mezza del mattino dopo era già sveglio. Non per scelta: da quando era successo, dormiva a pezzi, e le ultime ore della notte le passava a fissare il soffitto. Si vestì piano per non svegliare suo padre, prese la macchina e guidò fino a Scario, a pochi chilometri, dove il paese finisce sul mare con un porticciolo di barche da pesca e un lungomare di case colorate.
+Alle cinque e mezza del mattino dopo era già sveglio. Non per scelta: da quando era successo, dormiva a pezzi, e le ultime ore della notte le passava a fissare il soffitto. Si vestì piano per non svegliare suo padre, prese la macchina e scese per i tornanti fino a Sapri, dove il paese finisce sul mare con un porto di barche da pesca e un lungomare di case colorate.
 
 Si sedette sul muretto del molo e accese una sigaretta. Il golfo era liscio come un tavolo. Il cielo, sopra le montagne, stava diventando di un rosa sporco.
 
@@ -291,11 +291,11 @@ A una decina di metri da lui, un uomo anziano armeggiava con un gozzo di legno, 
 
 Stefano spense la sigaretta e si avvicinò. Insieme spinsero il gozzo finché lo scafo non prese il mare con un risucchio. Sulla fiancata, a lettere nere un po' scrostate, c'era scritto un nome: *Lucilio*.
 
-«Elio» disse l'uomo, tendendogli la mano. Aveva una stretta asciutta. «Elio Marzano. Lei è il figlio di Vincenzo Russo. Il bancario.»
+«Elio» disse l'uomo, tendendogli la mano. Aveva una stretta asciutta. «Elio Ravasini. Lei è il figlio di Vincenzo Ardenzi. Il bancario.»
 
 «Come fa a saperlo?»
 
-«Scario è piccola, e suo padre mi ha fatto la libreria vent'anni fa. Ancora regge.» Elio montò sulla barca con una agilità che Stefano non si aspettava. «Viene? Faccio un giro fino alla punta e torno. Un'ora.»
+«Qui ci si conosce tutti, e suo padre mi ha fatto la libreria vent'anni fa. Ancora regge.» Elio montò sulla barca con una agilità che Stefano non si aspettava. «Viene? Faccio un giro fino alla punta e torno. Un'ora.»
 
 Stefano non sapeva perché disse di sì. Forse perché l'alternativa era tornare a fissare il soffitto.
 
@@ -387,7 +387,7 @@ Stefano pensò ai trecentosessanta euro che aveva dato, due gennaio fa, a una pa
 
 ---
 
-Mentre tornavano, con il sole ormai alto e il porto di Scario che si avvicinava, Elio gli diede il primo compito. Non lo chiamò compito: lo chiamò gesto.
+Mentre tornavano, con il sole ormai alto e il porto di Sapri che si avvicinava, Elio gli diede il primo compito. Non lo chiamò compito: lo chiamò gesto.
 
 «Stasera, prima di dormire, prenda un quaderno qualunque e scriva una sola riga per rispondere a questa domanda: *che cosa mi ha ostacolato, oggi?* Non deve essere una frase bella né profonda. Deve soltanto esistere.»
 
@@ -437,7 +437,7 @@ Chiuse il taccuino.
 
 ---
 
-Quella sera, a Policastro, dopo cena, Stefano tirò fuori dal cassetto del comodino il vecchio quaderno a quadretti. Lo aprì alla quarta pagina, quella rimasta bianca la prima notte. Scrisse la data. Poi rimase un minuto con la penna sospesa.
+Quella sera, a Torraca, dopo cena, Stefano tirò fuori dal cassetto del comodino il vecchio quaderno a quadretti. Lo aprì alla quarta pagina, quella rimasta bianca la prima notte. Scrisse la data. Poi rimase un minuto con la penna sospesa.
 
 *Che cosa mi ha ostacolato, oggi?*
 
@@ -461,7 +461,7 @@ Non sapeva ancora che era la prima riga del suo metodo. Sapeva soltanto che era 
 
 ---
 
-La casa di Elio era l'ultima del lungomare di Scario, prima che la strada salisse verso la collina. Due stanze al piano terra, una terrazza con un pergolato di vite e un tavolo di legno grezzo, e dentro, su un'intera parete, la libreria che Vincenzo Russo aveva costruito vent'anni prima. Stefano la riconobbe subito: gli incastri a coda di rondine, i ripiani spessi, la vernice opaca che suo padre preparava da sé. Era piena fino all'ultimo centimetro.
+La casa di Elio era l'ultima del lungomare di Sapri, prima che la strada salisse verso la collina. Due stanze al piano terra, una terrazza con un pergolato di vite e un tavolo di legno grezzo, e dentro, su un'intera parete, la libreria che Vincenzo Ardenzi aveva costruito vent'anni prima. Stefano la riconobbe subito: gli incastri a coda di rondine, i ripiani spessi, la vernice opaca che suo padre preparava da sé. Era piena fino all'ultimo centimetro.
 
 «Ancora regge» disse Elio, vedendolo guardare. «Come le avevo detto.»
 
@@ -641,9 +641,9 @@ Il martedì Stefano accompagnò suo padre dal medico, a Sapri.
 
 Era una visita di controllo, di quelle che Vincenzo rimandava da mesi e che Stefano, adesso che aveva tempo, aveva prenotato d'autorità. In sala d'attesa suo padre lesse da cima a fondo un settimanale di due anni prima, sbuffando. Quando li chiamarono, entrò con il passo di chi va a un interrogatorio.
 
-Il dottor Mazzei era un uomo giovane, gentile, con gli occhiali sulla fronte.
+Il dottor Fontanesi era un uomo giovane, gentile, con gli occhiali sulla fronte.
 
-«Allora, signor Russo, come andiamo?»
+«Allora, signor Ardenzi, come andiamo?»
 
 «Bene. Un po' di mal di stomaco, ogni tanto. Niente.»
 
@@ -655,7 +655,7 @@ Stefano, seduto sulla sedia accanto, si voltò di scatto. Tre notti prima aveva 
 
 «Da gennaio, papà» disse Stefano.
 
-Vincenzo lo fulminò con lo sguardo. Ci fu un silenzio lungo. Poi, piano, con una voce che Stefano non gli conosceva, suo padre raccontò tutto: le notti, il caffè, il latte, e anche il resto. Il dottor Mazzei smise di sorridere, abbassò gli occhiali sul naso e prese il ricettario.
+Vincenzo lo fulminò con lo sguardo. Ci fu un silenzio lungo. Poi, piano, con una voce che Stefano non gli conosceva, suo padre raccontò tutto: le notti, il caffè, il latte, e anche il resto. Il dottor Fontanesi smise di sorridere, abbassò gli occhiali sul naso e prese il ricettario.
 
 Uscirono con un'impegnativa per una gastroscopia urgente.
 
@@ -685,7 +685,7 @@ Più tardi, mentre il sole si abbassava, Elio gli fece la domanda che Stefano av
 
 «Mi sa dire, in una riga sola, dove vuole arrivare nei prossimi sei mesi?»
 
-Stefano aprì la bocca per rispondere e la richiuse. *Trovare un lavoro*, pensò. Ma che lavoro? In un'altra banca, dove l'avrebbero preso a quarantotto anni per chiudere un'altra filiale fra tre anni? Nella consulenza? Dove? A Salerno, a Policastro? *Stare meglio*, pensò. Ma meglio come?
+Stefano aprì la bocca per rispondere e la richiuse. *Trovare un lavoro*, pensò. Ma che lavoro? In un'altra banca, dove l'avrebbero preso a quarantotto anni per chiudere un'altra filiale fra tre anni? Nella consulenza? Dove? A Salerno, a Torraca? *Stare meglio*, pensò. Ma meglio come?
 
 «Non lo so» disse alla fine.
 
@@ -775,7 +775,7 @@ Tirò fuori dalla tasca un coltellino da pesca e lo fece scorrere due volte, con
 
 ---
 
-Quella sera, a Policastro, Vincenzo andò a letto presto, senza cena. Stefano lo sentì tossire attraverso la parete.
+Quella sera, a Torraca, Vincenzo andò a letto presto, senza cena. Stefano lo sentì tossire attraverso la parete.
 
 Aprì il quaderno. Fece l'esercizio che Elio gli aveva lasciato. In cima alla pagina scrisse la frase con cui, in quei giorni, descriveva a tutti il problema che gli pesava di più, esattamente come la diceva al telefono:
 
@@ -793,7 +793,7 @@ E infine togliendo ciò che lo proteggeva dalla paura:
 
 *Ho paura che senza la banca io non sappia fare niente.*
 
-Confrontò la prima frase con l'ultima. Erano lontane come Milano e Policastro. Era quella, la distanza. La misura dell'ulcera che aveva chiamato mal di stomaco.
+Confrontò la prima frase con l'ultima. Erano lontane come Milano e Torraca. Era quella, la distanza. La misura dell'ulcera che aveva chiamato mal di stomaco.
 
 Sotto, scrisse la riga della sera:
 
@@ -863,7 +863,7 @@ Elio non commentò. Lasciò che la frase restasse lì, sull'aria, e dopo un po' 
 
 ---
 
-Quel sabato Giulia scese a Policastro per il fine settimana.
+Quel sabato Giulia scese a Torraca per il fine settimana.
 
 Arrivò alle dieci di sera, dopo una giornata di scrutini, con il bagagliaio pieno di vestiti per Stefano e di cibo per Vincenzo. Matteo non era venuto: aveva un compleanno. Giulia abbracciò il suocero, mangiò in piedi un piatto di pasta fredda, e verso mezzanotte, sul balcone, mentre Stefano fumava, si mise a piangere senza preavviso.
 
@@ -915,7 +915,7 @@ Tirò fuori dalla tasca il taccuino nero e lo sfogliò. Stefano cominciava a cap
 
 «Non serve liberare un'ora. Serve un minuto, purché sia sempre lo stesso.» Elio indicò il bar sul lungomare, dove il barista stava mettendo fuori i tavolini. «Primo: trovi un momento che esiste già nella sua giornata e che si ripete sempre. Il caffè, il motore spento nel parcheggio, i cinque minuti prima di spegnere la luce. Secondo: non aggiunga il gesto nuovo a un momento qualsiasi. Lo agganci a quel momento. Le cose nuove si dimenticano; quelle agganciate a cose vecchie, molto meno. Terzo: lo difenda come difenderebbe un appuntamento dal medico, che nessuno le chiederebbe di spostare.»
 
-Stefano pensò alla moka. Ogni mattina, da quando era a Policastro, la preparava per sé e per suo padre: acqua, polvere, il gas acceso. Poi tre minuti di attesa, durante i quali, invariabilmente, prendeva il telefono.
+Stefano pensò alla moka. Ogni mattina, da quando era a Torraca, la preparava per sé e per suo padre: acqua, polvere, il gas acceso. Poi tre minuti di attesa, durante i quali, invariabilmente, prendeva il telefono.
 
 «Mentre sale il caffè» disse.
 
@@ -1161,7 +1161,7 @@ Stefano ci pensò.
 
 La prima sorpresa Stefano la scoprì due giorni dopo, da solo.
 
-Il mercoledì fu la giornata più piena da quando era a Policastro. Si alzò alle sei e mezza, mandò quattordici candidature, compilò due test attitudinali online, telefonò all'ufficio del personale della vecchia banca per una questione di contributi, rimase in attesa quaranta minuti, risolse. Poi la spesa, la farmacia per suo padre, una mail lunghissima al sindacato. Alle undici di sera aveva spuntato tutto quello che aveva scritto su un foglietto: diciassette voci.
+Il mercoledì fu la giornata più piena da quando era a Torraca. Si alzò alle sei e mezza, mandò quattordici candidature, compilò due test attitudinali online, telefonò all'ufficio del personale della vecchia banca per una questione di contributi, rimase in attesa quaranta minuti, risolse. Poi la spesa, la farmacia per suo padre, una mail lunghissima al sindacato. Alle undici di sera aveva spuntato tutto quello che aveva scritto su un foglietto: diciassette voci.
 
 Aprì il quaderno. *Quanto è stata degna di essere vissuta questa giornata?*
 
@@ -1279,7 +1279,7 @@ Stefano non ci aveva creduto. Si sentiva lanciato. Una settimana intera di righe
 
 Smise il quattro luglio, e non se ne accorse.
 
-Il tre luglio Giulia e Matteo arrivarono a Policastro con la macchina carica fino al tettuccio: valigie, la chitarra, un ventilatore, due borse di libri che Giulia si era portata per l'estate e che non avrebbe aperto. La casa di Vincenzo, che per un mese era stata silenziosa come una chiesa, si riempì di voci, di porte, di musica dalle cuffie di Matteo che si sentiva lo stesso. Stefano dormì sul divano letto con Giulia, perché nella sua vecchia stanza ci andò Matteo.
+Il tre luglio Giulia e Matteo arrivarono a Torraca con la macchina carica fino al tettuccio: valigie, la chitarra, un ventilatore, due borse di libri che Giulia si era portata per l'estate e che non avrebbe aperto. La casa di Vincenzo, che per un mese era stata silenziosa come una chiesa, si riempì di voci, di porte, di musica dalle cuffie di Matteo che si sentiva lo stesso. Stefano dormì sul divano letto con Giulia, perché nella sua vecchia stanza ci andò Matteo.
 
 Il quattro mattina si svegliò alle nove, con Matteo che chiedeva dove fosse il caricabatterie e Vincenzo che chiedeva dove fossero finiti i suoi occhiali. La moka la fece Giulia. Il quaderno era rimasto nel cassetto del comodino della vecchia stanza, dove adesso dormiva Matteo.
 
@@ -1339,7 +1339,7 @@ Stefano rimase in silenzio. Gli sembrava una spiegazione troppo semplice. Poi gl
 
 Quel pomeriggio, mentre Stefano aspettava suo padre fuori dall'ambulatorio di Sapri per il controllo dopo la reazione, un'infermiera uscì a fumare nel cortile. Aveva una cinquantina d'anni, i capelli raccolti in una crocchia e la faccia di chi ha finito un turno di notte e ne sta per cominciare uno di pomeriggio. Stefano le chiese l'accendino, lei glielo prestò, e si misero a parlare come si parla fra fumatori, cioè subito e di tutto.
 
-Si chiamava Rosa Amato, lavorava in medicina, aveva un figlio grande a Bologna. Quando Stefano le raccontò, un po' per scherzo, che un signore di Scario gli faceva scrivere due righe al giorno su un quaderno, lei rise di gusto.
+Si chiamava Rosa Amato, lavorava in medicina, aveva un figlio grande a Bologna. Quando Stefano le raccontò, un po' per scherzo, che un signore di Sapri gli faceva scrivere due righe al giorno su un quaderno, lei rise di gusto.
 
 «Due righe al giorno. Bello. Io questa settimana ho fatto due notti, un pomeriggio, una mattina e un'altra notte. Il mio mattino è alle sei di sera, certi giorni. Tutti quei libri che ti dicono *alzati alle cinque e scrivi* io li butterei dalla finestra.»
 
@@ -1479,7 +1479,7 @@ Stefano guardò la lista. Ognuna gli sembrava indispensabile. Poi si accorse che
 
 *Parlare con Matteo.*
 
-Da quando suo figlio era arrivato a Policastro, si erano detti forse duecento parole, quasi tutte su caricabatterie, orari e piatti da lavare. Matteo passava le giornate in camera o in spiaggia con due ragazzi del paese conosciuti al bar. La sera suonava la chitarra sul terrazzo, e quando Stefano si affacciava smetteva.
+Da quando suo figlio era arrivato a Torraca, si erano detti forse duecento parole, quasi tutte su caricabatterie, orari e piatti da lavare. Matteo passava le giornate in camera o in spiaggia con due ragazzi del paese conosciuti al bar. La sera suonava la chitarra sul terrazzo, e quando Stefano si affacciava smetteva.
 
 «Questa» disse, e cancellò le altre quattro con una riga.
 
@@ -1649,7 +1649,7 @@ Raccontò di uno psicologo americano, Robert Cialdini, che nel 1984 aveva scritt
 
 «Il valore della domanda» disse Elio, «si vede quando la ripeti. Sera dopo sera.»
 
-Gli raccontò di un uomo che aveva seguito anni prima. Gestiva una piccola squadra di tecnici in un'azienda di impianti a Policastro, sei persone. Ogni sera arrivava a casa esausto senza capire perché.
+Gli raccontò di un uomo che aveva seguito anni prima. Gestiva una piccola squadra di tecnici in un'azienda di impianti a Sapri, sei persone. Ogni sera arrivava a casa esausto senza capire perché.
 
 «Nelle prime settimane le sue righe erano generiche. *Troppe cose da fare. Giornata caotica.* Verso la quarta settimana, rileggendole in fila, è venuta fuori la parola che tornava più spesso. Non era *troppo lavoro*. Era *interrotto*. Non lo stancava la quantità di compiti. Lo stancavano le interruzioni continue che gli impedivano di finire una cosa prima di passare alla successiva. Una volta visto, la soluzione era evidente: un'ora al giorno senza notifiche e con la porta chiusa.» Elio allargò le mani. «Non gliel'ha mostrato una sera. Gliel'ha mostrato la rilettura di ventotto sere in fila. Senza quelle righe, quella parola sarebbe rimasta invisibile, dispersa in una stanchezza generica.»
 
@@ -1867,7 +1867,7 @@ Prese un foglio e disegnò la scheda com'era nella sua testa. Ci mise cinque sec
 
 ---
 
-Due giorni dopo, al supermercato di Policastro, Stefano rimase cinque minuti davanti al banco dello yogurt senza riuscire a scegliere. C'erano almeno quaranta tipi diversi: magro, intero, greco, con i cereali, senza lattosio, alla vaniglia, ai frutti di bosco, proteico. Alla fine non ne prese nessuno.
+Due giorni dopo, al supermercato di Sapri, Stefano rimase cinque minuti davanti al banco dello yogurt senza riuscire a scegliere. C'erano almeno quaranta tipi diversi: magro, intero, greco, con i cereali, senza lattosio, alla vaniglia, ai frutti di bosco, proteico. Alla fine non ne prese nessuno.
 
 Glielo raccontò a Elio ridendo, e Elio annuì come se fosse la prova di un teorema.
 
@@ -2135,7 +2135,7 @@ Quella prima domenica, sul balcone, dopo aver scritto l'esperimento sull'aspetta
 
 Ci mise più che per tutto il resto. Gli vennero in mente Giulia, Elio, perfino Lorenzo Avallone. Alla fine scrisse:
 
-*grazie a papà, per aver detto la verità al dottor Mazzei quando gliel'ho chiesto. mi ha insegnato una cosa che io non so ancora fare.*
+*grazie a papà, per aver detto la verità al dottor Fontanesi quando gliel'ho chiesto. mi ha insegnato una cosa che io non so ancora fare.*
 
 Il lunedì mattina, a colazione, Vincenzo stava bagnando un biscotto nel latte, perché il caffè non poteva più berlo. Stefano si sedette di fronte a lui.
 
@@ -2165,7 +2165,7 @@ Era la seconda volta in tre mesi. In quarantotto anni, non ricordava una terza.
 
 L'ultimo giorno di agosto Stefano andò al fiume.
 
-Il Bussento sfocia nel golfo proprio sotto Policastro, dopo un viaggio lungo e strano: nasce sui monti, sparisce in un inghiottitoio, scorre per chilometri sotto la roccia, e poi riemerge a Morigerati, in una grotta, come se avesse cambiato idea. Da ragazzo, Stefano ci andava a fare il bagno con Gino e gli altri, nei laghetti verdi sotto le cascate. Non ci tornava da trent'anni.
+Il Bussento sfocia nel golfo a Torraca, a pochi chilometri da Torraca, dopo un viaggio lungo e strano: nasce sui monti, sparisce in un inghiottitoio, scorre per chilometri sotto la roccia, e poi riemerge a Morigerati, in una grotta, come se avesse cambiato idea. Da ragazzo, Stefano ci andava a fare il bagno con Gino e gli altri, nei laghetti verdi sotto le cascate. Non ci tornava da trent'anni.
 
 Ci andò da solo, la mattina presto, con il taccuino nero e quattro pagine di appunti. Elio gli aveva detto che era il giorno del primo momento mensile, e che conveniva farlo in un posto diverso dal solito.
 
@@ -2279,7 +2279,7 @@ La rilesse. Questa volta, quando la lesse, sentì qualcosa. Un tuffo, come quand
 
 ---
 
-Tornò a Policastro a mezzogiorno. Giulia stava caricando la macchina: il giorno dopo cominciava la scuola, i collegi docenti, e Matteo doveva tornare per il liceo. Ne avevano parlato a lungo, la settimana prima, sul balcone, di notte. Stefano sarebbe rimasto giù durante la settimana, almeno fino a Natale: c'era Vincenzo, c'era Lorenzo, c'era quella porta socchiusa. Il fine settimana sarebbe salito a Salerno. Non era una separazione, aveva detto Giulia, ed era stata lei a dirlo per prima. Era un esperimento. Piccolo. Da guardare dopo un mese.
+Tornò a Torraca a mezzogiorno. Giulia stava caricando la macchina: il giorno dopo cominciava la scuola, i collegi docenti, e Matteo doveva tornare per il liceo. Ne avevano parlato a lungo, la settimana prima, sul balcone, di notte. Stefano sarebbe rimasto giù durante la settimana, almeno fino a Natale: c'era Vincenzo, c'era Lorenzo, c'era quella porta socchiusa. Il fine settimana sarebbe salito a Salerno. Non era una separazione, aveva detto Giulia, ed era stata lei a dirlo per prima. Era un esperimento. Piccolo. Da guardare dopo un mese.
 
 Mentre chiudeva il bagagliaio, lei gli chiese:
 
@@ -2307,7 +2307,7 @@ Stefano rise forte, per la prima volta in tutta l'estate. Il fiume, sotto il pae
 
 Sul corso di Sapri, dove per quarant'anni c'era stato il negozio di stoffe De Luca, adesso c'era una bigiotteria. Insegna al neon rosa, vetrina piena di orecchini a cerchio, collane di plastica dorata, braccialetti a tre euro su un espositore girevole.
 
-Elio si fermò davanti alla vetrina. Era il primo martedì di settembre, e Stefano lo aveva accompagnato a Sapri a ritirare degli occhiali.
+Elio si fermò davanti alla vetrina. Era il primo martedì di settembre, e Stefano lo aveva accompagnato in centro a ritirare degli occhiali.
 
 «Guardi bene» disse Elio. «Terzo ripiano, a sinistra.»
 
@@ -2403,7 +2403,7 @@ Sì. Fabrizio. Da anni. Senza essersene mai accorto, aveva smesso di raccontargl
 
 ---
 
-Il giorno dopo, mentre camminavano sul lungomare di Scario, Elio si fermò davanti a un muro di pietra a secco che sosteneva un giardino. Dalle crepe fra le pietre uscivano cespugli di capperi, con i fiori bianchi e i lunghi stami viola.
+Il giorno dopo, mentre camminavano sul lungomare di Sapri, Elio si fermò davanti a un muro di pietra a secco che sosteneva un giardino. Dalle crepe fra le pietre uscivano cespugli di capperi, con i fiori bianchi e i lunghi stami viola.
 
 «Nessuno li ha piantati» disse. «Nessuno li guarda. Non sono meno fiori per questo.»
 
@@ -2435,7 +2435,7 @@ Stefano pensò a Rosa, l'infermiera, che la settimana prima gli aveva risposto a
 
 Stefano pensò subito a una persona precisa.
 
-Si chiamava Ivo Lamanna, aveva ventinove anni, ed era il nipote di un vecchio amico di Elio. Faceva lo sviluppatore per un'azienda di Milano, da remoto, da una casa sopra Scario. Elio glielo aveva presentato ad agosto, perché Ivo sapeva tutto di fogli di calcolo e di intelligenza artificiale, e Stefano aveva bisogno di un aiuto con un modello per il panificio. Ivo gli aveva dato il numero. Stefano gli aveva scritto quattro messaggi in tre settimane. Nessuna risposta. Letti tutti e quattro. Stefano aveva concluso che era uno dei tanti: un irraggiungibile.
+Si chiamava Ivo Lamanna, aveva ventinove anni, ed era il nipote di un vecchio amico di Elio. Faceva lo sviluppatore per un'azienda di Milano, da remoto, da una casa sopra Sapri. Elio glielo aveva presentato ad agosto, perché Ivo sapeva tutto di fogli di calcolo e di intelligenza artificiale, e Stefano aveva bisogno di un aiuto con un modello per il panificio. Ivo gli aveva dato il numero. Stefano gli aveva scritto quattro messaggi in tre settimane. Nessuna risposta. Letti tutti e quattro. Stefano aveva concluso che era uno dei tanti: un irraggiungibile.
 
 «Il segno distintivo» disse Elio, quando Stefano glielo raccontò, «è proprio quello che le ho dato. L'irraggiungibile risponde subito quando gli serve qualcosa. La persona neurodivergente, spesso, non risponde nemmeno allora, perché per lei il messaggio scritto è semplicemente un canale difficile. Ma se le telefoni, risponde. Se la vedi di persona, è completamente lì per te. Se le chiedi una mano, arriva. E se le racconti un problema, ci ragiona sopra per giorni e torna con una soluzione a cui nessuno aveva pensato.»
 
@@ -2475,7 +2475,7 @@ Stefano pensò a suo padre. *Bravo*, e continuava a mangiare.
 
 ---
 
-La prima comunità pensante di Scario si riunì il primo giovedì di ottobre, alle sette di sera, nel retro del Bar Approdo, dove il barista teneva le casse di bibite e un tavolo di formica verde.
+La prima comunità pensante di Sapri si riunì il primo giovedì di ottobre, alle sette di sera, nel retro del Bar Approdo, dove il barista teneva le casse di bibite e un tavolo di formica verde.
 
 Erano in quattro, più Elio, che si sedette in un angolo e disse che quella sera avrebbe soltanto ascoltato.
 
@@ -2513,7 +2513,7 @@ Elio telefonò alle sei.
 
 «Esce? Oggi glielo devo.»
 
-Stefano non chiese che cosa. Si vestì al buio e guidò fino a Scario con i fari accesi. Elio era già sul *Lucilio*, con il motore acceso e il thermos del caffè fra le ginocchia. Uscirono piano dalla darsena e puntarono verso il largo, dove la nebbia era più fitta. Dopo dieci minuti Elio spense il motore. Il silenzio era totale. Non si vedeva la costa.
+Stefano non chiese che cosa. Si vestì al buio e guidò fino a Sapri con i fari accesi. Elio era già sul *Lucilio*, con il motore acceso e il thermos del caffè fra le ginocchia. Uscirono piano dalla darsena e puntarono verso il largo, dove la nebbia era più fitta. Dopo dieci minuti Elio spense il motore. Il silenzio era totale. Non si vedeva la costa.
 
 «Gli strumenti li ha» disse Elio. «Da qui in avanti le racconto perché sono fatti così. E comincio da quello che le devo da giugno: da dove viene tutto questo. Senza questa storia, quello che le ho dato sarebbe soltanto una tecnica.»
 
@@ -2539,7 +2539,7 @@ Stefano pensò a Fabrizio, che lo chiamava per raccontargli le guerre d'ufficio 
 
 ---
 
-La nebbia cominciava ad alzarsi. A ovest si vedeva un pezzo di costa, grigia, con le case di Scario che sembravano disegnate a matita.
+La nebbia cominciava ad alzarsi. A ovest si vedeva un pezzo di costa, grigia, con le case di Sapri che sembravano disegnate a matita.
 
 Elio rimase zitto a lungo. Quando riprese a parlare, la voce era diversa.
 
@@ -2658,7 +2658,7 @@ La sera dopo, accanto alle quattro righe, scrisse che per almeno tre ore la gior
 
 A fine ottobre i cachi dell'albero di Vincenzo erano maturi, arancioni come lanterne contro il cielo grigio.
 
-Vincenzo, che non poteva più salire sulle scale per ordine del dottor Mazzei, guardava l'albero dalla finestra della cucina con la stessa espressione con cui un tempo guardava le partite della Salernitana. Una mattina di sabato Stefano decise di raccoglierli lui. Prese la scala di legno lunga dalla cantina, quella a pioli che suo padre aveva costruito negli anni Settanta, la portò in giardino e la appoggiò al muro.
+Vincenzo, che non poteva più salire sulle scale per ordine del dottor Fontanesi, guardava l'albero dalla finestra della cucina con la stessa espressione con cui un tempo guardava le partite della Salernitana. Una mattina di sabato Stefano decise di raccoglierli lui. Prese la scala di legno lunga dalla cantina, quella a pioli che suo padre aveva costruito negli anni Settanta, la portò in giardino e la appoggiò al muro.
 
 Salì. Era una buona scala: solida, stabile, perfettamente appoggiata. Arrivò in cima in pochi secondi.
 
@@ -2768,7 +2768,7 @@ Li disse lentamente, e Stefano, la sera, li scrisse nelle ultime pagine del tacc
 
 ---
 
-Quella sera, a Policastro, Stefano fece l'esercizio che Elio gli aveva lasciato. Divise una pagina in due colonne. In cima a sinistra scrisse *Dipende da me*; a destra, *Non dipende da me*. Poi scrisse le cinque preoccupazioni che gli occupavano di più la testa in quel periodo, ciascuna nella colonna giusta.
+Quella sera, a Torraca, Stefano fece l'esercizio che Elio gli aveva lasciato. Divise una pagina in due colonne. In cima a sinistra scrisse *Dipende da me*; a destra, *Non dipende da me*. Poi scrisse le cinque preoccupazioni che gli occupavano di più la testa in quel periodo, ciascuna nella colonna giusta.
 
 *Non dipende da me:* se il caseificio di Laurito firmerà. La salute di papà. La mamma di Giulia.
 
@@ -2870,9 +2870,9 @@ Mela fece una smorfia, poi rise.
 
 ---
 
-Quella sera, guidando verso Policastro, Stefano pensò a una cosa precisa. A Gino.
+Quella sera, guidando verso Torraca, Stefano pensò a una cosa precisa. A Gino.
 
-Gino era stato il suo migliore amico dalle elementari ai diciotto anni. I laghetti del Bussento, la prima sigaretta, la prima ragazza, le estati intere sul motorino. Poi Stefano era andato a Salerno e Gino era rimasto a Policastro, a lavorare nell'officina di suo padre. Si vedevano a Natale, si mandavano gli auguri. Da quando Stefano era tornato, a maggio, si erano incrociati tre volte al bar, e tutte e tre le volte Gino gli aveva detto la stessa frase, mezzo ridendo: *Ma tu non eri così. Tu eri quello che rideva sempre.* E Stefano se n'era andato irritato.
+Gino era stato il suo migliore amico dalle elementari ai diciotto anni. I laghetti del Bussento, la prima sigaretta, la prima ragazza, le estati intere sul motorino. Poi Stefano era andato a Salerno e Gino era rimasto a Torraca, a lavorare nell'officina di suo padre. Si vedevano a Natale, si mandavano gli auguri. Da quando Stefano era tornato, a maggio, si erano incrociati tre volte al bar, e tutte e tre le volte Gino gli aveva detto la stessa frase, mezzo ridendo: *Ma tu non eri così. Tu eri quello che rideva sempre.* E Stefano se n'era andato irritato.
 
 *Le persone più soddisfatte delle proprie relazioni a cinquant'anni sono risultate le più sane a ottanta.*
 
@@ -2966,7 +2966,7 @@ Matteo rise, ed era la seconda volta in un mese.
 
 ---
 
-Il lunedì mattina, a Policastro, Stefano mise la moka sul fuoco, rilesse la riga della domenica sera, e prima di accendere il telefono scrisse:
+Il lunedì mattina, a Torraca, Stefano mise la moka sul fuoco, rilesse la riga della domenica sera, e prima di accendere il telefono scrisse:
 
 *oggi chiamo Gino. prima delle 9.30.*
 
@@ -3308,7 +3308,7 @@ La sera, nella riga, Stefano scrisse: *Natale. I.*
 
 Ogni sera, alle nove, Stefano fumava la sigaretta che non voleva fumare.
 
-Lo aveva scoperto rileggendo le righe di dicembre. Ogni mattina, almeno tre volte alla settimana, scriveva qualcosa che riguardava il fumo: *oggi max 8*, *oggi niente dopo cena*, *oggi provo a non fumare in macchina*. Il mattino ci credeva davvero. Alle dieci reggeva, all'ora di pranzo pure. Alle cinque cominciava a cedere. E alle nove di sera, dopo cena, sul balcone di Policastro o su quello di Salerno, accendeva la sigaretta che si era promesso di non accendere, e la fumava con una specie di rabbia rassegnata.
+Lo aveva scoperto rileggendo le righe di dicembre. Ogni mattina, almeno tre volte alla settimana, scriveva qualcosa che riguardava il fumo: *oggi max 8*, *oggi niente dopo cena*, *oggi provo a non fumare in macchina*. Il mattino ci credeva davvero. Alle dieci reggeva, all'ora di pranzo pure. Alle cinque cominciava a cedere. E alle nove di sera, dopo cena, sul balcone di Torraca o su quello di Salerno, accendeva la sigaretta che si era promesso di non accendere, e la fumava con una specie di rabbia rassegnata.
 
 «Medea» disse Elio, quando Stefano glielo raccontò. «Nelle *Metamorfosi* di Ovidio, a dire quella frase è lei. *Vedo il meglio e l'approvo, ma seguo il peggio.* Una donna che sa perfettamente che cosa dovrebbe fare, e fa l'esatto contrario. Sono passati duemila anni, e il problema non è cambiato.»
 
@@ -3386,7 +3386,7 @@ Fece una pausa.
 
 ---
 
-Stefano tornò a Policastro con una decisione in tasca. Ma la vita, come sempre, aveva un'altra agenda.
+Stefano tornò a Torraca con una decisione in tasca. Ma la vita, come sempre, aveva un'altra agenda.
 
 La notte del cinque gennaio Vincenzo si svegliò con un dolore fortissimo allo stomaco e vomitò sangue. Ambulanza, pronto soccorso a Sapri, poi il trasferimento a Vallo della Lucania. Un'ulcera sanguinante, nonostante la terapia. Endoscopia d'urgenza, trasfusione, una settimana di ricovero. Rosa, che non lavorava in quel reparto, passò lo stesso a vederlo ogni giorno, dopo il turno.
 
@@ -3446,7 +3446,7 @@ Prese il taccuino e scrisse in fondo, sotto il rito, tre righe sulla settimana d
 
 ---
 
-L'officina di Gino era in fondo alla strada che dal paese scende verso la stazione di Policastro: un capannone basso con la saracinesca verde, due ponti sollevatori, un odore di olio e di gomma che Stefano riconobbe con un tuffo al cuore. Era l'officina del padre di Gino. Da ragazzi ci passavano i pomeriggi, a smontare i motorini.
+L'officina di Gino era in fondo alla strada che dal paese scende verso Sapri: un capannone basso con la saracinesca verde, due ponti sollevatori, un odore di olio e di gomma che Stefano riconobbe con un tuffo al cuore. Era l'officina del padre di Gino. Da ragazzi ci passavano i pomeriggi, a smontare i motorini.
 
 Ci andò un sabato di fine gennaio, perché la Golf faceva un rumore strano in frenata, e perché Gino gli aveva detto: *vieni, te la guardo io, gratis, per la birra di novembre*.
 
@@ -4060,7 +4060,7 @@ Matteo ci pensò un momento.
 
 Matteo conobbe Elio il lunedì di Pasquetta.
 
-Giulia e Matteo erano scesi a Policastro per le vacanze, e la nonna di Matteo, la madre di Giulia, era in una struttura a Salerno dove la seguivano giorno e notte; per la prima volta da mesi Giulia aveva quattro giorni senza correre. Il lunedì mattina Stefano portò Matteo a Scario. Il ragazzo camminava sul lungomare con le mani in tasca e le cuffie al collo, guardandosi intorno come un turista diffidente.
+Giulia e Matteo erano scesi a Torraca per le vacanze, e la nonna di Matteo, la madre di Giulia, era in una struttura a Salerno dove la seguivano giorno e notte; per la prima volta da mesi Giulia aveva quattro giorni senza correre. Il lunedì mattina Stefano portò Matteo a Sapri. Il ragazzo camminava sul lungomare con le mani in tasca e le cuffie al collo, guardandosi intorno come un turista diffidente.
 
 Elio li aspettava sulla terrazza. Era più magro dell'ultima volta, Stefano se ne accorse subito, e la tosse non era passata. Ma stringeva la mano con la stessa forza.
 
@@ -4082,7 +4082,7 @@ C'era anche Ivo, seduto in fondo al tavolo con il portatile, che Elio aveva invi
 
 «Più di ventitré secoli fa» disse Elio, «Aristotele immaginava strumenti capaci di compiere da soli il proprio lavoro. Pensava ai tripodi che, nel racconto di Omero, il dio Efesto aveva costruito perché si muovessero da sé. Oggi qualcosa del genere esiste davvero.» Indicò il telefono di Matteo. «Scrive, riassume, traduce, risponde in pochi secondi a quasi qualunque domanda. Ma negli automi di Aristotele c'è un dettaglio che conviene notare. Ciascuno compie il *proprio* lavoro. Cioè un lavoro che qualcun altro ha deciso.»
 
-Matteo lo guardava con una certa curiosità. Non si aspettava, pensò Stefano, che un vecchio su una terrazza di Scario gli parlasse di Aristotele e di intelligenza artificiale nella stessa frase.
+Matteo lo guardava con una certa curiosità. Non si aspettava, pensò Stefano, che un vecchio su una terrazza di Sapri gli parlasse di Aristotele e di intelligenza artificiale nella stessa frase.
 
 «Voglio essere chiaro da che parte sto» disse Elio. «Per chi ha un metodo, la tecnologia è un'alleata. Non perché sia neutrale, perché non lo è quasi mai. Ma perché, una volta che hai un modo per decidere dove vuoi andare, qualunque strumento che ti ci porta prima lavora per te.»
 
@@ -4212,7 +4212,7 @@ Mentre uscivano dal cancello, Elio trattenne Stefano un momento. Matteo era già
 
 ---
 
-In macchina, sulla strada per Policastro, Stefano raccontò a Matteo la storia del testo attribuito a Sant'Agostino. Padre Giacomo Perico, il 2001, l'amico di Elio morto a quarantun anni. Matteo ascoltò senza interrompere.
+In macchina, sulla strada per Torraca, Stefano raccontò a Matteo la storia del testo attribuito a Sant'Agostino. Padre Giacomo Perico, il 2001, l'amico di Elio morto a quarantun anni. Matteo ascoltò senza interrompere.
 
 Poi, a un semaforo di Sapri, disse:
 
@@ -4248,9 +4248,9 @@ Vincenzo, che non poteva più chinarsi, dirigeva le operazioni da una sedia di p
 
 Lo prese con due dita. Numero sconosciuto, prefisso di Vallo della Lucania.
 
-«Dottor Russo? Sono Pina Galdi. Della cooperativa Terre del Bussento. Si ricorda di me?»
+«Dottor Ardenzi? Sono Pina Galdi. Della cooperativa Terre del Bussento. Si ricorda di me?»
 
-Si ricordava benissimo. Nove anni prima, quando ancora dirigeva la filiale di Pastena, la Cooperativa Terre del Bussento, un frantoio sociale con una quarantina di soci olivicoltori sopra Policastro, stava per perdere un finanziamento regionale per un errore nella documentazione. Pina Galdi, la presidente, una donna minuta con la voce di un sergente, era venuta a Salerno disperata. Stefano aveva passato due sere a sistemare le carte con lei, fuori orario, e il finanziamento era arrivato. Da allora non si erano più sentiti, se non per un biglietto di auguri a Natale, i primi anni.
+Si ricordava benissimo. Nove anni prima, quando ancora dirigeva la filiale di Pastena, la Cooperativa Terre del Bussento, un frantoio sociale con una quarantina di soci olivicoltori nella valle del Bussento, stava per perdere un finanziamento regionale per un errore nella documentazione. Pina Galdi, la presidente, una donna minuta con la voce di un sergente, era venuta a Salerno disperata. Stefano aveva passato due sere a sistemare le carte con lei, fuori orario, e il finanziamento era arrivato. Da allora non si erano più sentiti, se non per un biglietto di auguri a Natale, i primi anni.
 
 A gennaio, però, era successa una cosa piccola. Riordinando le pratiche di un cliente di Lorenzo, Stefano aveva trovato una vecchia lettera della cooperativa, ancora con il suo nome come referente. Aveva fatto una telefonata di due minuti all'ufficio della cooperativa per dire che non lavorava più in banca, e a chi dovevano rivolgersi adesso. Una telefonata di poco conto, per chiudere una pratica. Aveva parlato con una segretaria. L'aveva dimenticata il giorno stesso.
 
@@ -4264,7 +4264,7 @@ A gennaio, però, era successa una cosa piccola. Riordinando le pratiche di un c
 
 La proposta di Pina Galdi era questa. La cooperativa stava per entrare in una rete con altre sei piccole realtà del Cilento interno: due caseifici, una cantina, un mulino, due aziende di trasformazione. Trentotto produttori in tutto. C'erano fondi europei da gestire, una contabilità da unificare, banche con cui trattare, e nessuno di loro sapeva da dove cominciare. Servivano una persona che conoscesse le banche dall'interno e che parlasse la lingua dei contadini. Un incarico di tre anni, a tempo parziale. Pagato bene.
 
-«Ho chiesto in giro» disse Pina. «Il panificio di Agropoli, il caseificio di Laurito, quell'officina di Policastro. Dicono tutti la stessa cosa. Che lei parla come noi.»
+«Ho chiesto in giro» disse Pina. «Il panificio di Agropoli, il caseificio di Laurito, quell'officina di Torraca. Dicono tutti la stessa cosa. Che lei parla come noi.»
 
 Stefano tornò a casa e rimase seduto in macchina, davanti al portone, per venti minuti, con il motore spento.
 
@@ -4390,7 +4390,7 @@ L'ultimo giovedì di aprile, al bar, prima della comunità, fece il suo momento 
 
 Rilesse l'inventario. L'Opportunità, gli aveva detto Elio, non arriva mai dal nulla. Arriva da un terreno che hai preparato tu.
 
-A giugno, a Policastro, Vincenzo raccolse i primi fagiolini. Su quaranta buchi ne erano nati trentuno. Gli altri nove, disse, erano semi che non volevano.
+A giugno, a Torraca, Vincenzo raccolse i primi fagiolini. Su quaranta buchi ne erano nati trentuno. Gli altri nove, disse, erano semi che non volevano.
 
 «Succede» disse Vincenzo, sgranandone uno fra le dita. «Ma se non ne metti quaranta, non ne raccogli trentuno.»
 
@@ -4546,7 +4546,7 @@ Lunedì alle nove meno un quarto aveva il telefono in mano. Il caldo saliva dall
 
 Alle nove compose il numero.
 
-«Pina? Sono Stefano Russo. Accetto.»
+«Pina? Sono Stefano Ardenzi. Accetto.»
 
 Dall'altra parte ci fu un silenzio di mezzo secondo. Poi la voce da sergente si incrinò appena.
 
@@ -4692,7 +4692,7 @@ Venerdì mattina, prima di accendere il telefono, Stefano rilesse la riga della 
 
 La riunione alle tre durò fino alle quattro e mezza. Uscì da Vallo con il budget approvato e un'ora e mezza per fare ottanta chilometri. Arrivò a Salerno alle sei meno cinque, parcheggiò in doppia fila davanti all'auditorium della scuola di musica, e corse dentro mentre spegnevano le luci in sala. Giulia gli aveva tenuto il posto in quarta fila.
 
-Matteo suonò per sesto. Si sedette su uno sgabello al centro del palco, con la chitarra, sotto un cono di luce bianca. Non guardò il pubblico. Cominciò il pezzo. Quello lento, con gli accordi strani, che Stefano aveva sentito dal terrazzo di Policastro a luglio, quello che si fermava a metà come una frase lasciata in sospeso.
+Matteo suonò per sesto. Si sedette su uno sgabello al centro del palco, con la chitarra, sotto un cono di luce bianca. Non guardò il pubblico. Cominciò il pezzo. Quello lento, con gli accordi strani, che Stefano aveva sentito dal terrazzo di Torraca a luglio, quello che si fermava a metà come una frase lasciata in sospeso.
 
 Questa volta non si fermò. C'era una fine. Era una fine semplice, tre accordi che tornavano all'inizio e poi si aprivano in un altro modo, come una porta.
 
@@ -4752,15 +4752,15 @@ Stefano rimase al tavolo con il secondo che si raffreddava. Era arrabbiato. Era 
 
 ---
 
-La sera, quando Matteo tornò, a mezzanotte, non si parlarono. Il lunedì Stefano ripartì per Policastro con un peso sul petto.
+La sera, quando Matteo tornò, a mezzanotte, non si parlarono. Il lunedì Stefano ripartì per Torraca con un peso sul petto.
 
 Nella riga della sera della domenica aveva scritto: *litigio con M. sono arrabbiato.* Rileggendola il lunedì mattina, prima di scrivere la nuova, si accorse che era una riga inutile. Non diceva niente. *Arrabbiato*. Era la parola che usava sempre. Per Ferri, per Raffaele, per il traffico, per Matteo. La stessa parola per tutto.
 
 ---
 
-Giulia scese a Policastro il giovedì successivo. Era l'ultima settimana di scuola, aveva un giorno libero, e aveva detto a Stefano che voleva conoscere Elio.
+Giulia scese a Torraca il giovedì successivo. Era l'ultima settimana di scuola, aveva un giorno libero, e aveva detto a Stefano che voleva conoscere Elio.
 
-Andarono a Scario nel pomeriggio. Elio era sulla terrazza, sulla sdraio, con la coperta sulle gambe nonostante il caldo di fine maggio. Rosa era appena andata via. Quando vide Giulia, Elio fece per alzarsi, e lei glielo impedì con un gesto.
+Andarono a Sapri nel pomeriggio. Elio era sulla terrazza, sulla sdraio, con la coperta sulle gambe nonostante il caldo di fine maggio. Rosa era appena andata via. Quando vide Giulia, Elio fece per alzarsi, e lei glielo impedì con un gesto.
 
 «Lei è quella del *fatto*» disse Elio.
 
@@ -4854,7 +4854,7 @@ Elio la guardò a lungo, con un'espressione che Stefano non gli aveva mai visto.
 
 ---
 
-In macchina, tornando a Policastro, Giulia rimase in silenzio a lungo. Poi disse:
+In macchina, tornando a Torraca, Giulia rimase in silenzio a lungo. Poi disse:
 
 «Quell'uomo è malato, Stefano.»
 
@@ -5042,13 +5042,13 @@ Alla fine della serata, mentre gli altri uscivano, Elio fece l'esercizio con tut
 
 Lo fecero tutti. Mela non sapeva il numero del suo medico e lo cercò sul telefono. Gino scrisse il numero del Centro Antifumo di Vallo della Lucania e poi, dopo un attimo, cerchiò il suo. Ivo scrisse un numero che nessuno vide, e chiuse il taccuino.
 
-Stefano scrisse il numero del dottor Mazzei, il Telefono Verde contro il Fumo, il 112. E poi, sotto, un nome: *cardiologo — per Elio. lunedì.*
+Stefano scrisse il numero del dottor Fontanesi, il Telefono Verde contro il Fumo, il 112. E poi, sotto, un nome: *cardiologo — per Elio. lunedì.*
 
 Elio, che lo guardava, finse di non vedere.
 
 ---
 
-Il lunedì successivo Stefano andò dal dottor Mazzei, a Sapri. Gli portò il taccuino aperto alla pagina del minuto prima. Il medico lo lesse, alzò gli occhiali sulla fronte, e gli disse che in vent'anni di mestiere nessun paziente gli aveva mai portato una cosa così utile. Lo indirizzò al Centro Antifumo di Vallo. Il primo colloquio fu fissato per il ventitré giugno.
+Il lunedì successivo Stefano andò dal dottor Fontanesi, a Sapri. Gli portò il taccuino aperto alla pagina del minuto prima. Il medico lo lesse, alzò gli occhiali sulla fronte, e gli disse che in vent'anni di mestiere nessun paziente gli aveva mai portato una cosa così utile. Lo indirizzò al Centro Antifumo di Vallo. Il primo colloquio fu fissato per il ventitré giugno.
 
 Quella sera, a casa, Vincenzo aveva la febbre. Trentotto e due, niente di grave, un'influenza estiva. Stefano cercò il termometro nel cassetto dei medicinali e glielo mise sotto il braccio, e mentre aspettavano i tre minuti, seduto sul bordo del letto di suo padre, pensò a una cosa che Elio aveva detto alla fine, prima di salire in macchina con Rosa.
 
@@ -5092,7 +5092,7 @@ Stefano guardò le pagine gialle. Aveva studiato anche lui così, all'universit�
 
 «È una cosa che succede a quasi tutti» disse Elio. «E la ricerca ha qualcosa di scomodo da dire. Riguarda tutti quelli che a scuola si sono sentiti ripetere che dovevano soltanto studiare di più.»
 
-Era il mercoledì. Stefano era sceso a Scario apposta, con una domanda precisa: come si insegna a studiare a un ragazzo di sedici anni. Elio era a letto. Non sulla sdraio: a letto, con tre cuscini dietro la schiena e la finestra aperta sul mare. Diceva che era stanco, niente di più. L'appuntamento dal cardiologo era il ventiquattro. Rosa passava due volte al giorno. Ivo era lì, seduto su una sedia accanto al letto con il portatile sulle ginocchia, e Stefano capì che negli ultimi giorni ci passava parecchio tempo.
+Era il mercoledì. Stefano era sceso a Sapri apposta, con una domanda precisa: come si insegna a studiare a un ragazzo di sedici anni. Elio era a letto. Non sulla sdraio: a letto, con tre cuscini dietro la schiena e la finestra aperta sul mare. Diceva che era stanco, niente di più. L'appuntamento dal cardiologo era il ventiquattro. Rosa passava due volte al giorno. Ivo era lì, seduto su una sedia accanto al letto con il portatile sulle ginocchia, e Stefano capì che negli ultimi giorni ci passava parecchio tempo.
 
 «Nel 2013 un gruppo di ricercatori guidato da John Dunlosky ha passato in rassegna dieci tecniche di studio, su *Psychological Science in the Public Interest*» disse Elio. «Ne hanno valutato l'efficacia reale su una vasta letteratura di ricerche. Il risultato ha ribaltato il senso comune. Le due tecniche più usate dagli studenti, sottolineare e rileggere, sono state giudicate di bassa utilità.»
 
@@ -5366,7 +5366,7 @@ Due giorni dopo, nella notte fra il ventuno e il ventidue giugno, Rosa lo chiam�
 
 L'infarto arrivò alle tre e un quarto del mattino del ventidue giugno, due giorni prima dell'appuntamento con il cardiologo.
 
-Elio si svegliò con un peso sul petto, come una mano enorme che spingeva. Ebbe la lucidità di chiamare Rosa, che abitava a cinque minuti, invece del 112. Rosa chiamò il 112 dalla macchina, arrivò in quattro minuti, e quando l'ambulanza fermò sul lungomare di Scario con le sirene spente lo stava già tenendo seduto, con l'aspirina masticata e le finestre aperte.
+Elio si svegliò con un peso sul petto, come una mano enorme che spingeva. Ebbe la lucidità di chiamare Rosa, che abitava a cinque minuti, invece del 112. Rosa chiamò il 112 dalla macchina, arrivò in quattro minuti, e quando l'ambulanza fermò sul lungomare di Sapri con le sirene spente lo stava già tenendo seduto, con l'aspirina masticata e le finestre aperte.
 
 Stefano arrivò all'ospedale di Vallo della Lucania alle cinque. L'emodinamica era già al lavoro. Rosa era in corridoio, in jeans e maglietta, con i capelli sciolti, e Stefano non l'aveva mai vista così. Gli disse soltanto:
 
@@ -5474,7 +5474,7 @@ Si fermò a riprendere fiato.
 
 ---
 
-Stefano tornò a Policastro la sera, con la Golf, sulla Cilentana vuota. Arrivò a casa alle dieci. Vincenzo lo aspettava in cucina, con la luce accesa.
+Stefano tornò a Torraca la sera, con la Golf, sulla Cilentana vuota. Arrivò a casa alle dieci. Vincenzo lo aspettava in cucina, con la luce accesa.
 
 «Come sta?»
 
@@ -5504,7 +5504,7 @@ Elio uscì dall'ospedale il primo luglio. Lo riportò a casa Stefano, con Rosa s
 
 Si sarebbe visto. Forse.
 
-Sul lungomare di Scario, davanti al cancello, Elio chiese a Stefano di fermarsi. Abbassò il finestrino e guardò il porto, il *Lucilio* tirato in secca sotto il telo azzurro.
+Sul lungomare di Sapri, davanti al cancello, Elio chiese a Stefano di fermarsi. Abbassò il finestrino e guardò il porto, il *Lucilio* tirato in secca sotto il telo azzurro.
 
 «Le devo chiedere una cosa» disse. «Un favore.»
 
@@ -5538,7 +5538,7 @@ La terza tolse le spiegazioni. Una pagina e mezza.
 
 La quarta sera si ricordò di Pascal: *ho scritto una lettera lunga perché non ho avuto il tempo di farla breve*. E si ricordò di una frase che Elio gli aveva citato in ospedale, fra un bip e l'altro: Marco Aurelio, che a sua volta citava Democrito. *Fa' poche cose, se vuoi essere sereno.*
 
-La quinta sera tolse tutto quello che non avrebbe potuto spiegare a Matteo in macchina, fra Policastro e Sapri.
+La quinta sera tolse tutto quello che non avrebbe potuto spiegare a Matteo in macchina, fra Torraca e Sapri.
 
 La sesta lo lesse ad alta voce, cronometrandosi con il telefono. Due minuti e cinquantadue secondi.
 
@@ -5548,7 +5548,7 @@ La comunità di luglio si riunì nel retro del Bar Approdo, il primo giovedì de
 
 C'erano tutti. Rosa, in divisa, perché attaccava alle nove. Mela, con un vestito a fiori che si era cucita da sola e che voleva far vedere alle ragazze della parrocchia il martedì dopo. Gino, con un ragazzo di diciannove anni magro e timido, il figlio di Totonno, che da tre settimane andava in officina due pomeriggi a imparare e che Gino aveva portato *perché vedesse una cosa*. E Ivo, che aveva sistemato il portatile in un angolo del tavolo, al posto dove di solito stava Elio, con la telecamera accesa.
 
-Sullo schermo c'era Elio, dal suo letto di Scario, con i tre cuscini dietro la schiena e il golfo nella finestra alle sue spalle. Salutò con la mano.
+Sullo schermo c'era Elio, dal suo letto di Sapri, con i tre cuscini dietro la schiena e il golfo nella finestra alle sue spalle. Salutò con la mano.
 
 «Fate come se non ci fossi» disse. «Io ascolto. Come sempre.»
 
@@ -5662,7 +5662,7 @@ Elio rise, e la risata diventò un colpo di tosse, e poi si calmò.
 
 «Lei mi ha chiesto, un anno fa, perché insegno» disse piano, dallo schermo. «Adesso lo sa.»
 
-Stefano non rispose. Guardò la faccia di Elio sullo schermo, piccola, grigia, illuminata dalla luce del tramonto che entrava dalla finestra di Scario. Pensò che era a trecento metri, e che domattina sarebbe andato da lui a portargli il caffè, come ogni mattina da quando era tornato dall'ospedale.
+Stefano non rispose. Guardò la faccia di Elio sullo schermo, piccola, grigia, illuminata dalla luce del tramonto che entrava dalla finestra di Sapri. Pensò che era a trecento metri, e che domattina sarebbe andato da lui a portargli il caffè, come ogni mattina da quando era tornato dall'ospedale.
 
 «Domattina vengo alle sette» disse.
 
@@ -5670,7 +5670,7 @@ Stefano non rispose. Guardò la faccia di Elio sullo schermo, piccola, grigia, i
 
 ---
 
-Quella sera, a Policastro, Stefano copiò a mano, sulla prima pagina libera del taccuino, lo schema del metodo in quattro righe. Ogni mattina, ogni sera, ogni settimana, ogni mese, con la domanda di ciascun momento. Accanto a ogni riga scrisse quando lo faceva. *Dopo aver messo la moka sul fuoco. Prima di dormire, o mentre mi lavo i denti. Domenica sera, sul balcone. L'ultimo giovedì del mese, al bar, con un caffè.*
+Quella sera, a Torraca, Stefano copiò a mano, sulla prima pagina libera del taccuino, lo schema del metodo in quattro righe. Ogni mattina, ogni sera, ogni settimana, ogni mese, con la domanda di ciascun momento. Accanto a ogni riga scrisse quando lo faceva. *Dopo aver messo la moka sul fuoco. Prima di dormire, o mentre mi lavo i denti. Domenica sera, sul balcone. L'ultimo giovedì del mese, al bar, con un caffè.*
 
 Poi chiuse il taccuino, e lo riaprì all'ultima pagina scritta, e scrisse la riga del mattino del giorno dopo.
 
@@ -5686,7 +5686,7 @@ Poi chiuse il taccuino, e lo riaprì all'ultima pagina scritta, e scrisse la rig
 
 Per tutto luglio, Stefano portò il caffè a Elio alle sei.
 
-Lo preparava a Policastro, con la moka, dopo aver scritto la sua riga. Lo versava in un thermos, guidava fino a Scario con i finestrini abbassati, entrava dal cancello che Elio lasciava aperto. Le prime mattine lo trovava a letto, con i tre cuscini dietro la schiena. Poi, dalla seconda settimana, sulla sdraio in terrazza, con la coperta sulle gambe e lo sguardo sul golfo che si accendeva. Bevevano il caffè in due bicchierini di plastica, come la prima mattina sul *Lucilio*. Parlavano poco. A volte niente.
+Lo preparava a Torraca, con la moka, dopo aver scritto la sua riga. Lo versava in un thermos, guidava fino a Sapri con i finestrini abbassati, entrava dal cancello che Elio lasciava aperto. Le prime mattine lo trovava a letto, con i tre cuscini dietro la schiena. Poi, dalla seconda settimana, sulla sdraio in terrazza, con la coperta sulle gambe e lo sguardo sul golfo che si accendeva. Bevevano il caffè in due bicchierini di plastica, come la prima mattina sul *Lucilio*. Parlavano poco. A volte niente.
 
 Il cardiologo, alla visita di controllo, aveva detto che il cuore stava rispondendo meglio del previsto. Che il danno c'era, e sarebbe rimasto, ma che con le medicine, la dieta e un po' di giudizio un uomo testardo poteva campare ancora parecchio. «Un po' di giudizio» aveva ripetuto Rosa in macchina, guardando Elio dallo specchietto. «Hai sentito? Giudizio.»
 
@@ -5712,7 +5712,7 @@ Stefano lo lesse lì, sulla terrazza, con il sole che saliva.
 
 Il taccuino nero era pieno. Non di righe del mattino e della sera: quelle, Elio le teneva altrove. Era pieno di cose raccolte in quarant'anni. Le cento righe del mattino di persone vere, quelle che aveva copiato per lui l'anno prima. Le citazioni di Seneca in latino, con la traduzione accanto. I nomi degli studi, con gli autori e gli anni, e accanto, in rosso, le correzioni, quando uno studio veniva ridimensionato. *Danziger 2011 — ma vedi Weinshall-Margel. Esaurimento dell'io — non regge. 21 giorni — Maltz, chirurgia plastica, NON abitudini.* Un uomo che aveva passato la vita a controllare le proprie fonti.
 
-E poi c'erano i nomi. Decine di nomi, uno per pagina, a volte con una data. *Daniele, 2004.* *La parrucchiera di Maratea, 2011.* *Il caposquadra degli impianti, 2015.* E l'ultimo: *Stefano Russo, figlio di Vincenzo. Molo di Scario, maggio. Fumava.*
+E poi c'erano i nomi. Decine di nomi, uno per pagina, a volte con una data. *Daniele, 2004.* *La parrucchiera di Maratea, 2011.* *Il caposquadra degli impianti, 2015.* E l'ultimo: *Stefano Ardenzi, figlio di Vincenzo. Molo di Sapri, maggio. Fumava.*
 
 Sull'ultima pagina c'era una dedica. Scritta a mano, con una grafia più tremolante delle altre, recente. Era datata ventisei giugno: l'aveva scritta in ospedale.
 
@@ -5756,7 +5756,7 @@ Stefano sentì una stretta al petto.
 
 ---
 
-Ci ripensò per tutto il giorno, Stefano. Ci ripensò la sera, sul balcone di Policastro, con Giulia accanto che gli teneva la mano.
+Ci ripensò per tutto il giorno, Stefano. Ci ripensò la sera, sul balcone di Torraca, con Giulia accanto che gli teneva la mano.
 
 Elio gli aveva detto una cosa, sulla terrazza, prima che se ne andasse. L'aveva detta guardando il golfo, come se parlasse a qualcun altro.
 
@@ -5778,9 +5778,9 @@ Non serviva passare il quaderno, pensò. Bastava una domanda APPO fatta al momen
 
 ---
 
-Il primo sabato di agosto, all'alba, Stefano andò al porto di Scario. Con lui c'era Matteo.
+Il primo sabato di agosto, all'alba, Stefano andò al porto di Sapri. Con lui c'era Matteo.
 
-Matteo era a Policastro da una settimana, per l'estate, a preparare l'esame di ammissione al liceo musicale con un insegnante di Sapri. La mattina studiava solfeggio, il pomeriggio matematica con suo padre, con zooma, descrivi, controlla, senza evidenziatore. La sera suonava sul terrazzo del nonno, e Vincenzo, dalla cucina, alzava il volume della radio per finta e poi lo abbassava.
+Matteo era a Torraca da una settimana, per l'estate, a preparare l'esame di ammissione al liceo musicale con un insegnante di Sapri. La mattina studiava solfeggio, il pomeriggio matematica con suo padre, con zooma, descrivi, controlla, senza evidenziatore. La sera suonava sul terrazzo del nonno, e Vincenzo, dalla cucina, alzava il volume della radio per finta e poi lo abbassava.
 
 Il giorno prima Matteo gli aveva chiesto se poteva venire con lui, all'alba, al porto. Non aveva detto perché.
 
@@ -5842,7 +5842,7 @@ Pensò che un anno prima, su quel molo, era un uomo a cui il tempo veniva portat
 
 O forse sì, pensò guardando Elio a poppa, con il berretto calato sugli occhi e il bicchierino vuoto in mano. Qualche volta qualcuno te ne restituisce. E allora non li sprechi.
 
-Pensò al bracciale d'oro che teneva nel cassetto del comodino, a Policastro, e alle tre proprietà dell'oro. Non arrugginisce. Non perde valore quando circola. Si lascia lavorare.
+Pensò al bracciale d'oro che teneva nel cassetto del comodino, a Torraca, e alle tre proprietà dell'oro. Non arrugginisce. Non perde valore quando circola. Si lascia lavorare.
 
 Oro da spendere. Oggi.
 
@@ -5856,7 +5856,7 @@ Lo insegnò, quando rientrarono, sotto gli occhi di Elio che dalla bitta corregg
 
 ---
 
-Questa è la storia dell'anno in cui Stefano Russo imparò a leggere la propria vita. Non è finita, perché le vite non finiscono quando finiscono i libri. Domattina Stefano scriverà un'altra riga, e domani sera un'altra ancora, e la settimana prossima rileggerà le quattordici righe cercando la parola che torna. Qualche volta salterà dei giorni, e ricomincerà senza recuperare niente. Il primo giovedì di settembre condurrà di nuovo la comunità pensante nel retro del Bar Approdo. Nell'angolo ci sarà Elio, con la camomilla, che ascolta. Matteo suonerà il suo pezzo. E ci sarà qualcuno di nuovo, perché c'è sempre qualcuno di nuovo.
+Questa è la storia dell'anno in cui Stefano Ardenzi imparò a leggere la propria vita. Non è finita, perché le vite non finiscono quando finiscono i libri. Domattina Stefano scriverà un'altra riga, e domani sera un'altra ancora, e la settimana prossima rileggerà le quattordici righe cercando la parola che torna. Qualche volta salterà dei giorni, e ricomincerà senza recuperare niente. Il primo giovedì di settembre condurrà di nuovo la comunità pensante nel retro del Bar Approdo. Nell'angolo ci sarà Elio, con la camomilla, che ascolta. Matteo suonerà il suo pezzo. E ci sarà qualcuno di nuovo, perché c'è sempre qualcuno di nuovo.
 
 E tu che hai letto fin qui, adesso, puoi fare una cosa sola.
 
