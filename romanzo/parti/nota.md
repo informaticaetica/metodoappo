@@ -1,6 +1,6 @@
 ## Come leggere questo romanzo
 
-Questo libro racconta il metodo APPO 2.0 attraverso un anno nella vita di Stefano Ardenzi, un bancario di quarantotto anni che perde il lavoro e torna nel Cilento, dove incontra Aurelio Messineo, l'uomo che gli insegnerà il metodo un gesto alla volta.
+Questo libro racconta il metodo APPO 2.0 attraverso un anno nella vita di Stefano Arcuri, un bancario di quarantotto anni che perde il lavoro e torna nel Cilento, dove incontra Aurelio Zagari, l'uomo che gli insegnerà il metodo un gesto alla volta.
 
 I capitoli seguono lo stesso ordine del metodo. Ogni capitolo conserva il titolo e la citazione d'apertura dell'edizione saggistica e porta una sola idea, che qui prende la forma di una scena, di un dialogo o di una riga scritta sul taccuino. La prima parte racconta come si impara il metodo; la seconda perché è fatto così; la chiusura lo rimette in fila in tre minuti.
 

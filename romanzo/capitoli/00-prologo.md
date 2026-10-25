@@ -6,7 +6,7 @@
 
 ---
 
-Il martedì in cui finì tutto, Stefano Ardenzi si svegliò alle sei e quaranta, come ogni martedì da ventidue anni.
+Il martedì in cui finì tutto, Stefano Arcuri si svegliò alle sei e quaranta, come ogni martedì da ventidue anni.
 
 Fece la doccia, si annodò la cravatta blu, quella che Giulia diceva che lo faceva sembrare più giovane, e scese a prendere il caffè al bar sotto casa, a Pastena. Il barista gli chiese della Salernitana, lui rispose qualcosa sulla difesa, e mentre aspettava lo scontrino accese la prima sigaretta della giornata. Era la stessa sigaretta da trent'anni: quella che aveva giurato di lasciare già tre volte.
 
@@ -72,13 +72,13 @@ Partì il giovedì mattina, con la Golf grigia e due borse.
 
 L'autostrada fino a Battipaglia la conosceva a memoria; poi la statale per il Cilento, i tornanti, il mare che compariva e spariva fra gli ulivi. A Sapri, il Golfo di Policastro si aprì tutto insieme, azzurro e immobile, con le montagne della Basilicata e della Calabria che lo chiudevano come le mani di qualcuno che tiene un po' d'acqua. Poi la strada lasciò il mare e salì per tornanti fra gli ulivi, e a ogni curva il golfo tornava a comparire, più in basso e più grande. Stefano abbassò il finestrino. L'aria sapeva di sale e di fieno. Si accorse che non accendeva una sigaretta da un'ora, e la accese.
 
-A Torraca, in cima alla salita, suo padre lo aspettava sul portone, in canottiera, appoggiato al bastone che si rifiutava di chiamare bastone. Vincenzo Ardenzi aveva settantanove anni, mani da falegname e la stessa faccia di quando Stefano era bambino, solo più asciutta. Lo abbracciò senza dire niente, poi gli diede una pacca sulla spalla, una sola.
+A Torraca, in cima alla salita, suo padre lo aspettava sul portone, in canottiera, appoggiato al bastone che si rifiutava di chiamare bastone. Antonio Arcuri aveva settantanove anni, mani da falegname e la stessa faccia di quando Stefano era bambino, solo più asciutta. Lo abbracciò senza dire niente, poi gli diede una pacca sulla spalla, una sola.
 
 «Hai fatto bene a venire.»
 
 Non chiese niente della banca. Stefano non sapeva se Giulia gli avesse già raccontato tutto o se suo padre, semplicemente, sapeva aspettare.
 
-La porta della cantina, quella dove Vincenzo teneva gli attrezzi e il vino, non si apriva. La chiave girava a vuoto dentro la serratura arrugginita. Stefano ci provò tre volte, poi spinse con la spalla, poi diede un calcio. Niente.
+La porta della cantina, quella dove Antonio teneva gli attrezzi e il vino, non si apriva. La chiave girava a vuoto dentro la serratura arrugginita. Stefano ci provò tre volte, poi spinse con la spalla, poi diede un calcio. Niente.
 
 «Lascia» disse suo padre.
 
@@ -86,7 +86,7 @@ Tornò dalla cucina con un ferretto sottile, piegato in punta, con un manico di 
 
 «Che cos'è?»
 
-«Un grimaldello. L'ho fatto io, quarant'anni fa.» Vincenzo se lo rigirò fra le dita. «Non è la chiave giusta per questa porta. Non è la chiave giusta per nessuna porta. Però funziona su quasi tutte.»
+«Un grimaldello. L'ho fatto io, quarant'anni fa.» Antonio se lo rigirò fra le dita. «Non è la chiave giusta per questa porta. Non è la chiave giusta per nessuna porta. Però funziona su quasi tutte.»
 
 Stefano rimase a guardarlo. Davanti a una porta chiusa, chi non ha niente in mano può solo spingere, o sedersi ad aspettare che qualcuno gliela apra. Lui, nell'ultima settimana, aveva spinto con la spalla e dato calci. E la porta era rimasta chiusa.
 
@@ -100,7 +100,7 @@ Non gli mancava la forza di volontà, che in fondo per ventidue anni non gli era
 
 ---
 
-Questo è il racconto dell'anno in cui Stefano Ardenzi imparò a leggere la propria vita.
+Questo è il racconto dell'anno in cui Stefano Arcuri imparò a leggere la propria vita.
 
 Non è la storia di un uomo che diventa ricco, e nemmeno di uno che cambia tutto in trenta giorni. Nessuno, in queste pagine, si carica a comando o scopre di poter fare qualunque cosa. Ci saranno giornate storte, settimane da tre su dieci, periodi in cui Stefano mollerà. Ci saranno medici e professionisti, quando serviranno, perché certe porte non si aprono con nessun grimaldello.
 

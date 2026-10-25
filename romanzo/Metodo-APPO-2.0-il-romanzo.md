@@ -71,7 +71,7 @@
 
 ## Come leggere questo romanzo
 
-Questo libro racconta il metodo APPO 2.0 attraverso un anno nella vita di Stefano Ardenzi, un bancario di quarantotto anni che perde il lavoro e torna nel Cilento, dove incontra Aurelio Messineo, l'uomo che gli insegnerà il metodo un gesto alla volta.
+Questo libro racconta il metodo APPO 2.0 attraverso un anno nella vita di Stefano Arcuri, un bancario di quarantotto anni che perde il lavoro e torna nel Cilento, dove incontra Aurelio Zagari, l'uomo che gli insegnerà il metodo un gesto alla volta.
 
 I capitoli seguono lo stesso ordine del metodo. Ogni capitolo conserva il titolo e la citazione d'apertura dell'edizione saggistica e porta una sola idea, che qui prende la forma di una scena, di un dialogo o di una riga scritta sul taccuino. La prima parte racconta come si impara il metodo; la seconda perché è fatto così; la chiusura lo rimette in fila in tre minuti.
 
@@ -145,7 +145,7 @@ Marco Costanzo
 
 ---
 
-Il martedì in cui finì tutto, Stefano Ardenzi si svegliò alle sei e quaranta, come ogni martedì da ventidue anni.
+Il martedì in cui finì tutto, Stefano Arcuri si svegliò alle sei e quaranta, come ogni martedì da ventidue anni.
 
 Fece la doccia, si annodò la cravatta blu, quella che Giulia diceva che lo faceva sembrare più giovane, e scese a prendere il caffè al bar sotto casa, a Pastena. Il barista gli chiese della Salernitana, lui rispose qualcosa sulla difesa, e mentre aspettava lo scontrino accese la prima sigaretta della giornata. Era la stessa sigaretta da trent'anni: quella che aveva giurato di lasciare già tre volte.
 
@@ -211,13 +211,13 @@ Partì il giovedì mattina, con la Golf grigia e due borse.
 
 L'autostrada fino a Battipaglia la conosceva a memoria; poi la statale per il Cilento, i tornanti, il mare che compariva e spariva fra gli ulivi. A Sapri, il Golfo di Policastro si aprì tutto insieme, azzurro e immobile, con le montagne della Basilicata e della Calabria che lo chiudevano come le mani di qualcuno che tiene un po' d'acqua. Poi la strada lasciò il mare e salì per tornanti fra gli ulivi, e a ogni curva il golfo tornava a comparire, più in basso e più grande. Stefano abbassò il finestrino. L'aria sapeva di sale e di fieno. Si accorse che non accendeva una sigaretta da un'ora, e la accese.
 
-A Torraca, in cima alla salita, suo padre lo aspettava sul portone, in canottiera, appoggiato al bastone che si rifiutava di chiamare bastone. Vincenzo Ardenzi aveva settantanove anni, mani da falegname e la stessa faccia di quando Stefano era bambino, solo più asciutta. Lo abbracciò senza dire niente, poi gli diede una pacca sulla spalla, una sola.
+A Torraca, in cima alla salita, suo padre lo aspettava sul portone, in canottiera, appoggiato al bastone che si rifiutava di chiamare bastone. Antonio Arcuri aveva settantanove anni, mani da falegname e la stessa faccia di quando Stefano era bambino, solo più asciutta. Lo abbracciò senza dire niente, poi gli diede una pacca sulla spalla, una sola.
 
 «Hai fatto bene a venire.»
 
 Non chiese niente della banca. Stefano non sapeva se Giulia gli avesse già raccontato tutto o se suo padre, semplicemente, sapeva aspettare.
 
-La porta della cantina, quella dove Vincenzo teneva gli attrezzi e il vino, non si apriva. La chiave girava a vuoto dentro la serratura arrugginita. Stefano ci provò tre volte, poi spinse con la spalla, poi diede un calcio. Niente.
+La porta della cantina, quella dove Antonio teneva gli attrezzi e il vino, non si apriva. La chiave girava a vuoto dentro la serratura arrugginita. Stefano ci provò tre volte, poi spinse con la spalla, poi diede un calcio. Niente.
 
 «Lascia» disse suo padre.
 
@@ -225,7 +225,7 @@ Tornò dalla cucina con un ferretto sottile, piegato in punta, con un manico di 
 
 «Che cos'è?»
 
-«Un grimaldello. L'ho fatto io, quarant'anni fa.» Vincenzo se lo rigirò fra le dita. «Non è la chiave giusta per questa porta. Non è la chiave giusta per nessuna porta. Però funziona su quasi tutte.»
+«Un grimaldello. L'ho fatto io, quarant'anni fa.» Antonio se lo rigirò fra le dita. «Non è la chiave giusta per questa porta. Non è la chiave giusta per nessuna porta. Però funziona su quasi tutte.»
 
 Stefano rimase a guardarlo. Davanti a una porta chiusa, chi non ha niente in mano può solo spingere, o sedersi ad aspettare che qualcuno gliela apra. Lui, nell'ultima settimana, aveva spinto con la spalla e dato calci. E la porta era rimasta chiusa.
 
@@ -239,7 +239,7 @@ Non gli mancava la forza di volontà, che in fondo per ventidue anni non gli era
 
 ---
 
-Questo è il racconto dell'anno in cui Stefano Ardenzi imparò a leggere la propria vita.
+Questo è il racconto dell'anno in cui Stefano Arcuri imparò a leggere la propria vita.
 
 Non è la storia di un uomo che diventa ricco, e nemmeno di uno che cambia tutto in trenta giorni. Nessuno, in queste pagine, si carica a comando o scopre di poter fare qualunque cosa. Ci saranno giornate storte, settimane da tre su dieci, periodi in cui Stefano mollerà. Ci saranno medici e professionisti, quando serviranno, perché certe porte non si aprono con nessun grimaldello.
 
@@ -271,7 +271,7 @@ Stefano era in cucina, stava lavando i piatti, e all'improvviso si trovò al bui
 
 «Papà, dov'è il quadro elettrico?»
 
-«Dietro la porta dello sgabuzzino, in alto a sinistra» rispose la voce di Vincenzo dal divano, senza muoversi. «La levetta nera. Tirala su.»
+«Dietro la porta dello sgabuzzino, in alto a sinistra» rispose la voce di Antonio dal divano, senza muoversi. «La levetta nera. Tirala su.»
 
 Stefano aprì lo sgabuzzino, spostò due scope e un ombrello, trovò la scatoletta grigia. Tirò su la levetta. La luce tornò, il frigorifero ripartì con un brontolio, il telegiornale riprese esattamente dalla frase interrotta.
 
@@ -291,7 +291,7 @@ A una decina di metri da lui, un uomo anziano armeggiava con un gozzo di legno, 
 
 Stefano spense la sigaretta e si avvicinò. Insieme spinsero il gozzo finché lo scafo non prese il mare con un risucchio. Sulla fiancata, a lettere nere un po' scrostate, c'era scritto un nome: *Lucilio*.
 
-«Aurelio» disse l'uomo, tendendogli la mano. Aveva una stretta asciutta. «Aurelio Messineo. Lei è il figlio di Vincenzo Ardenzi. Il bancario.»
+«Aurelio» disse l'uomo, tendendogli la mano. Aveva una stretta asciutta. «Aurelio Zagari. Lei è il figlio di Antonio Arcuri. Il bancario.»
 
 «Come fa a saperlo?»
 
@@ -461,7 +461,7 @@ Non sapeva ancora che era la prima riga del suo metodo. Sapeva soltanto che era 
 
 ---
 
-La casa di Aurelio era l'ultima del lungomare di Sapri, prima che la strada salisse verso la collina. Due stanze al piano terra, una terrazza con un pergolato di vite e un tavolo di legno grezzo, e dentro, su un'intera parete, la libreria che Vincenzo Ardenzi aveva costruito vent'anni prima. Stefano la riconobbe subito: gli incastri a coda di rondine, i ripiani spessi, la vernice opaca che suo padre preparava da sé. Era piena fino all'ultimo centimetro.
+La casa di Aurelio era l'ultima del lungomare di Sapri, prima che la strada salisse verso la collina. Due stanze al piano terra, una terrazza con un pergolato di vite e un tavolo di legno grezzo, e dentro, su un'intera parete, la libreria che Antonio Arcuri aveva costruito vent'anni prima. Stefano la riconobbe subito: gli incastri a coda di rondine, i ripiani spessi, la vernice opaca che suo padre preparava da sé. Era piena fino all'ultimo centimetro.
 
 «Ancora regge» disse Aurelio, vedendolo guardare. «Come le avevo detto.»
 
@@ -639,15 +639,15 @@ Spense la luce. Prima di addormentarsi, la domanda di Aurelio gli tornò in ment
 
 Il martedì Stefano accompagnò suo padre dal medico, a Sapri.
 
-Era una visita di controllo, di quelle che Vincenzo rimandava da mesi e che Stefano, adesso che aveva tempo, aveva prenotato d'autorità. In sala d'attesa suo padre lesse da cima a fondo un settimanale di due anni prima, sbuffando. Quando li chiamarono, entrò con il passo di chi va a un interrogatorio.
+Era una visita di controllo, di quelle che Antonio rimandava da mesi e che Stefano, adesso che aveva tempo, aveva prenotato d'autorità. In sala d'attesa suo padre lesse da cima a fondo un settimanale di due anni prima, sbuffando. Quando li chiamarono, entrò con il passo di chi va a un interrogatorio.
 
 Il dottor Fontanesi era un uomo giovane, gentile, con gli occhiali sulla fronte.
 
-«Allora, signor Ardenzi, come andiamo?»
+«Allora, signor Arcuri, come andiamo?»
 
 «Bene. Un po' di mal di stomaco, ogni tanto. Niente.»
 
-Stefano, seduto sulla sedia accanto, si voltò di scatto. Tre notti prima aveva sentito suo padre alzarsi alle quattro, aprire il frigorifero, versarsi del latte. Lo aveva trovato al tavolo della cucina piegato in avanti, con una mano sullo stomaco, e Vincenzo gli aveva detto di tornare a letto, che era niente. Da quando era arrivato, Stefano aveva notato che suo padre non toccava più il caffè, lui che ne beveva cinque al giorno da sessant'anni. E una mattina, in bagno, aveva visto una cosa nel lavandino che lo aveva fatto restare immobile davanti allo specchio, e di cui non aveva avuto il coraggio di chiedere.
+Stefano, seduto sulla sedia accanto, si voltò di scatto. Tre notti prima aveva sentito suo padre alzarsi alle quattro, aprire il frigorifero, versarsi del latte. Lo aveva trovato al tavolo della cucina piegato in avanti, con una mano sullo stomaco, e Antonio gli aveva detto di tornare a letto, che era niente. Da quando era arrivato, Stefano aveva notato che suo padre non toccava più il caffè, lui che ne beveva cinque al giorno da sessant'anni. E una mattina, in bagno, aveva visto una cosa nel lavandino che lo aveva fatto restare immobile davanti allo specchio, e di cui non aveva avuto il coraggio di chiedere.
 
 «Da quanto tempo, questo mal di stomaco?» chiese il medico.
 
@@ -655,11 +655,11 @@ Stefano, seduto sulla sedia accanto, si voltò di scatto. Tre notti prima aveva 
 
 «Da gennaio, papà» disse Stefano.
 
-Vincenzo lo fulminò con lo sguardo. Ci fu un silenzio lungo. Poi, piano, con una voce che Stefano non gli conosceva, suo padre raccontò tutto: le notti, il caffè, il latte, e anche il resto. Il dottor Fontanesi smise di sorridere, abbassò gli occhiali sul naso e prese il ricettario.
+Antonio lo fulminò con lo sguardo. Ci fu un silenzio lungo. Poi, piano, con una voce che Stefano non gli conosceva, suo padre raccontò tutto: le notti, il caffè, il latte, e anche il resto. Il dottor Fontanesi smise di sorridere, abbassò gli occhiali sul naso e prese il ricettario.
 
 Uscirono con un'impegnativa per una gastroscopia urgente.
 
-In macchina, sulla strada del ritorno, Vincenzo guardò fuori dal finestrino per dieci minuti. Poi disse soltanto:
+In macchina, sulla strada del ritorno, Antonio guardò fuori dal finestrino per dieci minuti. Poi disse soltanto:
 
 «Non volevo sentirmi dire niente.»
 
@@ -775,7 +775,7 @@ Tirò fuori dalla tasca un coltellino da pesca e lo fece scorrere due volte, con
 
 ---
 
-Quella sera, a Torraca, Vincenzo andò a letto presto, senza cena. Stefano lo sentì tossire attraverso la parete.
+Quella sera, a Torraca, Antonio andò a letto presto, senza cena. Stefano lo sentì tossire attraverso la parete.
 
 Aprì il quaderno. Fece l'esercizio che Aurelio gli aveva lasciato. In cima alla pagina scrisse la frase con cui, in quei giorni, descriveva a tutti il problema che gli pesava di più, esattamente come la diceva al telefono:
 
@@ -865,7 +865,7 @@ Aurelio non commentò. Lasciò che la frase restasse lì, sull'aria, e dopo un p
 
 Quel sabato Giulia scese a Torraca per il fine settimana.
 
-Arrivò alle dieci di sera, dopo una giornata di scrutini, con il bagagliaio pieno di vestiti per Stefano e di cibo per Vincenzo. Matteo non era venuto: aveva un compleanno. Giulia abbracciò il suocero, mangiò in piedi un piatto di pasta fredda, e verso mezzanotte, sul balcone, mentre Stefano fumava, si mise a piangere senza preavviso.
+Arrivò alle dieci di sera, dopo una giornata di scrutini, con il bagagliaio pieno di vestiti per Stefano e di cibo per Antonio. Matteo non era venuto: aveva un compleanno. Giulia abbracciò il suocero, mangiò in piedi un piatto di pasta fredda, e verso mezzanotte, sul balcone, mentre Stefano fumava, si mise a piangere senza preavviso.
 
 Non era per la banca. Era per tutto. Sua madre, a Salerno, che da qualche mese si perdeva per le strade del quartiere e che lei andava a trovare ogni giorno dopo la scuola. Le riunioni, le verifiche da correggere, i colloqui con i genitori. Matteo che non le parlava. Lei che alle undici di sera preparava le lezioni del giorno dopo e alle sei e mezza era già in piedi. Non aveva una sera libera da febbraio. Non aveva una domenica libera da non ricordava quando.
 
@@ -1169,23 +1169,23 @@ Ci pensò onestamente. Non aveva parlato con suo padre se non per chiedergli se 
 
 Scrisse: *3*.
 
-Il giovedì, invece, Vincenzo gli chiese di aiutarlo a sistemare la cantina.
+Il giovedì, invece, Antonio gli chiese di aiutarlo a sistemare la cantina.
 
-Ci passarono la mattina intera. Spostarono vecchie tavole di castagno, attrezzi, damigiane vuote. Vincenzo gli raccontò di ogni pialla e di ogni sgorbia: dove l'aveva comprata, chi gliel'aveva regalata, che cosa ci aveva fatto. In fondo a uno scaffale, in una scatola di latta dei biscotti, trovarono una cosa che Stefano non vedeva da anni.
+Ci passarono la mattina intera. Spostarono vecchie tavole di castagno, attrezzi, damigiane vuote. Antonio gli raccontò di ogni pialla e di ogni sgorbia: dove l'aveva comprata, chi gliel'aveva regalata, che cosa ci aveva fatto. In fondo a uno scaffale, in una scatola di latta dei biscotti, trovarono una cosa che Stefano non vedeva da anni.
 
 Era la collana di sua madre.
 
-Un filo di perle, quella che Lucia si metteva soltanto a Natale e ai matrimoni. Il filo si era spezzato molti anni prima, e le perle erano finite tutte nella scatola, sciolte, insieme al fermaglio d'oro. Vincenzo non l'aveva mai fatta rinfilare. Non disse perché, e Stefano non glielo chiese.
+Un filo di perle, quella che Lucia si metteva soltanto a Natale e ai matrimoni. Il filo si era spezzato molti anni prima, e le perle erano finite tutte nella scatola, sciolte, insieme al fermaglio d'oro. Antonio non l'aveva mai fatta rinfilare. Non disse perché, e Stefano non glielo chiese.
 
-Portarono la scatola in cucina. Vincenzo rovesciò le perle sul tavolo di marmo, piano, e le allineò con il dito ruvido, una accanto all'altra.
+Portarono la scatola in cucina. Antonio rovesciò le perle sul tavolo di marmo, piano, e le allineò con il dito ruvido, una accanto all'altra.
 
 «Guarda» disse.
 
 Stefano guardò. Non le aveva mai viste così, una per una. Al collo di sua madre erano state sempre una cosa sola: la collana. Ma adesso, in fila sul marmo, si vedeva che erano diverse. Alcune erano lucide, con un riflesso rosato che si muoveva quando ci passava sopra la luce. Altre erano opache, quasi gessose. Alcune avevano una piccola macchia, un difetto.
 
-«Tua madre diceva che le perle si consumano se non le porti» disse Vincenzo. «Che hanno bisogno della pelle. Quelle che portava di più sono le più belle.»
+«Tua madre diceva che le perle si consumano se non le porti» disse Antonio. «Che hanno bisogno della pelle. Quelle che portava di più sono le più belle.»
 
-Rimasero lì in silenzio, padre e figlio, a guardare una fila di perle su un tavolo da cucina. Poi Vincenzo le rimise nella scatola, una alla volta, e disse che forse era arrivato il momento di portarle a rinfilare, a Sapri, da un orafo che conosceva.
+Rimasero lì in silenzio, padre e figlio, a guardare una fila di perle su un tavolo da cucina. Poi Antonio le rimise nella scatola, una alla volta, e disse che forse era arrivato il momento di portarle a rinfilare, a Sapri, da un orafo che conosceva.
 
 Quella sera Stefano scrisse il suo QuDiVi: *8*. Non aveva fatto niente di misurabile. Non aveva mandato nemmeno una candidatura.
 
@@ -1213,9 +1213,9 @@ Stefano rifletté. In banca aveva costruito fogli di calcolo con trenta colonne.
 
 ---
 
-Quella sera Vincenzo volle restare sul balcone dopo cena. Faceva caldo, e il cielo sopra il golfo era pieno di stelle, come in città non si vede mai. Stefano si sedette accanto a lui con una birra.
+Quella sera Antonio volle restare sul balcone dopo cena. Faceva caldo, e il cielo sopra il golfo era pieno di stelle, come in città non si vede mai. Stefano si sedette accanto a lui con una birra.
 
-«Quand'ero ragazzo, sulla barca di tuo nonno, le stelle le sapevo tutte» disse Vincenzo. «Adesso me ne ricordo tre.»
+«Quand'ero ragazzo, sulla barca di tuo nonno, le stelle le sapevo tutte» disse Antonio. «Adesso me ne ricordo tre.»
 
 Stefano pensò a una cosa che Aurelio gli aveva raccontato quel pomeriggio, prima che si salutassero. Prese il telefono, cercò, e mostrò lo schermo a suo padre.
 
@@ -1225,13 +1225,13 @@ Era una fotografia quasi tutta nera, attraversata da raggi di luce. In uno di qu
 
 «Siamo noi. La Terra. L'ha fotografata una sonda, la Voyager 1, il 14 febbraio del 1990. Era a più di sei miliardi di chilometri. Prima di uscire dal sistema solare si è girata un'ultima volta verso casa e ha scattato.» Stefano ripeteva le parole di Aurelio quasi alla lettera. «L'idea fu di un astronomo, Carl Sagan. In quella foto la Terra è più piccola di un pixel.»
 
-Vincenzo prese il telefono, se lo avvicinò agli occhi, lo allontanò.
+Antonio prese il telefono, se lo avvicinò agli occhi, lo allontanò.
 
 «Tutto lì dentro?»
 
 «Tutto. Sagan ha scritto un libro su quella foto. Diceva che su quel puntino è vissuto chiunque abbiamo amato o conosciuto, e si è consumata ogni storia umana.»
 
-Vincenzo restò a guardare lo schermo a lungo. Poi lo restituì.
+Antonio restò a guardare lo schermo a lungo. Poi lo restituì.
 
 «Anche tua madre» disse.
 
@@ -1279,11 +1279,11 @@ Stefano non ci aveva creduto. Si sentiva lanciato. Una settimana intera di righe
 
 Smise il quattro luglio, e non se ne accorse.
 
-Il tre luglio Giulia e Matteo arrivarono a Torraca con la macchina carica fino al tettuccio: valigie, la chitarra, un ventilatore, due borse di libri che Giulia si era portata per l'estate e che non avrebbe aperto. La casa di Vincenzo, che per un mese era stata silenziosa come una chiesa, si riempì di voci, di porte, di musica dalle cuffie di Matteo che si sentiva lo stesso. Stefano dormì sul divano letto con Giulia, perché nella sua vecchia stanza ci andò Matteo.
+Il tre luglio Giulia e Matteo arrivarono a Torraca con la macchina carica fino al tettuccio: valigie, la chitarra, un ventilatore, due borse di libri che Giulia si era portata per l'estate e che non avrebbe aperto. La casa di Antonio, che per un mese era stata silenziosa come una chiesa, si riempì di voci, di porte, di musica dalle cuffie di Matteo che si sentiva lo stesso. Stefano dormì sul divano letto con Giulia, perché nella sua vecchia stanza ci andò Matteo.
 
-Il quattro mattina si svegliò alle nove, con Matteo che chiedeva dove fosse il caricabatterie e Vincenzo che chiedeva dove fossero finiti i suoi occhiali. La moka la fece Giulia. Il quaderno era rimasto nel cassetto del comodino della vecchia stanza, dove adesso dormiva Matteo.
+Il quattro mattina si svegliò alle nove, con Matteo che chiedeva dove fosse il caricabatterie e Antonio che chiedeva dove fossero finiti i suoi occhiali. La moka la fece Giulia. Il quaderno era rimasto nel cassetto del comodino della vecchia stanza, dove adesso dormiva Matteo.
 
-Il cinque, Vincenzo ebbe una reazione alle nuove medicine: vomito, giramenti di testa. Pronto soccorso a Sapri, sei ore di attesa, una flebo, il ritorno a casa a mezzanotte.
+Il cinque, Antonio ebbe una reazione alle nuove medicine: vomito, giramenti di testa. Pronto soccorso a Sapri, sei ore di attesa, una flebo, il ritorno a casa a mezzanotte.
 
 Il sei, il sette e l'otto furono un'unica giornata lunghissima: la madre di Giulia era caduta in casa, a Salerno, e Giulia ripartì di corsa, e Stefano con lei, e Matteo restò con il nonno. Ospedale, cognata, assistente sociale, una badante da trovare in tre giorni. Poi il ritorno.
 
@@ -1415,7 +1415,7 @@ La prima fu riprendersi il quaderno dalla stanza di Matteo. Bussò, entrò, lo p
 
 Matteo fece una smorfia che poteva voler dire qualunque cosa e tornò al telefono.
 
-La seconda fu attaccare un post-it giallo sulla mensola sopra il fornello, accanto al barattolo del caffè: *UNA RIGA*. Lo vide Vincenzo, e non disse niente, ma il giorno dopo il post-it era ancora lì, e Stefano capì che suo padre l'aveva lasciato apposta.
+La seconda fu attaccare un post-it giallo sulla mensola sopra il fornello, accanto al barattolo del caffè: *UNA RIGA*. Lo vide Antonio, e non disse niente, ma il giorno dopo il post-it era ancora lì, e Stefano capì che suo padre l'aveva lasciato apposta.
 
 La terza fu la più difficile. Uscì sul balcone, dove Giulia leggeva al fresco, e le disse:
 
@@ -1733,7 +1733,7 @@ Scrisse la domanda in cima al foglio: *Quanto è stata degna di essere vissuta q
 
 Stefano pensò alla domenica precedente.
 
-Vincenzo, che dopo la terapia stava meglio di quanto non stesse da mesi, aveva insistito per portarli a pescare: lui, Stefano e Matteo, sul gozzo di un amico, alle sei del mattino. Matteo aveva protestato fino all'ultimo, poi era salito in barca con la faccia di un condannato. Non avevano preso quasi niente: tre saraghi piccoli e una tracina che Vincenzo aveva ributtato in mare con disprezzo. Ma a un certo punto il nonno aveva insegnato a Matteo il nodo del pescatore, quello che legava il suo, di nonno, e Matteo l'aveva sbagliato quattro volte e alla quinta gli era riuscito. Si era girato verso di loro con una faccia che Stefano non vedeva da quando suo figlio aveva otto anni.
+Antonio, che dopo la terapia stava meglio di quanto non stesse da mesi, aveva insistito per portarli a pescare: lui, Stefano e Matteo, sul gozzo di un amico, alle sei del mattino. Matteo aveva protestato fino all'ultimo, poi era salito in barca con la faccia di un condannato. Non avevano preso quasi niente: tre saraghi piccoli e una tracina che Antonio aveva ributtato in mare con disprezzo. Ma a un certo punto il nonno aveva insegnato a Matteo il nodo del pescatore, quello che legava il suo, di nonno, e Matteo l'aveva sbagliato quattro volte e alla quinta gli era riuscito. Si era girato verso di loro con una faccia che Stefano non vedeva da quando suo figlio aveva otto anni.
 
 Quella sera aveva scritto *9*. Non aveva fatto niente di produttivo.
 
@@ -1879,9 +1879,9 @@ Glielo raccontò a Aurelio ridendo, e Aurelio annuì come se fosse la prova di u
 
 ---
 
-Quella sera Vincenzo cercava le chiavi della cantina. Le cercò per dieci minuti, poi chiamò Stefano. Il mazzo era sul tavolo della cucina, davanti a lui: un anello di ferro con almeno quindici chiavi, accumulate in sessant'anni. Quella della cantina, quella del garage, quella di una casa al mare venduta nel '92, quella di un lucchetto che non esisteva più.
+Quella sera Antonio cercava le chiavi della cantina. Le cercò per dieci minuti, poi chiamò Stefano. Il mazzo era sul tavolo della cucina, davanti a lui: un anello di ferro con almeno quindici chiavi, accumulate in sessant'anni. Quella della cantina, quella del garage, quella di una casa al mare venduta nel '92, quella di un lucchetto che non esisteva più.
 
-Vincenzo le provò una a una nella serratura della cantina, e alla nona trovò quella giusta.
+Antonio le provò una a una nella serratura della cantina, e alla nona trovò quella giusta.
 
 Stefano lo guardava, e pensava a quello che Aurelio gli aveva detto il pomeriggio.
 
@@ -1889,13 +1889,13 @@ Stefano lo guardava, e pensava a quello che Aurelio gli aveva detto il pomeriggi
 
 «Papà» disse, «posso fare una cosa?»
 
-Prese il mazzo, sfilò la chiave della cantina, e la infilò in un anellino da solo, con un pezzo di sughero. Gliela mise in mano. Vincenzo la soppesò.
+Prese il mazzo, sfilò la chiave della cantina, e la infilò in un anellino da solo, con un pezzo di sughero. Gliela mise in mano. Antonio la soppesò.
 
 «E le altre?»
 
 «Le altre le teniamo nel cassetto. Questa è quella che apri tutti i giorni.»
 
-Il giorno dopo, Vincenzo aprì la cantina al primo colpo, senza guardare, e non disse niente. Ma la sera la chiave col sughero era appesa a un chiodo accanto alla porta, dove prima non c'era nessun chiodo.
+Il giorno dopo, Antonio aprì la cantina al primo colpo, senza guardare, e non disse niente. Ma la sera la chiave col sughero era appesa a un chiodo accanto alla porta, dove prima non c'era nessun chiodo.
 
 ---
 
@@ -2045,7 +2045,7 @@ Il rito aveva quattro passaggi e chiedeva cinque minuti. Aurelio glieli spiegò,
 
 ---
 
-La domenica sera Matteo uscì con i ragazzi del paese, Vincenzo si addormentò davanti alla televisione, e Stefano si sedette sul balcone con il taccuino nero, una matita e un posacenere. Erano le dieci. Lo aveva deciso apposta: la domenica sera, quando per abitudine c'è già un certo raccoglimento, prima che cominci la settimana. Aurelio gli aveva detto che il momento non contava, purché fosse sempre lo stesso.
+La domenica sera Matteo uscì con i ragazzi del paese, Antonio si addormentò davanti alla televisione, e Stefano si sedette sul balcone con il taccuino nero, una matita e un posacenere. Erano le dieci. Lo aveva deciso apposta: la domenica sera, quando per abitudine c'è già un certo raccoglimento, prima che cominci la settimana. Aurelio gli aveva detto che il momento non contava, purché fosse sempre lo stesso.
 
 Rilesse le quattordici righe.
 
@@ -2137,7 +2137,7 @@ Ci mise più che per tutto il resto. Gli vennero in mente Giulia, Aurelio, perfi
 
 *grazie a papà, per aver detto la verità al dottor Fontanesi quando gliel'ho chiesto. mi ha insegnato una cosa che io non so ancora fare.*
 
-Il lunedì mattina, a colazione, Vincenzo stava bagnando un biscotto nel latte, perché il caffè non poteva più berlo. Stefano si sedette di fronte a lui.
+Il lunedì mattina, a colazione, Antonio stava bagnando un biscotto nel latte, perché il caffè non poteva più berlo. Stefano si sedette di fronte a lui.
 
 «Papà.»
 
@@ -2145,7 +2145,7 @@ Il lunedì mattina, a colazione, Vincenzo stava bagnando un biscotto nel latte, 
 
 «Grazie per quella volta dal medico. Per aver detto come stavi davvero. Lo so che non ti andava.»
 
-Vincenzo alzò gli occhi dal latte. Li tenne su Stefano per un tempo che sembrò lunghissimo. Poi tornò a guardare la tazza.
+Antonio alzò gli occhi dal latte. Li tenne su Stefano per un tempo che sembrò lunghissimo. Poi tornò a guardare la tazza.
 
 «Me l'hai fatto dire tu» disse. «Con quella faccia.»
 
@@ -2279,7 +2279,7 @@ La rilesse. Questa volta, quando la lesse, sentì qualcosa. Un tuffo, come quand
 
 ---
 
-Tornò a Torraca a mezzogiorno. Giulia stava caricando la macchina: il giorno dopo cominciava la scuola, i collegi docenti, e Matteo doveva tornare per il liceo. Ne avevano parlato a lungo, la settimana prima, sul balcone, di notte. Stefano sarebbe rimasto giù durante la settimana, almeno fino a Natale: c'era Vincenzo, c'era Lorenzo, c'era quella porta socchiusa. Il fine settimana sarebbe salito a Salerno. Non era una separazione, aveva detto Giulia, ed era stata lei a dirlo per prima. Era un esperimento. Piccolo. Da guardare dopo un mese.
+Tornò a Torraca a mezzogiorno. Giulia stava caricando la macchina: il giorno dopo cominciava la scuola, i collegi docenti, e Matteo doveva tornare per il liceo. Ne avevano parlato a lungo, la settimana prima, sul balcone, di notte. Stefano sarebbe rimasto giù durante la settimana, almeno fino a Natale: c'era Antonio, c'era Lorenzo, c'era quella porta socchiusa. Il fine settimana sarebbe salito a Salerno. Non era una separazione, aveva detto Giulia, ed era stata lei a dirlo per prima. Era un esperimento. Piccolo. Da guardare dopo un mese.
 
 Mentre chiudeva il bagagliaio, lei gli chiese:
 
@@ -2393,7 +2393,7 @@ A Sandro, al telefono. Sandro aveva detto: «Consulente? Nel Cilento? Stefà, ma
 
 A Fabrizio, che l'aveva chiamato per raccontargli dell'ultima riorganizzazione. Stefano gli aveva detto del panificio. Fabrizio aveva risposto: «Ah. Bello. Senti, ma lo sai che a Nocera hanno spostato Ruggiero a Eboli? Io ti dico che c'è qualcosa sotto…».
 
-A suo padre, a cena. Vincenzo aveva detto: «Bravo», e aveva continuato a mangiare.
+A suo padre, a cena. Antonio aveva detto: «Bravo», e aveva continuato a mangiare.
 
 E a Giulia. Giulia aveva posato il telefono che teneva in mano, si era seduta sul letto e gli aveva chiesto: «Racconta. Dall'inizio. Che cosa avevano? Che cosa gli hai detto? E loro come ti hanno guardato?». Erano rimasti a parlare un'ora.
 
@@ -2656,21 +2656,21 @@ La sera dopo, accanto alle quattro righe, scrisse che per almeno tre ore la gior
 
 ---
 
-A fine ottobre i cachi dell'albero di Vincenzo erano maturi, arancioni come lanterne contro il cielo grigio.
+A fine ottobre i cachi dell'albero di Antonio erano maturi, arancioni come lanterne contro il cielo grigio.
 
-Vincenzo, che non poteva più salire sulle scale per ordine del dottor Fontanesi, guardava l'albero dalla finestra della cucina con la stessa espressione con cui un tempo guardava le partite della Salernitana. Una mattina di sabato Stefano decise di raccoglierli lui. Prese la scala di legno lunga dalla cantina, quella a pioli che suo padre aveva costruito negli anni Settanta, la portò in giardino e la appoggiò al muro.
+Antonio, che non poteva più salire sulle scale per ordine del dottor Fontanesi, guardava l'albero dalla finestra della cucina con la stessa espressione con cui un tempo guardava le partite della Salernitana. Una mattina di sabato Stefano decise di raccoglierli lui. Prese la scala di legno lunga dalla cantina, quella a pioli che suo padre aveva costruito negli anni Settanta, la portò in giardino e la appoggiò al muro.
 
 Salì. Era una buona scala: solida, stabile, perfettamente appoggiata. Arrivò in cima in pochi secondi.
 
 E si accorse che era appoggiata al muro sbagliato. Al muro di cinta che dava sulla strada, a tre metri dall'albero. Da lassù i cachi erano lontanissimi: si vedevano benissimo, arancioni, maturi, irraggiungibili.
 
-Dalla finestra della cucina si sentì una risata. Vincenzo rideva così forte che dovette appoggiarsi al lavandino.
+Dalla finestra della cucina si sentì una risata. Antonio rideva così forte che dovette appoggiarsi al lavandino.
 
 ---
 
 «Glielo giuro, non l'avevo fatto apposta» disse Stefano a Aurelio il giorno dopo. «Ero così concentrato a sistemare bene la scala che non ho guardato dove la mettevo.»
 
-Aurelio rideva quasi quanto Vincenzo.
+Aurelio rideva quasi quanto Antonio.
 
 «Lei mi ha appena portato l'immagine di Stephen Covey. Non poteva saperlo.»
 
@@ -2884,7 +2884,7 @@ Arrivato a casa, prima di dormire, si ripromise di chiamare Gino. Domani. Senza 
 
 Il giorno dopo si svegliò alle sette e mezza con il telefono che vibrava.
 
-Il caseificio di Laurito aveva mandato i documenti, quarantatré allegati in tre mail, e il titolare voleva una risposta entro mezzogiorno perché aveva l'appuntamento in banca alle tre. Lorenzo Avallone aveva scritto che c'era un nuovo cliente ad Ascea, un agriturismo, e se poteva andare a vederlo nel pomeriggio. Giulia aveva mandato un messaggio: sua madre aveva di nuovo la febbre. Vincenzo cercava i suoi occhiali.
+Il caseificio di Laurito aveva mandato i documenti, quarantatré allegati in tre mail, e il titolare voleva una risposta entro mezzogiorno perché aveva l'appuntamento in banca alle tre. Lorenzo Avallone aveva scritto che c'era un nuovo cliente ad Ascea, un agriturismo, e se poteva andare a vederlo nel pomeriggio. Giulia aveva mandato un messaggio: sua madre aveva di nuovo la febbre. Antonio cercava i suoi occhiali.
 
 Stefano si sedette al tavolo della cucina con il portatile e non si alzò fino all'una. Alle tre era ad Ascea. Alle sette era in macchina, stanco morto, sulla strada del ritorno.
 
@@ -2928,7 +2928,7 @@ Mela.
 
 «In nessuno di questi casi il metodo le dà qualcosa che prima non aveva» disse Aurelio. «Le restituisce la capacità di agire su quello che già sapeva. E funziona per una ragione precisa: perché è facile. Se le avessi chiesto quaranta minuti di meditazione al giorno, alla terza settimana avrebbe smesso. Non per colpa sua: perché quarantatré mail non lette vincono quasi sempre contro un buon proposito. Una riga, invece, la scrive anche nel giorno peggiore.»
 
-Si alzò, prese due libri dalla libreria costruita da Vincenzo, e glieli diede.
+Si alzò, prese due libri dalla libreria costruita da Antonio, e glieli diede.
 
 «Lo scopo della vita, qualunque sia, non si realizza in un giorno di ispirazione. Si realizza in un numero molto alto di giorni ordinari. E i giorni ordinari si governano con strumenti ordinari, abbastanza semplici da usarli anche quando non se ne ha voglia.»
 
@@ -3002,7 +3002,7 @@ La foto mostrava Ferri sorridente, in giacca e cravatta, sul palco di un convegn
 
 *Orgoglioso di aver guidato il processo di razionalizzazione della rete territoriale del Sud. 38 filiali ottimizzate in 6 mesi, zero conflittualità, transizione digitale completata con successo. Il cambiamento si guida, non si subisce! #leadership #trasformazione #efficientamento*
 
-Trentotto filiali ottimizzate. Fra quelle, la sua. Zero conflittualità. Stefano pensò al cassiere della filiale di Pastena, Antonio, che aveva cinquantasei anni e due figli all'università, e che a settembre gli aveva scritto che non dormiva più.
+Trentotto filiali ottimizzate. Fra quelle, la sua. Zero conflittualità. Stefano pensò al cassiere della filiale di Pastena, Pasquale, che aveva cinquantasei anni e due figli all'università, e che a settembre gli aveva scritto che non dormiva più.
 
 Sentì una cosa salirgli dallo stomaco al collo, rapidissima, calda. Il cuore accelerò. Le mani si fecero fredde. Il resto della cucina sparì: vedeva soltanto lo schermo, e la faccia sorridente di Ferri.
 
@@ -3098,7 +3098,7 @@ Stefano guardò il tovagliolo. Non c'era bisogno che Aurelio glielo chiedesse.
 
 «Dove la mette?»
 
-Stefano ci pensò onestamente. Che cosa ci aveva guadagnato? Dieci minuti di sollievo. Che cosa ci aveva perso? La lettera di referenze, la reputazione in sede, forse l'iscrizione all'albo per due mesi. E Ferri? Ferri ci aveva perso una mattinata di fastidio, forse un po' di imbarazzo. Antonio, il cassiere, e tutti gli altri, in nome dei quali aveva scritto? Niente. Non ci avevano guadagnato niente.
+Stefano ci pensò onestamente. Che cosa ci aveva guadagnato? Dieci minuti di sollievo. Che cosa ci aveva perso? La lettera di referenze, la reputazione in sede, forse l'iscrizione all'albo per due mesi. E Ferri? Ferri ci aveva perso una mattinata di fastidio, forse un po' di imbarazzo. Pasquale, il cassiere, e tutti gli altri, in nome dei quali aveva scritto? Niente. Non ci avevano guadagnato niente.
 
 Mise il dito sulla casella in basso a sinistra.
 
@@ -3388,7 +3388,7 @@ Fece una pausa.
 
 Stefano tornò a Torraca con una decisione in tasca. Ma la vita, come sempre, aveva un'altra agenda.
 
-La notte del cinque gennaio Vincenzo si svegliò con un dolore fortissimo allo stomaco e vomitò sangue. Ambulanza, pronto soccorso a Sapri, poi il trasferimento a Vallo della Lucania. Un'ulcera sanguinante, nonostante la terapia. Endoscopia d'urgenza, trasfusione, una settimana di ricovero. Rosa, che non lavorava in quel reparto, passò lo stesso a vederlo ogni giorno, dopo il turno.
+La notte del cinque gennaio Antonio si svegliò con un dolore fortissimo allo stomaco e vomitò sangue. Ambulanza, pronto soccorso a Sapri, poi il trasferimento a Vallo della Lucania. Un'ulcera sanguinante, nonostante la terapia. Endoscopia d'urgenza, trasfusione, una settimana di ricovero. Rosa, che non lavorava in quel reparto, passò lo stesso a vederlo ogni giorno, dopo il turno.
 
 Nella stessa settimana la madre di Giulia peggiorò, e Giulia passava le notti in una clinica di Salerno. Il caseificio di Laurito aveva la scadenza del rifinanziamento il nove. L'agriturismo di Ascea aspettava un piano per il dodici. Mimmo, il collega di Raffaele, chiamava due volte al giorno.
 
@@ -3416,7 +3416,7 @@ Funzionò quattro sere su sette. Le altre tre scese lo stesso in strada. Ma quat
 
 ---
 
-Il quattordici gennaio Vincenzo tornò a casa, più magro, più lento, ma vivo, e con una dieta che lo faceva brontolare dalla mattina alla sera. Il caseificio aveva firmato. L'agriturismo aveva avuto il suo piano con due giorni di ritardo, e nessuno era morto.
+Il quattordici gennaio Antonio tornò a casa, più magro, più lento, ma vivo, e con una dieta che lo faceva brontolare dalla mattina alla sera. Il caseificio aveva firmato. L'agriturismo aveva avuto il suo piano con due giorni di ritardo, e nessuno era morto.
 
 Quella domenica sera, invece del solito rito settimanale, Stefano fece una cosa che Aurelio gli aveva chiesto da tempo. Si sedette al tavolo della cucina con tutti i taccuini: il vecchio quaderno a quadretti del liceo, quello color tabacco con le caselle mezze vuote, e i due taccuini neri tascabili, uno già pieno e uno a metà. Rilesse tutto, dalla prima riga di giugno. *Non sapere dov'è il quadro elettrico.*
 
@@ -3428,7 +3428,7 @@ Era *papà*.
 
 Era in quasi una riga del mattino su quattro, da sei mesi. *Papà dal medico. Grazie a papà. Papà e la scala. Papà, il resto dopo.* E nelle righe della sera, quasi sempre accanto ai numeri più alti.
 
-Stefano chiuse il quaderno e rimase seduto a lungo. Dalla stanza accanto si sentiva Vincenzo che russava, piano.
+Stefano chiuse il quaderno e rimase seduto a lungo. Dalla stanza accanto si sentiva Antonio che russava, piano.
 
 Era tornato giù a maggio per qualche settimana, a respirare, perché lo aveva detto Giulia. Non se n'era più andato. Si era detto che era per il lavoro, per Lorenzo, per i clienti. Era anche per quello. Ma le sue righe dicevano un'altra cosa, e la dicevano con la sua grafia.
 
@@ -3450,7 +3450,7 @@ L'officina di Gino era in fondo alla strada che dal paese scende verso Sapri: un
 
 Ci andò un sabato di fine gennaio, perché la Golf faceva un rumore strano in frenata, e perché Gino gli aveva detto: *vieni, te la guardo io, gratis, per la birra di novembre*.
 
-Gino la mise sul ponte, smontò una ruota, trovò una pastiglia consumata fino al ferro, la cambiò in venti minuti. Era bravo, bravissimo. Lavorava con le mani come Vincenzo con il legno: senza guardare, come se gli attrezzi gli venissero incontro.
+Gino la mise sul ponte, smontò una ruota, trovò una pastiglia consumata fino al ferro, la cambiò in venti minuti. Era bravo, bravissimo. Lavorava con le mani come Antonio con il legno: senza guardare, come se gli attrezzi gli venissero incontro.
 
 Poi Stefano si guardò intorno.
 
@@ -3604,13 +3604,13 @@ Cominciò come un fastidio in basso, a destra, la mattina. In una settimana dive
 
 Dopo tre settimane la schiena gli faceva male come prima.
 
-Fu Vincenzo a risolvere il problema, un mattino, senza volerlo. Entrò in cucina, dove Stefano lavorava dalle otto alle due sul portatile, e lo guardò dalla porta con l'occhio del falegname.
+Fu Antonio a risolvere il problema, un mattino, senza volerlo. Entrò in cucina, dove Stefano lavorava dalle otto alle due sul portatile, e lo guardò dalla porta con l'occhio del falegname.
 
 «Quella sedia è di tua nonna» disse. «È alta quaranta centimetri. Il tavolo è alto ottantacinque. Stai lavorando piegato come un gobbo da due mesi.»
 
 Era vero. Stefano aveva trasformato la cucina di suo padre in un ufficio, e la sedia impagliata della nonna, bassa, con lo schienale dritto, in una sedia da ufficio. Otto ore al giorno.
 
-Vincenzo, il giorno dopo, scese in cantina e con quattro pezzi di castagno e un pomeriggio di lavoro alzò la sedia di dieci centimetri. Gli fece anche un poggiapiedi.
+Antonio, il giorno dopo, scese in cantina e con quattro pezzi di castagno e un pomeriggio di lavoro alzò la sedia di dieci centimetri. Gli fece anche un poggiapiedi.
 
 In una settimana il mal di schiena era sparito. Le cinque scatole erano ancora sulla mensola del bagno, quasi intatte.
 
@@ -4244,11 +4244,11 @@ Quella sera, nella riga della sera, Stefano scrisse il nome della persona con cu
 
 La telefonata arrivò un mercoledì di metà aprile, mentre Stefano aiutava suo padre a seminare i fagiolini.
 
-Vincenzo, che non poteva più chinarsi, dirigeva le operazioni da una sedia di plastica in fondo all'orto, con il bastone che usava come una bacchetta da direttore d'orchestra. Stefano faceva i buchi nella terra con il dito, tre semi per buco, a una spanna l'uno dall'altro. Aveva le mani sporche di terra quando il telefono vibrò nella tasca.
+Antonio, che non poteva più chinarsi, dirigeva le operazioni da una sedia di plastica in fondo all'orto, con il bastone che usava come una bacchetta da direttore d'orchestra. Stefano faceva i buchi nella terra con il dito, tre semi per buco, a una spanna l'uno dall'altro. Aveva le mani sporche di terra quando il telefono vibrò nella tasca.
 
 Lo prese con due dita. Numero sconosciuto, prefisso di Vallo della Lucania.
 
-«Dottor Ardenzi? Sono Pina Galdi. Della cooperativa Terre del Bussento. Si ricorda di me?»
+«Dottor Arcuri? Sono Pina Galdi. Della cooperativa Terre del Bussento. Si ricorda di me?»
 
 Si ricordava benissimo. Nove anni prima, quando ancora dirigeva la filiale di Pastena, la Cooperativa Terre del Bussento, un frantoio sociale con una quarantina di soci olivicoltori nella valle del Bussento, stava per perdere un finanziamento regionale per un errore nella documentazione. Pina Galdi, la presidente, una donna minuta con la voce di un sergente, era venuta a Salerno disperata. Stefano aveva passato due sere a sistemare le carte con lei, fuori orario, e il finanziamento era arrivato. Da allora non si erano più sentiti, se non per un biglietto di auguri a Natale, i primi anni.
 
@@ -4390,9 +4390,9 @@ L'ultimo giovedì di aprile, al bar, prima della comunità, fece il suo momento 
 
 Rilesse l'inventario. L'Opportunità, gli aveva detto Aurelio, non arriva mai dal nulla. Arriva da un terreno che hai preparato tu.
 
-A giugno, a Torraca, Vincenzo raccolse i primi fagiolini. Su quaranta buchi ne erano nati trentuno. Gli altri nove, disse, erano semi che non volevano.
+A giugno, a Torraca, Antonio raccolse i primi fagiolini. Su quaranta buchi ne erano nati trentuno. Gli altri nove, disse, erano semi che non volevano.
 
-«Succede» disse Vincenzo, sgranandone uno fra le dita. «Ma se non ne metti quaranta, non ne raccogli trentuno.»
+«Succede» disse Antonio, sgranandone uno fra le dita. «Ma se non ne metti quaranta, non ne raccogli trentuno.»
 
 ## Capitolo 27 — Il nemico che ti porti in casa
 
@@ -4546,7 +4546,7 @@ Lunedì alle nove meno un quarto aveva il telefono in mano. Il caldo saliva dall
 
 Alle nove compose il numero.
 
-«Pina? Sono Stefano Ardenzi. Accetto.»
+«Pina? Sono Stefano Arcuri. Accetto.»
 
 Dall'altra parte ci fu un silenzio di mezzo secondo. Poi la voce da sergente si incrinò appena.
 
@@ -5050,13 +5050,13 @@ Aurelio, che lo guardava, finse di non vedere.
 
 Il lunedì successivo Stefano andò dal dottor Fontanesi, a Sapri. Gli portò il taccuino aperto alla pagina del minuto prima. Il medico lo lesse, alzò gli occhiali sulla fronte, e gli disse che in vent'anni di mestiere nessun paziente gli aveva mai portato una cosa così utile. Lo indirizzò al Centro Antifumo di Vallo. Il primo colloquio fu fissato per il ventitré giugno.
 
-Quella sera, a casa, Vincenzo aveva la febbre. Trentotto e due, niente di grave, un'influenza estiva. Stefano cercò il termometro nel cassetto dei medicinali e glielo mise sotto il braccio, e mentre aspettavano i tre minuti, seduto sul bordo del letto di suo padre, pensò a una cosa che Aurelio aveva detto alla fine, prima di salire in macchina con Rosa.
+Quella sera, a casa, Antonio aveva la febbre. Trentotto e due, niente di grave, un'influenza estiva. Stefano cercò il termometro nel cassetto dei medicinali e glielo mise sotto il braccio, e mentre aspettavano i tre minuti, seduto sul bordo del letto di suo padre, pensò a una cosa che Aurelio aveva detto alla fine, prima di salire in macchina con Rosa.
 
 «Un termometro non abbassa la febbre. Ma senza termometro non sapreste nemmeno di averla. Questo metodo è un termometro. È utile per quello che fa. Non chiedetegli di essere la cura.»
 
 Il termometro suonò. Trentotto e due. Stefano diede a suo padre una tachipirina e un bicchiere d'acqua, come aveva detto il medico al telefono.
 
-«Hai chiamato il dottore» disse Vincenzo, con la voce impastata. «Prima di fare di testa tua.»
+«Hai chiamato il dottore» disse Antonio, con la voce impastata. «Prima di fare di testa tua.»
 
 «Ho imparato» disse Stefano.
 
@@ -5312,7 +5312,7 @@ Mela scrisse per prima, e lo lesse ad alta voce, perché Mela leggeva sempre tut
 
 Rosa scrisse: *Faccio i turni, non ho tempo per il master.* E sotto: *studiare un capitolo sul treno di domani, con zooma, descrivi, controlla. niente evidenziatore.*
 
-Gino scrisse: *L'officina va male, non posso assumere nessuno.* E sotto: *chiedere al figlio di Totonno se vuole venire due pomeriggi a imparare. gratis per ora.*
+Gino scrisse: *L'officina va male, non posso assumere nessuno.* E sotto: *chiedere al figlio di Peppino se vuole venire due pomeriggi a imparare. gratis per ora.*
 
 Ivo non lesse il suo. Ma Stefano vide che la riga sotto cominciava con *dire al mio capo*.
 
@@ -5474,13 +5474,13 @@ Si fermò a riprendere fiato.
 
 ---
 
-Stefano tornò a Torraca la sera, con la Golf, sulla Cilentana vuota. Arrivò a casa alle dieci. Vincenzo lo aspettava in cucina, con la luce accesa.
+Stefano tornò a Torraca la sera, con la Golf, sulla Cilentana vuota. Arrivò a casa alle dieci. Antonio lo aspettava in cucina, con la luce accesa.
 
 «Come sta?»
 
 «Due stent. Dicono che se la cava.»
 
-«Se la cava.» Vincenzo annuì. «È un uomo testardo.»
+«Se la cava.» Antonio annuì. «È un uomo testardo.»
 
 Quella sera Stefano fece l'esercizio che Aurelio gli aveva lasciato. Sul taccuino scrisse un evento degli ultimi anni che al momento aveva giudicato una disgrazia, e uno che aveva giudicato una fortuna. Accanto a ciascuno, quello che ne era venuto dopo.
 
@@ -5546,7 +5546,7 @@ La sesta lo lesse ad alta voce, cronometrandosi con il telefono. Due minuti e ci
 
 La comunità di luglio si riunì nel retro del Bar Approdo, il primo giovedì del mese, alle sette di sera. Faceva caldo, e il barista aveva lasciato aperta la porta sul vicolo per far passare un po' d'aria.
 
-C'erano tutti. Rosa, in divisa, perché attaccava alle nove. Mela, con un vestito a fiori che si era cucita da sola e che voleva far vedere alle ragazze della parrocchia il martedì dopo. Gino, con un ragazzo di diciannove anni magro e timido, il figlio di Totonno, che da tre settimane andava in officina due pomeriggi a imparare e che Gino aveva portato *perché vedesse una cosa*. E Ivo, che aveva sistemato il portatile in un angolo del tavolo, al posto dove di solito stava Aurelio, con la telecamera accesa.
+C'erano tutti. Rosa, in divisa, perché attaccava alle nove. Mela, con un vestito a fiori che si era cucita da sola e che voleva far vedere alle ragazze della parrocchia il martedì dopo. Gino, con un ragazzo di diciannove anni magro e timido, il figlio di Peppino, che da tre settimane andava in officina due pomeriggi a imparare e che Gino aveva portato *perché vedesse una cosa*. E Ivo, che aveva sistemato il portatile in un angolo del tavolo, al posto dove di solito stava Aurelio, con la telecamera accesa.
 
 Sullo schermo c'era Aurelio, dal suo letto di Sapri, con i tre cuscini dietro la schiena e il golfo nella finestra alle sue spalle. Salutò con la mano.
 
@@ -5554,7 +5554,7 @@ Sullo schermo c'era Aurelio, dal suo letto di Sapri, con i tre cuscini dietro la
 
 Stefano si sedette a capotavola, dove non si era mai seduto. Aveva il taccuino aperto davanti. Le mani gli sudavano.
 
-«Aurelio mi ha chiesto di scrivere tutto il metodo in tre minuti» disse. «Per chi non lo conosce, e per quando a noi sfugge qualcosa. L'ho scritto. Ve lo leggo.» Guardò il ragazzo di Totonno, che si chiamava Salvatore. «Soprattutto a te.»
+«Aurelio mi ha chiesto di scrivere tutto il metodo in tre minuti» disse. «Per chi non lo conosce, e per quando a noi sfugge qualcosa. L'ho scritto. Ve lo leggo.» Guardò il ragazzo di Peppino, che si chiamava Salvatore. «Soprattutto a te.»
 
 Salvatore arrossì fino alle orecchie.
 
@@ -5712,7 +5712,7 @@ Stefano lo lesse lì, sulla terrazza, con il sole che saliva.
 
 Il taccuino nero era pieno. Non di righe del mattino e della sera: quelle, Aurelio le teneva altrove. Era pieno di cose raccolte in quarant'anni. Le cento righe del mattino di persone vere, quelle che aveva copiato per lui l'anno prima. Le citazioni di Seneca in latino, con la traduzione accanto. I nomi degli studi, con gli autori e gli anni, e accanto, in rosso, le correzioni, quando uno studio veniva ridimensionato. *Danziger 2011 — ma vedi Weinshall-Margel. Esaurimento dell'io — non regge. 21 giorni — Maltz, chirurgia plastica, NON abitudini.* Un uomo che aveva passato la vita a controllare le proprie fonti.
 
-E poi c'erano i nomi. Decine di nomi, uno per pagina, a volte con una data. *Daniele, 2004.* *La parrucchiera di Maratea, 2011.* *Il caposquadra degli impianti, 2015.* E l'ultimo: *Stefano Ardenzi, figlio di Vincenzo. Molo di Sapri, maggio. Fumava.*
+E poi c'erano i nomi. Decine di nomi, uno per pagina, a volte con una data. *Daniele, 2004.* *La parrucchiera di Maratea, 2011.* *Il caposquadra degli impianti, 2015.* E l'ultimo: *Stefano Arcuri, figlio di Antonio. Molo di Sapri, maggio. Fumava.*
 
 Sull'ultima pagina c'era una dedica. Scritta a mano, con una grafia più tremolante delle altre, recente. Era datata ventisei giugno: l'aveva scritta in ospedale.
 
@@ -5780,7 +5780,7 @@ Non serviva passare il quaderno, pensò. Bastava una domanda APPO fatta al momen
 
 Il primo sabato di agosto, all'alba, Stefano andò al porto di Sapri. Con lui c'era Matteo.
 
-Matteo era a Torraca da una settimana, per l'estate, a preparare l'esame di ammissione al liceo musicale con un insegnante di Sapri. La mattina studiava solfeggio, il pomeriggio matematica con suo padre, con zooma, descrivi, controlla, senza evidenziatore. La sera suonava sul terrazzo del nonno, e Vincenzo, dalla cucina, alzava il volume della radio per finta e poi lo abbassava.
+Matteo era a Torraca da una settimana, per l'estate, a preparare l'esame di ammissione al liceo musicale con un insegnante di Sapri. La mattina studiava solfeggio, il pomeriggio matematica con suo padre, con zooma, descrivi, controlla, senza evidenziatore. La sera suonava sul terrazzo del nonno, e Antonio, dalla cucina, alzava il volume della radio per finta e poi lo abbassava.
 
 Il giorno prima Matteo gli aveva chiesto se poteva venire con lui, all'alba, al porto. Non aveva detto perché.
 
@@ -5856,7 +5856,7 @@ Lo insegnò, quando rientrarono, sotto gli occhi di Aurelio che dalla bitta corr
 
 ---
 
-Questa è la storia dell'anno in cui Stefano Ardenzi imparò a leggere la propria vita. Non è finita, perché le vite non finiscono quando finiscono i libri. Domattina Stefano scriverà un'altra riga, e domani sera un'altra ancora, e la settimana prossima rileggerà le quattordici righe cercando la parola che torna. Qualche volta salterà dei giorni, e ricomincerà senza recuperare niente. Il primo giovedì di settembre condurrà di nuovo la comunità pensante nel retro del Bar Approdo. Nell'angolo ci sarà Aurelio, con la camomilla, che ascolta. Matteo suonerà il suo pezzo. E ci sarà qualcuno di nuovo, perché c'è sempre qualcuno di nuovo.
+Questa è la storia dell'anno in cui Stefano Arcuri imparò a leggere la propria vita. Non è finita, perché le vite non finiscono quando finiscono i libri. Domattina Stefano scriverà un'altra riga, e domani sera un'altra ancora, e la settimana prossima rileggerà le quattordici righe cercando la parola che torna. Qualche volta salterà dei giorni, e ricomincerà senza recuperare niente. Il primo giovedì di settembre condurrà di nuovo la comunità pensante nel retro del Bar Approdo. Nell'angolo ci sarà Aurelio, con la camomilla, che ascolta. Matteo suonerà il suo pezzo. E ci sarà qualcuno di nuovo, perché c'è sempre qualcuno di nuovo.
 
 E tu che hai letto fin qui, adesso, puoi fare una cosa sola.
 
